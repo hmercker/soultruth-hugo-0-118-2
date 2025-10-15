@@ -1,0 +1,42 @@
+---
+title: "Open Your Soul to God’s Light"
+menu_title: ""
+description: "Bartholomew says Open Your Soul to God’s Light"
+date: 2023-05-11 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Open Your Soul to God’s Light
+
+April 25<sup>th</sup>, 2023
+
+Sechelt, B.C. Canada
+
+Received by Al Fike  
+
+
+
+May the door open wide to you, my friends, the door of God’s Love. You control the latch that opens this door. You control it with your thoughts, desires and prayers. May all these things come into alignment so that as the door opens wide you may receive a great inflowing of the Divine Essence, God’s love for you. I am Bartholomew. I come to greet my brothers and sisters from the climes of the southern places so warm and balmy and how at times I have some empathy for you who live in such cold and dark places. That we indeed have the blessing and benefit of those beautiful climates that God has created for us in places of warmth and friendliness. 
+
+My beloved friends, wherever you are in the world, whatever your life experiences have been, I urge you to put aside all those ideas, thoughts and preconceived structures of spirituality and religion. For most and almost all of these things that have been conceived by man are that of the mind and the mind as you well know is subject to many influences and elements that build upon themselves, creating a certain reality, and perspective of thought and perception Yet, what we encourage you to do and to enter therein, is the reality of the soul. That is a very different reality from that of the mind. It is multi-dimensional. It is awakened by God who gives you the gift of the awakening essence, that which brings alive the perceptions and reality of the soul as it comes with love. It comes with the touch of God deep within you. Your challenge is to bring that reality forward into your consciousness and as I say, to put aside those preconceived notions, those expectations and ideas of what the soul is. Rather what is needed for each of you is to be open, trust and have faith in the process of God’s redeeming love so that you may not be in the mind and of the mind, but rather discover another mind, another consciousness, another reality which is that of the soul. 
+
+The soul is filled with feeling, knowings and perceptions that cannot possibly come with the mind’s deductions or constructions. Rather, the perceptions of the soul are closer to the truth, closer to God, closer to those things that are truly you, and that part of you that truly survives beyond this material plane. It lives now but often in secret, often unacknowledged by so many in your world. And yet, you have come to that place where you are willing to step beyond this so-called normal perception of life to something that is beyond mundane and common ideas, perceptions and experiences in life.
+
+You are adventurers. You are seeking something beyond the norm. You are seeking to fulfill your soul and to know the true joy that comes with God’s love bringing that true perception that comes with God’s love awakening all that which is within you to find the truth, truly, to find the truth. So that you will know truth in times to come, beyond a shadow of a doubt, beyond that place that speculates and wonders and has no true and solid ground from which to base its perceptions. You have come to that place of solid ground, and though it dawns slowly and the reality comes in fits and starts, in glimpses, in times of duress, in times of joy, indeed it comes. And you come to know the difference between that which is of your mind and that which is of your soul. 
+ 
+As you continue to come to the depths of your soul and recognize this, so  the discernment of the two becomes greater and deeper and more understanding is realized as you blossom with the love of God. Awakening with the power of His love showing you the way, opening up the channels of ways and means that you can come to know God, to truly know God and in knowing God, to come to know the truth of God’s existence, His laws of the Universe, His laws of love. As you reach for the highest blessing, you come to know the deepest truth, you come to realize the hidden treasures within you. 
+
+So your perceptions and experiences of life will change radically. So you will become a changed person, a person who is not so caught up in the dilemmas and judgments, conditions that are a part of your world so intently and intensely. Rather you are letting go of all those things that cause you pain, my friends. You come to realize that life can be a joy, that life can be a miracle, that life can bring wondrous blessings and gifts and awarenesses. This is all waiting for you. The only thing that inhibits this is your inability to unlock that door, to accept that another reality awaits you. The greater truth is at your beck and call. It is at your fingertips. Though indeed, that door of doubt, that door of worry and care and all things that are human is thick and causes a great barrier between you and God. Yet,you are knocking on that door. You are persistently praying to awaken and for that door to open. And so it will. With time and effort in prayer and longing, with faith and trust, the door shall open more readily. At times with each of you it is but a crack and the light flows through that crack and you have hope and you have some perception, some feeling, some insight into the power of your own soul which is being transformed by God, awakening by the blessing of God’s love. 
+
+You are being persistent. You are exercising the truth that you know. You are walking upon the path Divine and in so doing, you are exercising faith in the truth of God’s love. Know that as you do so, the door will open wider. It will not shut you out as often as it has in the past. You will find a freedom and joy that is meant for you and for everyone and in it you will shout out the hosannas, the joys, the glories of the touch of God upon your soul. 
+
+This is your destiny, my beloved friends. It is a destiny that you have chosen. It is a destiny that is meant for you and for all children of God which are all the souls in your world, and the spirit world. Each one is meant to have this gift, this transformation. But how many continue to press themselves against this door, in judgement, in fear, in doubt and rather they take another road, a road that insists upon the mindful control of their journey. Yet, when one releases this control, when one releases the judgement of the mind, when one willingly goes to the door and says, *“No, I will not allow this door to be shut. I will open it with all my will and all my might and all my desire and all my longing, even all my pain I will put into this, and open this door so that the light of God may flow into me, that I may claim my birthright, that I may truly be one of God’s children, claimed by God, seeking atonement with God.”*  
+
+Do not allow the door to be shut, my beloved friends, but work to open it. Yes, that door is heavy. It requires great effort but you and you alone have to open that door. You and you alone have the capacity, the ability to open it wide and let the love of God shine through, awakening all that is within you.
+
+Oh my beloved friends, the joy you will know! The awakening that must come, the enlightenment that will be yours. All of these things are meant for you. Do not let the barriers hold you from God but find the freedom that comes with that great aching effort to be free of the human condition and to know the glories of God. 
+
+May you be blessed, my beloved friends, deeply, fully, beautifully blessed with His love, with all that is part of His love, and all that will come with His love. It is there for you. It awaits you. And so, we come to the fountainhead of all love with humility, with asking to be forgiven for our trespasses, to be awakened with our great potentials that lie within, to forgive ourselves and to be in the redeeming qualities that come with the essence of God, brought with His Holy Spirit to pierce your soul, to cleanse your soul, to heal your soul and to bring all that is your soul alive.
+
+May God bless you, my beloved friends. I am Bartholomew and I am pleased to be with you today and for my friends that are close, know that I am close. I continue to guide and be with you. God bless you. My love is with you all. God bless you.

@@ -1,0 +1,38 @@
+---
+title: "Earth Changes and the Impact of Increased Methane Gas Around the Planet"
+menu_title: ""
+description: "Orion talks of Earth Changes and the Impact of Increased Methane Gas Around the Planet"
+date: 2025-02-19 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Earth Changes and the Impact of Increased Methane Gas Around the Planet 
+
+October 15<sup>th</sup>, 2024
+
+Sechelt, BC, Canada
+
+Received by Al Fike 
+
+Bless you, your friend Orion is with you again. The gaseous composition of your atmosphere is changing. There is a tremendous amount of methane entering into that atmosphere and which in turn changes the interaction of gaseous molecules within the atmosphere. Thus it will affect and continue to severely affect your planetary weather systems and conditions throughout. Though these fluctuations in gaseous composition have happened before in your planetary history, the rapidity of this acceleration of methane has never been experienced before. The warming effects of this acceleration will become more and more severe as time goes on, which will in turn create more of this gas, which will in turn accelerate the conditions. Thus the melting of your glaciers and ice caps is accelerating. Thus the level of oceans will rise and the manifestation of extreme weather will continue to be intense.
+
+These are the effects of human endeavours upon the world and they are known and corroborated by scientific research. Yet, in many ways, this information is being repressed by governments and by those who control economies. Thus you are not fully informed about what is happening, although there are certainly snippets of information being released. Your governments will have a great many problems dealing with the outcomes and the outfalls of these climatic intensities. It will be economically ruinous in time. Thus this begins a new phase of Earth changes, new conditions to be reckoned with.
+
+Many of you inhabit northern climates that are not so affected by these things, but indeed, there will be outcomes that will not be comfortable, nor will you desire them. There will be times that are very unusually warm in seasons that are not meant to be warm and there will be times that are unusually cool in seasons that are meant to be warm. There will be conditions that will be somewhat chaotic and unpredictable. There is much coming in a short period of time that will manifest these things which I am speaking of at this moment. We wish to give you forewarning and, in a way, to give the world proof that indeed we are present and wish to assist humanity, though there is much scepticism of this.
+
+When these Earth changes take place and they have been predicted to take place,  others may be interested in what is said, not just in predicting these technical outcomes of Earth changes, but they may also listen to the guidance and truth that is given along with this information. We work with many and, indeed, there are many souls on the verge of awakening to these truths. Yet there is a great deal of resistance in your world to these truths. The mind is predominant and the soul continues to long and desire for truth to be awakened. Yet, the mind, in its predominance, does not wish for this to be so.
+
+The mind, one might say, is a jealous creature, wanting control, wanting the entire manifestation of consciousness to be theirs. Yet the soul can add to that consciousness in tremendous ways. It can open up consciousness in ways the mind is not capable of. Yet the mind may absorb and experience that new consciousness and be a part of this widened and deepened consciousness that must come to humanity. We are endeavouring to help others come to realise this, as are many creatures of light, celestial angels and spirits of light. There are many involved, many hundreds of thousands involved, helping to prepare your planet for what is to come. So we continue to make our efforts and to share our knowledge and our perceptions.
+
+What I have shared today is an obvious perception for anyone who cares to look and has the understanding of biology, chemistry and the interaction of the biosphere, so that they may see for themselves the trends and conditions that are developing and developing rapidly. Yet within you and within many is a feeling that there are great changes coming, that there is much that will manifest that is not part of your normalcy of life. There is a hesitation and yet a fear within many that life is changing and unpredictable. Indeed that fear and trepidation is well-founded, but we urge you not to give it power, but to walk in faith, to be strong in love and to be at peace. For you have the resources arrayed around you, the knowledge within, the perceptions and the soul wisdom that will guide you through any changes, any conditions that will manifest in the world.
+
+This is what you must rely on. Though, indeed, because of the chemistry of your brain, there is part of you that is fearful and nervous. This is part of the fight-or-flight element within your mind. Indeed, it is worthwhile to give it some credence, to listen and yet not allow this to be the predominant form of guiding your actions. Rather, you must go deeper and you must allow peace and a sense of wellness, of wholeness, to rise up within your consciousness and guide you forward. 
+
+The world is changing. The world has changed in the past and the world will change in the future. Unfortunately the rhythm of these changes is greatly accelerated by human endeavour and thus these changes will come rapidly and violently, but you will find your way. You will be protected and guided. In these conditions that will cause fear and reaction, you must be strong, faithful and give the truth that will bring to them peace and great faith and bring to them the knowledge of their Creator, their Creator's Love and the many blessings their Creator has to give.
+
+This will come on the heels of change. Some of this is part of God's plan, but much of it is the result of human meddling with nature through all of their endeavours, all of your endeavours toward finding material gain and comfort. Thus human creativity is a double-edged sword, for within the psyche of humanity, there is a desire to control and to destroy, to hate and not to love. These things must be tamed by love. These things are not truly a part of humanity, but they have risen up from human choice and the human condition that has been created for many, many years.
+
+So indeed, we all have a great challenge ahead of us, do we not? A great challenge to neutralise the darkness, these terrible conditions and thoughts that motivate humanity toward greater pain, greater dysfunction and disharmony. Yet, this great effort is made with God's blessing upon all, to help neutralise these conditions and help turn humanity toward that which is light and that which is of harmony and love. So we continue, my friends. We continue upon the road of transformation, the road less travelled, yet the road that is available to all.
+
+May you be blessed, beloved souls, blessed upon this world, guided and protected. Always protected upon the path of your life's trajectory. Upon all that you see, do, feel and express in the world. May it be of light. May it be an expression of love. I thank you, beloved souls, for gathering as you do and my love is with you all. I am Orion and I love you. God bless you.

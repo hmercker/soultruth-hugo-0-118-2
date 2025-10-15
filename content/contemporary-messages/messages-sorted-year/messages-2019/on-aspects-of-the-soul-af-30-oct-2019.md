@@ -1,0 +1,47 @@
+---
+title: "On the Aspects of the Soul"
+menu_title: ""
+description: "Matthew talks On the Aspects of the Soul"
+date: 2021-02-25 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# On the Aspects of the Soul
+
+October 30<sup>th</sup>, 2019
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+
+I am Matthew and I wish to give a talk on the soul since this instrument is in good condition to receive this talk and I am happy to give it. Because of its complexity, we need to take advantage of a clear mind.
+
+I have explained in the past that the soul is like a diamond with many facets and each facet reflects an aspect of the soul. Some of these facets are well-polished and clear and convey these parts and elements of the soul well, while others are obscured by the encrustations of the soul as well as the biases of the mind that is unwilling to accept what is conveyed by the soul. So these two aspects that each individual expresses and lives within the human condition in which you reside, continue to obscure these elements, these beautiful facets of the soul. As you receive the Divine Love of God, so there are less obstructions, less parts of the soul that are obscured and less biases within the mind that are unwilling to accept or perceive these aspects of the soul. We have said that the soul has chambers. Yes there are components within the soul that have various functions. These components or chambers, if you will, are many but for those of you who walk this Earth, many of these elements are dormant. 
+
+Yet when I say that these aspects of the soul are segmented, I do not mean to say that they are separated, that there is some wall that separates them, for all that is within the soul is very fluid. If you think of the material mind and all the aspects and segments of the material mind performing various functions, they are interconnected and yet they reside in specific places. So it is with the soul. The interconnecting material of the soul is not material at all, but the special substance that the soul is made of, those Divine Attributes that would be difficult to explain. 
+
+In time, as the soul begins to come into the conscious self, there will be perceptions and understandings of this truth. Suffice to say that when a part of the soul or segment is illuminated by God’s Love, infused by God’s Love, it becomes an active part of the soul. Other chambers, or aspects of the soul remain dormant until that blessing of God’s Love continues to infiltrate the soul, chamber by chamber, aspect by aspect, until all is illuminated and there is a harmonious integration of these elements that make up the soul. 
+
+I know I use material terms, words and ideas to help you understand this vital part of yourselves, this part that you are continuing to explore and have a deep desire to understand. I believe that it is crucial that you understand that these ways of turning the truth of the soul into a metaphor may help, but will not completely bring you to clear understanding. This comes as your soul awakens and those parts of your soul are empowered by the Divine Essence. As you awaken, this gradual opening within your soul and various aspects of your soul begin to interrelate and integrate, then the truth becomes clearer. 
+
+This is what we call the awakening of the soul as the Light of God's Love infiltrates all aspects, aspects that have their particular location within your soul, aspects that are indeed integrated yet their functioning, their purpose may remain dormant until there are sufficient quantities of the Divine Love to add its blood so to speak to awaken the organs of the soul. When all is activated, all is integrated, all is awakened, then the soul truly finds its place within your being and consciousness. It cannot be anything but an acceptance and embracing of the soul awareness into your conscious self. Though this takes time and effort, though each prayer brings you ever closer to awakening more aspects of the soul, it comes gradually. As more is awakened, more becomes integrated within your consciousness. Yet what you see is just a glimpse, a vision into a chamber, a part of you while others are obscured by that dark matter which obscures the soul, what we call encrustations which are being continuously dissolved as you retain a consistent prayer practice to receive the Love of God. So the awakening will take time, understandings will come and flow into your consciousness in ways that you alone understand. 
+
+It is your truth, beloved souls, because each soul is unique, the ability of the soul to understand God's Truth becomes a personal matter. This is why we do not encourage you to compare your own experiences with another for you have a unique soul. Though the components of each soul is universal, soul to soul, how they are clustered together and function together is a unique thing just as it is with your brain, your body, and all those parts of you that are interacting this very moment. You are unique and you have unique gifts which are a part of your soul and reside within these chambers. How these aspects and gifts, perceptions and faculties of the soul come together and are integrated is a unique experience and process for each soul. 
+
+Many of you long to have your soul dominate your consciousness. We have told you of the power of your soul and its abilities to guide and bring truth to you. You have listened and you have desired as much. I encourage you to continue to sensitise yourself to your own soul, a soul that has many feelings, a soul that is wise, a soul that is capable of much understanding and in time all truth, a soul that is eternal or is so because you have accepted the gift of the Father’s Love. 
+
+In this eternity, the many aspects and elements of your soul will awaken and grow so that you will experience the eternal progress of the soul. The capacity of the soul to grow and expand, to receive Truth, to receive God's Love, to receive many blessings, and to integrate these blessings into a whole that is your own being is truly a miracle, truly wondrous to witness, truly wondrous to share. 
+
+This in the Celestial Heavens is what we do, sharing our light, our understandings, our love, so much that is so deep and rich and varied and full of beautiful shades and colours, perceptions all informed by love. This experience in the Celestial Heavens is far beyond what you could perceive in this place in which you reside. Yet this is a goal is it not, to shed all those conditions, all that is not of God’s Love, so that the soul rather than being shrouded by the human condition finds its freedom and true place within your being? 
+
+In this way, you prepare yourself to enter the Kingdom of Heaven, that place so enriched with love, God’s Love and Truth, harmony and peace and joy. You will find your way as you continue to acknowledge your own soul, to awaken to the wonders of your soul, all the aspects of your soul, and come to see your true self expressed in all its glory and beauty and uniqueness. That day is coming. You walk towards it with each day, with each prayer, with each desire, with each experience, with each test, with each time you grow in love and choose love. 
+
+So the integration of your soul and your mind, your material mind, its transition and inclusion of one to the other, continues so subtly. But it is relentless because the workings of God's Love, the laws of God’s Love are relentless despite your own resistance, your own skepticism, those parts of you that hold on to old beliefs and aspects of yourself that do not fit, or are not in harmony with this transformation. But in time you will relinquish these things gladly and with great joy, donning the new garb, the new way that is in harmony with God’s Love. 
+
+So much awaits you, my dear brothers and sisters. So much is possible given your efforts and faith to receive the great gift, the great blessing that transforms all and reveals all. May you continue to pray for this gift of Divine Love, allowing all that encrusts your soul to fall away and all that infects your mind with error to fall away and all that is not in harmony with love to fall away. You must have faith, my beautiful friends, in the process, the awakening, the transformation, that God has gifted each soul provided they are willing and accept this to be a part of themselves. 
+
+This gift reveals all. This blessing removes all that is not in harmony with God and brings the soul to God in joyful reunion and communion with the Creator of All, the Source of All, the great Source of Love. So you have a journey ahead of you as you well know, but each soul that embarks upon this journey with faith, that seeks this great gift of Love, that persists and continues to allow the transformative qualities of this Love to dissolve all that is not of love, will find their way and will discover the wondrous aspects of their own soul sparkling in the Light of God, a beautiful jewel in God’s Crown, a beautiful flower in His garden. This Love will bring forth all your unique qualities, all the beauty and wonderment of your soul. 
+
+May God bless you, beloved souls, on that journey. We continue to accompany you. What pleasure we have seeing your souls emerge and its light and brightness sparkle in God’s Firmament. May God bless you deeply, beloved souls, and awaken you fully. God bless you. I am Matthew.

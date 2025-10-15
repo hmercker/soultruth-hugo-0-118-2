@@ -1,0 +1,34 @@
+---
+title: "God’s Awesome Gift"
+menu_title: ""
+description: "Jesus speaks of God’s Awesome Gift"
+date: 2024-11-05 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# God’s Awesome Gift
+
+August 18<sup>th</sup>, 2024
+
+Sechelt, B.C. Canada
+
+Received by Al Fike 
+
+The power of God’s love is awesome in depth, breadth, power and glory. The greatest gift that God can offer you is available to you at any time with any prayer that is given with sincerity and desire to receive the Divine Love of God. I am your brother and friend, I am Jesus. I come to encourage you in these prayers and I walk with you as you make your journey toward greater light, greater harmony and peace. 
+
+I walk with you hoping to inspire you with truth and understanding of this journey. I walk with you because I love you, each of you. Beloved brothers and sisters upon this Earth, I am with you. I have never left my brethren who inhabit the earthly plane. My prayers continue to include all who live upon this world of yours, all who live within the spirit world, all who are struggling, all who are in need of comfort, love and peace. My prayers are with you, beloveds.
+
+How often do I get to speak, to make my intentions clear and my desires for your upliftment expressed in this way? I am deeply blessed by this opportunity and so are you, my beautiful friends. To hear me speak through this instrument is not the direct way in which I would like to speak to you, but it is an adequate way. In many ways it is an effective way. So I am here with you. I’m here to assure you that the road you are taking is the road toward at-onement with God and the transformation of your soul. If you have doubts, my beloveds, seek deep within you, open yourselves to the understanding that lies within you. For it is within your soul that there is true wealth of truth, knowledge, love and light. This is the place where you must go and be in order to know God.
+
+Every mortal, every spirit has struggled and gone through this journey in order to find their own soul. Without the great power, the awesomeness of the Essence of God to empower you and to guide you, then that journey would be a very circuitous one indeed. Yet, you have found the way to open quickly and expediently the truth and experience of the soul. As you find your way to your own soul, you find your way to God in a conscious and clear way that you may touch and understand the power of God’s Love and God’s Being. That you may have your eyes opened, the scales peeled away and the understanding come as you continue to seek God in earnestness, yearning and desire. Truly being within that path of Love, a commitment is needed and is required. It does not say that you must be a certain way. There are no strictures and rules regarding this. Rather it is the way of feeling and soul that will guide you forward.
+
+Yes, many words are spoken. Much guidance is given to you. Yet, that guidance must rely upon the intermediary of the mind in order to understand and to be directed forward. In time as you grow in the Love of God, as the power of this Love continues to open up your faculties and transform you into light, your understanding will come from that place. The mind will not be so necessary in order to know God and to be with God. Yet, each of you begins with that mindful place. Each of you struggles to go beyond it. Know that we have great compassion and love for you upon that journey for that journey is a struggle. That journey often contradicts that which is the reality all around you. Yet, you persist, my beloveds, you persist. You shall find your way because you persist, because you continue to pray, because you have faith in this truth and the benefits of this blessing.
+
+My beloveds, I am close to you. I am truly your brother and your friend. I shall continue to walk upon that journey with you, leading the way as are many angels who walk and are close with you as you continue to seek truth in all its clarity, purity and grace. It comes drop by drop. It comes with the comforting Hand of God upon you. It comes as you feel the grace and the peace surrounding you. It comes as the Holy Spirit conveys this blessing from God. Each of you is unique and each of you walks a path that is unique. Yet, you come together in harmony with the single desire, a desire to know God and to know your own soul, to know all that there is of your true spiritual nature and being. So it is that we travel this road together. For the Law of Attraction brings us close because we all seek truth. We all seek to grow within our souls. Growing within our souls is an eternal process that will never end. I continue to grow within my soul, as do you. We are at different places upon that path. This is inevitable because of the process of awakening and the journey that is part of it, but we are not so exalted that we do not come with humility and desire to help you, to uphold you and to love you. 
+
+We shall, until that time comes, when heavens are separated from the Earth. That time is not now nor is it close at hand. There is much time to bring many, many souls into the embrace of God through the great gift of Divine Love. It shall come, this gift, in abundance and you will avail yourselves of its blessing, as will many more. The great chambers of Heaven are not full. It may absorb all of humanity, all spirits if that is their will. Yet, there are few that enter therein, my beloveds. This is a sad fact, but God continues to open the door, to bring forth the opportunity to receive this gift and be transformed by it thereby ensuring your place within these chambers of Heaven. 
+
+My beloved and beautiful friends, we will journey together. I will greet you at the gates of Heaven, embrace you and congratulate you for your efforts for all that you do to enhance your soul and bring greater light and harmony to it. For the love that will abide therein will be tremendous in scope and beautiful to behold. May you be blessed, my beloveds. May you be blessed as you continue on the journey. I am with you and my love is always with you and my prayers for you and others are constant. My beloveds, seek the great gift of God’s Love with every breath and you will know that which I speak to be true. You will experience it. You will find yourself immersed in this blessing and it will be palpable and powerful. 
+
+May you be blessed always. Know that you are loved beyond measure, that I love you, that all the angels of Heaven love you, all the bright spirits and even your stellar friends have great love for you. For love is part of the universe. Love permeates the universe. It is for humanity to discover this, adopt this truth and absorb the blessings that come with it. The journey continues.. The journey continues. I am Jesus.

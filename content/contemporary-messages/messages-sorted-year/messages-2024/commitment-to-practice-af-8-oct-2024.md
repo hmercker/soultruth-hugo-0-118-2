@@ -1,0 +1,38 @@
+---
+title: "Encourages Commitment to Clear Divine Love Practice"
+menu_title: ""
+description: "Augustine Encourages Commitment to Clear Divine Love Practice"
+date: 2025-02-12 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Encourages Commitment to Clear Divine Love Practice 
+
+October 8<sup>th</sup>, 2024
+
+Sechelt, BC, Canada
+
+Received by Al Fike 
+
+Your commitment and desires will determine the outcomes of your instrumentality. This is a direct correlation, beloved souls. I am your teacher, Augustine. If you take mindful philosophy and considerations and blend them with that which is not of truth, bring them into this flow of Divine Love truth, then you will create a dispersion of the intent of the blessings and the light. Every soul has their free will gift and capacity to walk in the world as they wish to walk in the world, to think the thoughts they wish to think, to express themselves in the way that they desire. God would not interfere with this, nor would we. Yet, we have given you clarity, simplicity and the power of the gift of God's Love to transform and to purify your being.
+
+With many there is often a tendency to add other ideas and philosophies to this simple truth. I say to you, my brethren, we will not interfere with this, nor will God. However the consequences of this mishmash of ideology will be a lack of focus and power in your efforts. It is difficult to remove from the mind different ideas that have accumulated within your mind. It is a common human tendency to create one's own reality, one’s own thoughts and perceptions of what is truth. These things come from the mind. Yet we encourage you, beloved souls, seekers of truth, students of love, to go to your soul to seek the truth from that place, rather than continually reinforcing and encouraging mindful exercises and pursuits in understanding truth.
+
+Indeed if you wish to walk upon the natural love path, then this is a very satisfying endeavour. It helps you along that path. It continues to purify the mind, the emotions and spiritual conditions of the individual. Yet our path is different, is it not? We are seeking to clear the way and purify your own light, condition and thought by heading and nurturing the soul rather than the mind. If you wish to take this course, this journey, then I urge you to do so without faltering and obfuscating the truth by these other means. This requires great dedication and discipline. It requires faith and a true desire to follow this path.
+
+Yet each of you has engaged your minds in many ways, for you are human. Indeed at times you obstruct your own journey and progress by doing so. We are far enough along on this path together that a reminder of how one enters into the truth and how one discovers the truth is not from the mind but the soul and the consciousness of soul. I must remind you of this journey and what it entails. It is not the first time you have been told this, nor will it likely be the last time. It is the journey that requires your dedication and your focus upon it. We are here to help reinforce this, to encourage you and to uphold you upon it.
+
+If you desire to establish rapport with those spirits in the spirit realms, they may be bright, beautiful and pure of mind and intention, but they are not Celestial Angels. Indeed it is important for you to know the difference, to discern the difference between the two and in discerning, to make the choice between the two. For if you are to truly be in rapport with us, then it is important that you are not so in rapport with those individual spirits that espouse the natural love path. For if you do, you diminish our rapport. Fortunately for the spirits in the spirit planes, you do not diminish their rapport, but there is a choice. It is easy and it is a powerful experience to be with these others who are of light and well-intended, but they do not understand the difference. They do not see it. They are not capable of seeing it.
+
+When one is in the Celestial Kingdom and is redeemed by the Divine Love, that condition and light is often unrecognised by others. Yes, there are those who are high up in the spirit spheres and who can recognise us, but they do not acknowledge the difference. They only see us as they see themselves, intellectually competent, pure and of light. Yet, our desire and our goal is to show them and all of humanity, whether they are in the spirit world or the material world, that they may reach higher, that they may indeed enter into the Celestial Kingdom and that they will have unlimited progress therein. As you well know, it requires their application of the truth to seek God's blessing of Love into their souls. It is a simple application. There is nothing that would inhibit this other than their own ideas and biases of what this means.
+
+Many upon these higher spheres believe that they have already attained the great goal of purity and that they function within all the laws of God. Indeed, in many cases, they do, except for one. That is the Law of Love. They do not recognise this and many do not wish to know of it. It is our goal and I hope your goal to help bring the understanding of this truth to others, to live this truth as purely and as beautifully as you can, to be in alignment with God, the sort of alignment that comes as the soul is transformed by the Divine Love. You may only teach this and express this by being it and truly subscribing to this truth. Otherwise, you become yet another voice, another mindful expression of the human condition. Though beautiful it may be, it is still human.
+
+Indeed, as you continue to progress in the Divine Love, in time, you will not be human. You will be more divine than human. You will find your way upon that path and know what it is to be redeemed by the Love of God. This lofty goal is what we seek to obtain and to express. I ask you to think of this. I ask you to consider what it is that you feed your mind, what philosophies continue to enliven your thinking, your expression and desire. 
+
+This is important. We need for you to progress swiftly, to progress without inhibitions and to progress in the Truth of God's Love. For the time grows short, my friends. The time grows short and you will see manifest on your world many things that indicate that the world is changing and that the present conditions that you prefer to entertain as the way of this world, the harmony of this world, will change rapidly into what you could only perceive as disharmony. Will you be strong enough then to uphold this truth? For as the world changes, as conditions change, will you be able to express this truth as you walk in the world, or is your choice the other path, the path of the natural man seeking purity? 
+
+It is your choice. We cannot interfere with that, but our wish is that you will choose what you all know to be the higher path. The path of the soul transformed and the mind absorbed by that soul so that all is in harmony with God's laws, God's Laws of Love. You will find your way to endless joy, endless understanding, endless love. Is this not the more desirable path, my friends? It is for you to decide and we continue to uphold you as you continue to journey upon the path and make those decisions required to be in greater alignment with this truth.
+
+May God bless you, beloved souls and keep you in His Love. I am your teacher, Augustine, and I truly love you. I understand the struggles. I know how easy it is to be distracted and how difficult it is to be pure in thought and action, but we are here to help you, to uphold you and to bless you. God bless you, beloved souls. God bless you all. Your teacher, Augustine, is with you. God bless you.

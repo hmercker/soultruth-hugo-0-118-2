@@ -1,0 +1,31 @@
+---
+title: "Prayer Vigil Until Success"
+menu_title: ""
+description: "Seretta Kem says Prayer Vigil Until Success"
+date: 2020-05-06 08:06:52+10:00
+draft: False
+hidden: True
+weight: 330
+---
+# Prayer Vigil Until Success
+
+December 14<sup>th</sup>, 2017
+
+Gibsons, B. C.
+
+Received by Al Fike
+
+ 
+
+You are near the end of your journey together for this time, this effort. And it is certainly your way to question the next steps, to wonder what is to come. How will God’s plan unfold in your life? It does indeed require a great deal of focus and effort in the last few days to bring about these manifestations. As many of you perceive, there is a great deal of effort happening from our side of life, to bring about these gifts. We do not want to rush these manifestations but yet we realize the limitations of this material world and this great gift that has brought you all together in this way. And so we wish to exploit these opportunities as best as we can and we ask you again to keep your thoughts elevated, to be in a prayerful mode each moment of each day, to continue to express and feel Love amongst you, to desire the outcomes, as I know you do, that you so wish to have in these efforts. 
+
+Yes we’re very close, very close. Think of this as the sprinters coming to that ribbon at the finish line. You’ve put a great deal of effort towards coming to this place, as have we. And God has blessed you all mightily, given you a great many gifts, filled you with His Love, carried you in His Light and brought you to that place of peace within yourself, joy, connection with God, with each other and with we in spirit. Now that extra step to come to that place of fruition, completion, I’m happy to tell you that we are indeed very close. It will not take much to come to the completion of our journey together and to bring the results that you so desire. I would ask you to continue to pray, to bring you thoughts to spiritual matters, to go to God, to be positive in your thoughts, even to have expectancy as to the outcomes. To put all of your energies forth, all your efforts together in one focused effort. But rather than the sprinters trying to be first across the line, you must hold each other close and walk together, to support one another to the finish that is anticipated. 
+
+Before you go to bed tonight, say a prayer to God. Ask Him to carry you in Light in your sleep, that your bodies may be prepared and in the condition necessary to bring this gift of direct voice through when you enter the chamber in the morning. Do not let anything distract you beloved souls, from this very purpose and effort as you come very close. It does require a very sharp focus, a very energized focus. One that is not only imbued with Love but purpose and desire and elevated into Light. Yes one step at a time, one day at a time, one prayer at a time, you have walked along this path together and have experienced much together and many blessings have been given, much has been accomplished, many shifts within your consciousness and within your souls. Now it is time to express all of that wonderment and joy and Love towards this goal that we share. We cannot make you feel something, we can assist you in your thoughts, we can inspire you to prayer, we can instruct you as to the direction you must walk, but it is your effort, your effort, your focus, your conscious doing that will get you to that place together.
+
+And we cannot carry you every moment so that your feet and your legs become so weak that you cannot walk. It must be your commitment, the energy that you put into these efforts, your thoughts, your prayers and your desires, which will bring the tangible results. Now is the time beloveds to readily focus your efforts together, to bring this gift forward. Yes the dam is about to burst, flooding this world with Love and you must be prepared to be washed away in this flood to places of awareness and joy and Love, so intense, so beautiful, carrying you upward beloved souls, closer to God, its great energy uplifting and directing you forward. This comes as the Will of God manifests in your world and what will manifest for you will be the Will of God, provided that you are willing, that you give over to these great flood waters that are meant to carry you forth. Your souls are eager, your minds willing to accept, your desires are for the highest, your efforts bonded and harmonized together. There is nothing, my beloveds, that will hold you back. May your faith carry you over the line, for this is an act of faith, of true belief. It is of the soul, an awareness, a knowing that this can be done. This is merely the operations of the laws of God’s Creation enacted through the higher efforts, the higher expressions of the gifts of your soul and God’s Touch within and the efforts of the angels. May your faith be strong my beloveds, your prayers pure and full of intent and desire. Your Love shining bright within you and all about you and amongst you. That this dark chamber may be filled with Light that you feel so close to we in spirit and to the touch of God. That all the material restrictions melt away and this gift will seem as if it has always been with you, that we have been close, so close. 
+
+God bless you my beloveds. We walk together in anticipation and joy. May those last steps easily come. May these great gifts stay with you my beloveds, for the rest of your days to increase, to gain more power and clarity and beauty, as your souls continue to grow in His Love as your Light continues to brighten and your faith stronger and your awareness’s higher and deeper unfolding of your souls my beloveds. This is the greatest gift of all, the unfolding and awakening of your souls. May this continue to be the Truth of your life, the reality of your life. Step forward my beloveds and take your place in this pure Light, in joy and recognition of God’s great blessings upon you. Yes, we will anticipate and pray and earnestly Love together in joyful bondings of Love in efforts that are of the soul. 
+
+God bless you my beloveds. I am Seretta Kem and I am with you. The angels at this very moment are mounting a prayer vigil for your efforts. This will be made until you have success. God bless you my beloveds and may your vigil bring success to this world. God bless you. God bless you.
+

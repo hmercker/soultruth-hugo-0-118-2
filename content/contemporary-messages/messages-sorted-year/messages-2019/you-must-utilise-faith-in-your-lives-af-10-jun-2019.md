@@ -1,0 +1,37 @@
+---
+title: "You Must Utilize Faith in Your Lives"
+menu_title: ""
+description: "Seretta Kem says You Must Utilize Faith in Your Lives"
+date: 2020-10-28 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# You Must Utilize Faith in Your Lives
+
+June 10<sup>th</sup>, 2019
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+
+Yes, it is Seretta Kem. It is encouraging for us to hear you all holding the intention of taking responsibility for your own spiritual condition, to work towards greater light, higher soul condition and higher soul expressions in your lives. In this way, you build the foundations for the work that you have been prepared to do. In your efforts to serve humanity, in whatever capacity you are guided to do you build a foundation of service that will help to awaken you to further possibilities and opportunities that you may indeed open the doors to these possibilities that God will place before you. Yes, there is always more to do in order to be in greater alignment with God. There are always challenges in dealing with this earthly plane of yours and there is a continued effort to purify and bring into greater harmony your own soul’s light. 
+
+As you well know in your pursuit of God to receive this great Essence of God you continue to awaken and know and recognize your own potentials. As you reach out into the world, so the world gives you a blessing of the opportunities to serve in love and to express these soulful potentials in your life. As you continue to grow in the Light, as you continue to acknowledge these blessings from God, as you continue to see within yourself the shifts and changes of your soul and your being and expression of your being, so you come closer to that time that each of you knows within your soul that is coming, where you are able to perform your purpose and service to God in this world. 
+
+None of you are standing still, beloveds. None of you are in a state of stasis. You are progressing. You are changing. And know from your minds’ perspective that at times you do not recognize this and you feel as if there is no progress. I say to you, my beloved and beautiful friends, you are continuing to gather the Light of God’s Essence within your soul and It has its effects. It cannot be anything but this. The great power of God’s Love must indeed work within you, healing you, bringing you into alignment with God, bringing greater love into your consciousness and greater love in your expressions. This must be. This must be. 
+
+To deny this or to feel ineffectual or unloved or a sense of being lost, is not acknowledging the great blessings of God that are indeed poured upon each of you. You must utilize faith in your lives, beloveds. That sense from your soul that you are indeed moving in the direction that God intends for you. That you are indeed loved and of light, that you are indeed a beautiful soul. When you can truly embrace these truths about yourself, you will come to know great joy within you. All the frustrations and hurdles and barriers and challenges that face you in life will seem as nothing compared to the great joy you know and experience and live in your relationship with your Creator. This is true strength, beloveds. It is not hiding away from the truth. It is not avoiding the conditions that are dark within you. For you cannot do so, beloveds, given that you are willing to progress further in your lives, in your souls, you cannot hide away. You must see with clear eyes and with eyes of compassion, with eyes of love. 
+
+Yes each soul in your world is deeply affected by the human condition and you are no exceptions, beloveds. But you have found the remedy. You have found a way to neutralize those conditions and to move beyond them to a place of strength and wisdom, clarity and joy. God will not deny you this gift of joy, of Truth, of Love. God’s deepest desire is that all His children are blessed with these things and much more. It is for you to step forward into the Light always, no matter what condition you face, no matter what challenges you have. To turn to God and ask for His blessings to strengthen you and guide you and show you the way. That you know how to do so, how to neutralize the darkness, is your strength and your truth. With this knowledge you must follow the truth and you must express the truth wherever and whenever you are challenged or find difficulties in your life. 
+
+The great power of your soul, beloveds, is beyond your comprehension at this time. But as you continue to utilize and allow and be receptive to the power of your own soul, you will come to recognize its great beauty and ability to bring solutions to all of your dilemmas. For as you have prayed for this great blessing of God’s Love, so you have opened a channel between your soul and God’s Soul, and much travels through this conduit of Light. All that you require, all Truth that you seek, all blessings that you require in order to be uplifted, all wisdom and peace and Love, flows through this Channel of Light to you, for it is given because you have worked very diligently to connect yourselves with God. And in response, God gives you this blessing of a Channel of Light that reaches your soul and feeds your soul and informs your soul. 
+
+So much is given, my beloved brothers and sisters, so much is available to you, such that it is far beyond many’s reach. This blessing has come with the power of God’s Love within your soul and as each child prays diligently for this gift, so these blessings will come and enhance their inner life and their lives in this world and will develop in each soul a great capacity to serve in love. This is the power of God’s Love, my beloved friends. God has planted many seeds within you, still waiting to germinate and develop and make manifest in your lives. All that is required is given, beloveds, for this to happen. It is for you to accept and to allow all that is meant to be, all that God gives to you, to manifest and be realized in your lives, in your souls, in the beautiful expression of your beings that God has created and nurtures so lovingly and embraces with each moment. 
+
+You are His children, beloveds. We all are His children and we carry one another together do we not? We make great efforts to bind together in love and in this binding of love is great strength and great blessings for all. It is God’s Grace, His plan, His blessings that make all of this possible. We, as His beloved children, continue to reach out and receive all that God wishes to give. 
+
+May God bless you thusly, my friends. May you be infilled with His Love. May you be informed by His Touch. May you be strengthened and know a great and deep peace with His Presence and may you come to realize what a great Gift God has given you and what great gifts you are to one another. What a wonderment is God’s plan, not only for your salvation, but for the salvation of humanity. We will all work together in this great effort to bring Light to your world, to uplift all of humanity, to help, to guide and encourage your brothers and sisters to reach for Truth and Light and Love. May we continue together, beloveds, on this great journey. Together we always are and together we always will be, in the great Light of God’s Love. 
+
+God bless you. I am Seretta Kem and I love you dearly. God bless you, beloveds. God bless you.

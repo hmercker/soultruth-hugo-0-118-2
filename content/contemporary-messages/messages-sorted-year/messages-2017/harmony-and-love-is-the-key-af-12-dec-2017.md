@@ -1,0 +1,38 @@
+---
+title: "Harmony and Love amongst you is the Key"
+menu_title: ""
+description: "Seretta Kem says Harmony and Love amongst you is the Key"
+date: 2020-05-05 07:00:37+10:00
+draft: False
+hidden: True
+weight: 334
+---
+# Harmony and Love amongst you is the Key
+
+December 12<sup>th</sup>, 2017
+
+Gibsons, B. C.
+
+Received by Al Fike.
+
+ 
+
+I am Seretta Kem. I wish to use the example of this instrument to instruct you in the ways of physical mediumship which is what you are praying for, is it not, in the dark room. Direct Voice is a form of mediumship. Now this instrument prepared and was developed in the way of his particular gift of mediumship for many years, often unknowingly, but was open and prayerful and desired to serve God. When that time came for him to consciously accept and allow the gift to come forward he did so willingly. In the beginning what came through him was rather simple information. True as it was it did not involve a lot of complicated concepts and ideas and truths and explanations as it does in this day and this time. It took a while for his gifts to come forth and flourish. It took patience and perseverance. It took an enthusiasm and a desire. He prayed, *“Father, use me as your channel of truth, only truth and use me to give a message that is worthy of the angels, something that is high and in harmony, something that complements the truth of God’s Love and is in harmony with this truth.”* 
+
+So with this desire and with his prayers, his willingness, his dedication and his preparation, these gifts began to flourish and come forth in beautiful ways. You all benefit from these gifts. You are taught through this instrument many things. At times you even come to expect that these blessings of a message may come at your beck and call. So you have come to be appreciative and expectant. This is not out of harmony but it is a very human perspective, where you become dependent upon the gifts of this instrument rather than to go deep within yourselves to find the answers that you seek. That is more work, is it not? It requires more effort from you to go deep within yourselves to find the answers. For some of you the answers come when you make that effort, clearly and powerfully. You are gifted with truth within your souls.
+
+So it is with your experience in the dark room, my beloveds. You come together and you are in the light. You feel the energies and the physical expressions of these preparations for Direct Voice. You feel the Love flowing and you feel the presence of the angels. You feel much within the dark room and this is comforting and it encourages you and it brings certain expectations which is reasonable. But, my beloveds, you must draw deep within yourself a strong desire to be connected with one another in many different ways and to utilize the upliftment that is given to be drawn together in this condition in love and resonance, joy and desire for the expression of this gift.
+
+Each of you experiences something different in the dark room. Each of you continues to rely upon the gifts that you have, the perceptions that come from your minds and your soul and your interpretations of such. Can you come together to just feel love for one another and to really feel a bond of love and togetherness in every ounce of your being? To hold on to one another in this place of light and then turn your eyes to God and ask with a fervency, clear and strong, to bring this gift into your midst. When you feel that you are all experiencing this together, connected with such power and love that nothing can break that bond, that the beautiful gift that the Master Jesus gave you remains unbroken, flowing between you, allowing everything that you are to be with everything that your brothers and sisters are and together you become one in that beautiful light. In this, a beautiful metamorphosis takes place, an emergence of something quite extraordinary that comes from your energies and our energies and God’s Touch, creating the manifestation that you so long for. Yes, this is a heightened state of being, an awareness, something you are not used to, nor have experienced in any other way. So it is different. It is demanding that you open yourself so completely to one another and to God so that this wondrous manifestation may take place.
+
+Now if we were to tell you this at the beginning, you would balk at this. It would seem impossible and yet you have travelled a great distance together now. You have come to understand one another, to bond, to be in that darkened room in such a way that it feels like home. So you are ready. You are ready to come together in openness, the openness of your heart, the openness of your minds and the openness of your souls. It is not this or that, that can be discerned with your mind. It is in this state of being that is possible with each one of you in the room together. To put aside all of those other expectations and to be in complete harmony with one another, with a deep trust and faith that you will indeed flower like that beautiful flower that you saw, my beloved, all white and gold, perfect and a gift from God. You are each a part of that flower. Each one a petal. Each one beautiful in God’s Creation. As you come together with the intensity of love, with perfect trust and the upliftment of love, many things are possible and this gift will come readily and will come with ease. 
+
+Yes we challenge you, my beloveds. We say: *“Step forward out of all those conditions that have held you back and to come together, truly come together in harmony and love and we will do the rest, whatever else is required is not truly your concern.”* 
+
+Open, my beloved souls, to the gifts that God has to give you. Open, my beloved souls and see with the eyes of your soul the beauty of your compatriots in this great venture and come to recognize God’s Creation in each one. A beautiful soul that desires to serve God in this way and you will serve one another in this way. With the power of love anything is possible. With the power of love coupled with your association with we in spirit, many things are possible. It is not so difficult when you are able to overcome yourselves and be together as souls, glorifying God in love and light. Do you not feel it now? Is this so difficult? Yes you can do it. You are quite capable of doing many things. 
+
+Exercise your faith, my beloveds. Know that within you lie many gifts and a great power and light and love. Let this open to the world and with this you are well on your way to serving God in extraordinary ways, powerful ways, loving ways. It will come together beloveds, if not in these few days together, another time. God will open the doors. 
+
+We in spirit do not regret any minute we have spent with you, no matter the outcome. We have seen you grow in wonderful ways and to really stretch towards the light and be much more connected to God and your own true selves. How beautiful this is to behold. You are all of light, my beloveds, all of you within the circle are of light. Truly be this light and allow the gifts of God to flow amongst you and then you will indeed manifest beautiful spirits, beautiful light, voices of truth, angels of God. 
+
+God bless you, beloveds. May you bring this to your sleep and truly absorb and begin tomorrow resplendent in love, open and ready. God bless you. Your brother Seretta Kem continues to walk by your side and help you on your way for there is much work to do is there not, my friends, much work to do. God bless you. God bless you.

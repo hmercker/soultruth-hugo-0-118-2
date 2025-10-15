@@ -1,0 +1,32 @@
+---
+title: "The Awakening of Your Souls Brings The Message of Truth To Humanity"
+menu_title: ""
+description: "Augustine says The Awakening of Your Souls Brings The Message of Truth To Humanity"
+date: 2020-06-04 07:27:15+11:00
+draft: False
+hidden: True
+weight: 358
+---
+# The Awakening of Your Souls Brings The Message of Truth To Humanity
+
+September 1<sup>st</sup>, 2018
+
+Gibsons, B.C. Canada - Mediumship Retreat
+
+Received by Al Fike
+
+ 
+
+It is your teacher, Augustine. As our beloved brother and Master has said, you must all go out into the world to teach this truth and live this truth. For humanity is at the crucial hour to awaken and to come to its senses so that harmony may come to this world, that peace may come to this world and that love may be the currency of this world. Though every soul may struggle with its inner conditions and be fearful and ignorant and full of error, there is a light, the light within each soul that compels each one to seek God. As you walk in the world a bell tolls with your presence, a bell that says: *“Awaken brothers and sisters to this Truth that God loves you, that you may receive His blessings of Love, that your souls and hearts may come to a deep awakening and knowing of this Truth.”* 
+
+So those of you in the world who know of God’s Love and have experienced to some degree its transforming effects upon you, carry this message wherever you go. The light of your soul touches other souls. The capacities of your soul to be a channel of love flows out to many others. Even when you are sitting in your home doing idle things, you still send out this signal of light into the world. It is with you. It is always with you for it is truly a part of you beloved souls, this light, this message and this tolling bell of truth.
+
+Have faith, beloved souls, that you are doing God’s Will by carrying this message and by living this truth. You continue to intensify the light within you through your prayers to receive the blessings of the Father’s Love. So the light grows stronger. The tone and strength of this bell grows sweeter and reverberates out into the world, calling your brothers and sisters to prayer, stimulating that part of their souls that longs for God. Because of this, many reactions come from those around you because you are noticed, because there is something about you that awakens a glimmer within them. At times these responses will not be as you expect, though your intention and good will is for love and harmony. Some are intrigued, while others respond with suspicion, some with anger because you challenge the world, beloveds. You challenge the ways of thought, the normalcy of life created by mankind as so much in your world is a response to all the thoughts and conditions created by mankind. 
+
+God at this time challenges humanity to wake up, to hear the tolling bell, to understand that within them is a deep need to connect with their Creator. Because you have answered this call and walk with God, you create around you a light and message that compels others to be drawn. This magnetism is the Touch of God upon you and you must listen and feel comfortable and allow this compelling light to touch many. Do not allow your minds to restrict this. Do not judge others. Do not feel fearful of others but walk in confidence that you walk with God and that God guides you with each day. Though your outward appearance is like all others, this normalcy perceived by the mind, know that within you is something very different and very powerful. The more that you can acknowledge what it is that lies within your soul and to reinforce this reality, you will be a powerful channel of truth and light, love and comfort in this world. Through the wisdom and knowledge of your soul, through your at-oneness with God, knowing His Will, you will move in the world as an instrument of His Will and touch many souls.
+
+There is nothing complicated about this but it is your desire and choice to bring light, to be a channel of love, that makes this possible. In your acknowledgement of the truth and practicing the truth, prayer and receiving and being a channel, all of these things come to pass and not in a great struggle but in a flow and harmony, a beauty and grace that has all the hallmarks of God’s Touch. This is what you strive for beloveds. Each of you has a keen desire to be in the world as a light, to be a channel of love, to teach truth and to be truth. The more that you can release the expectations of your mind and come to know the beauty and power of your soul, the more these things will open and flourish and flow. The ambitions of your soul, which are very different from that of your mind, will be realized. For the soul in its wisdom, in its very nature, yearns to be in harmony with God and to align itself with God’s Will. With this, all the faculties and blessings, gifts and knowings within you will emerge and be expressed in all their beauty, power and glory. You will walk in the light, a beacon of light in the world, just as the Master Jesus walked and followed his Heavenly Father’s guidance and Will and was a channel for truth and love, so will you be, beloveds, given your efforts, desires and prayers to be with God. This is the natural outcome of awakening the soul - service, love, truth, compassion, humility and wisdom. All of these things, beloveds, come as you forge a relationship with your Heavenly Father and you are strong enough and clear enough to walk this truth, to be in the world in this way.
+
+May your souls awaken quickly, beloved souls. May you come to truly know yourselves and all the wonderment and beauty that is your soul. All this is so profoundly awesome in knowing God, the power of His Love and Presence with you. In this way you will be born again, renewed within and all that you have been will be transformed into what you can be and will be in the wonderment of Divine Love.
+
+God bless you, beloveds. I continue to observe your journeys, to see the awakening of your souls, to foster and encourage this and I shall indeed continue to be with you on this journey for you are my charges and I love you so. God bless you, beloveds. I am your teacher Augustine and I love you. God bless you.

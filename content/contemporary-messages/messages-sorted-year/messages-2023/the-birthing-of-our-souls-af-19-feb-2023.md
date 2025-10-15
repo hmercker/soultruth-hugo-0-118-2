@@ -1,0 +1,42 @@
+---
+title: "The Birthing of Our Souls and the Law of Recompense (Expiation)"
+menu_title: ""
+description: "Augustine talks about The Birthing of Our Souls"
+date: 2023-02-28 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# The Birthing of Our Souls and the Law of Recompense
+
+February 19<sup>th</sup>, 2023
+
+Sechelt, B.C. Canada
+
+Received by Al Fike
+
+
+
+God bless you, beloved souls. I am your teacher, Augustine. I wish to speak about the Law of Recompense (also known as Compensation) whereby every soul must atone for their actions and conditions that are created in their earthly life and within the life of the spirit. For every action has a reaction and a response in the universe because God has created an integrated universe that continues to be directive, seeking greater harmony and expressing an alignment with the truth of God’s intention and Laws. Consequently, each of you who has lived a life upon the earthly plane has also created for yourself a certain level of disharmony with God’s Laws. It is not that you have intentionally set out to do so. Rather, often it is because of the conditions of your world that such disharmony is created by the mere fact of living within it.
+
+There are conditions that have been created by your actions and thoughts that are not in harmony with God’s Laws of Love and God’s Laws of Creation. Because these conditions are real things as are thoughts, then they become a part of you. They are those fears, biases, judgments, and acts of unloving expressions that are a part of your being. These, as we have called them, are encrustations that surround the soul thereby inhibiting the soul in its true desire to be freely and completely with God. Purification is required. Releasing these conditions, those encrustations that surround the soul will bring to you what you most desire which is freedom from these things and the realization and pure recognition of God’s Love for you and the blessing of His Love within you.
+
+It is not only the mind that inhibits this. It is also that which surrounds the soul that has within it inharmonious thoughts, conditions, and energies that keep the soul bound and creates conditions that reinforce themselves in influencing your behaviour and thinking. Despite these encrustations, God finds a crack within these conditions in order to bring to you this gift that will reside within your soul for all eternity. 
+
+Within the soul that is receiving the Divine Love of God, there is a force that wishes to expand and envelope all of your being. This builds from within as you pray and receive the Love of God and is exerting its pressure upon the conditions that surround your soul. In so doing, it often forces memories and the recognition of these conditions and the pain that comes with them into your consciousness. As part of this process, receiving the great gift that God gives you, receiving the healing and the expiation that is required, you must confront and accept whatever condition may come into your consciousness to such a degree that you may pray for its expulsion from you. You may ask God to heal you from it. 
+
+There may be times in your life as you continue upon this Path of Love that such conditions will become evident and will not be a pleasant experience in your spiritual life. It will become a burden to some degree, a burden of memory, a burden that is filled with feelings of remorse, anger, conditions that are difficult to acknowledge within you, and memories that come from situations that have caused these encrustations.
+
+Yet God in His beautiful and perfect creation of the laws gives to you the gift of this realization so that you may release it. It is of the utmost importance that when these conditions come to you and you may feel uncomfortable within them that you go to prayer and ask God to heal you of these conditions so that His Love may replace these conditions with its harmonious blessing and healing. To do so consciously is the most powerful approach to this healing. You will find that these memories and conditions may come up into your consciousness without any planning or expectation of it to emerge. It will be spontaneous in response to the gift of God’s Love pushing these things forward and giving you the opportunity to release them.
+
+When true expiation happens, releasing these things, then they are never more to affect, and to some degree, control, your spiritual condition. You are truly healed from them. So, I say to you, beloved souls, accept the conditions that may come from within. Do not blame some situation or force or individual from outside of yourself that they have made you feel this discomfort, this condition. Rather, take responsibility for what is embedded within you and surrounds your soul for in order to be a redeemed soul of God, these conditions must be confronted and released. It is an unfortunate reality of your earthly plane and the lower planes of spirit. But it is something that is viable and alive within you and within every soul in the world. With the release of these conditions, your capacity to perceive God, to experience God, to experience His Love and express His Love, to be a light and to be true to the truth opens up to you as these dark conditions fall away will be greatly enhanced through expiation. The more you are able to look, you will awaken further, the true soul can emerge without these constrictions, and find the joy that it is meant to be within.
+
+How else is healing accomplished, beloved souls? It is accomplished by the Touch of God. It is accomplished by your acceptance of this Touch. It is accomplished by your recognition of those conditions that are not in harmony with love. Indeed, God gives you much at the beginning of your journey. There is a special dispensation given to those souls who are eager and who begin this journey. So, they are uplifted greatly. The conditions within the soul and around the soul are not so pressing upon them.Yet, there comes a time when that individual soul is strong enough and blessed greatly that this time of expiation must take place.
+
+Indeed, there will be many opportunities for expiation depending upon the condition of the soul. It is a great gift, a gift that comes with God’s Love for the healing is permanent and shall pave the way for your eventual entry into the Celestial Kingdom. Pray to be healed, beloved souls. Pray to be strong enough to see your own true condition. Pray that you may have the faith to go to God for that healing for God places before you a great opportunity for release from these conditions. God brings to you the opportunity to be a light in the world by acknowledging and truly expressing the way and means of your soul’s liberation from the human condition.
+
+May you find your way, beloved souls. The process is not so difficult or complicated. It is only your mind that makes it so. Rather, it is an act of faith when you go to God to ask for this release and liberation. It shall be accomplished in accordance with the power and faith that is reflected in your prayers and your desires for this healing. As you continue to heal, the openings in your soul become greater and the power of His Love to infiltrate your soul is made greater by the expiation of those conditions around it. 
+
+May God bless you on this journey, beloved souls. I do not mean to put a damper upon your prayers, rather, to continue to teach you about the journey of soul awakening and what is entailed within this journey and what your responsibilities of it are. So, you see, my beloved and beautiful students, there is much that you must do in order to truly realize that longing of the soul for at-onement with God. So I, along with all of my brethren, my brothers and sisters within the Celestial Heavens and the bright spirits of the high spheres continue to assist you in this process and uphold you in it, for it is the birthing of the soul that we are most dedicated to and are engaged within as you continue to struggle and find your way and find your bearings on the Divine Path. 
+
+We are there with you always. You are never left alone, beloved souls, and you have beautiful and bright helpers, those who love you so, to help you on this journey. We shall continue. We shall continue. May God bless you. I am your teacher, Augustine, and I shall continue to add my lessons and teachings to assist you on the journey as will many others. God bless you. My love is with you, beloved souls. My love is with you as is God’s. God bless you.

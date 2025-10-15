@@ -1,0 +1,51 @@
+---
+title: "Tests Help us to Discern How to handle Negative Energy"
+menu_title: ""
+description: "Augustine says Tests Help us to Discern How to handle Negative Energy"
+date: 2020-09-30 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Tests Help us to Discern How to handle Negative Energy 
+
+
+November 1<sup>st</sup>, 2019
+
+Punalu'u, Oahu, Hawaii, U.S.A.
+
+Received by Al Fike
+
+
+
+I have returned. I see you have a test before you, beloveds, a situation where there is no clear approach for you each want to be a channel of love. You each want to do what is in harmony with love. Yet you see that the individual with which you are concerning yourself with has a great need and will engulf your efforts together in prayer with that need. This makes for a difficult decision to keep your distance or to be inclusive and loving in the way in which she would prefer and desires.
+
+I say to you, beloved souls, to choose to love is not necessarily to take that road that is less difficult. At times it comes to a place, a decision, an understanding where negativity and darkness is rejected and love is displayed with a sense of propriety and harmony within yourselves. When you walk in the world and deny your own harmony and put aside your own ability to be in rapport with God, to be clear within your soul with a condition of light, to be in truth, and to be honest with yourselves, then you deny light and accept the will of another who is not in harmony with the Laws of Love. Though things are not always this clear or definitive, there are many situations in your life where there are compromises, where you compromise your own light through making decisions and judgments, through inviting conditions that are not of love. 
+
+This you must confront each day because this world in all its grayness and darkness continues to lure you into various thought conditions and perceptions that are not holy, true, or clear. So much of your mental energies are directed towards discerning the clarity of any given situation. At times you worry and fret, hold on to your fears and your own mistrust of your soul’s perceptions. Yet as you grow stronger in the Father’s Love, as you continue to awaken the perceptions of your soul, as the light fills and infills all parts of your soul, so the clarity comes, the perceptions come and understanding comes so that a way that is clear and in harmony becomes more obvious to your mind. 
+
+As I have told my dear instruments not so long ago, in these coming times you will be challenged and you must discern between that which is in harmony with God’s Will and that which is part of the human condition and thereby a part of your own willful condition to continue to struggle with and desire that it abates and is absorbed into the true understanding of your soul.
+
+So each day brings a blessing, a Touch of God’s Love. You move closer to that place of harmony and clarity, of truth, of peace and of joy. There are some days when you are befuddled by the conditions of this world and make a choice that is not in harmony with the Laws of God’s Love because you are human or because you assume that God will make the choice for you, that you will be guided, that you will be shown the way. But indeed without these challenges and tests, you will not grow and learn discernment. You will not truly come to understand the clarity of your own soul and that there is indeed a definitive line between light and darkness. Though the line becomes blurred in your perceptions and your thinking, as you continue to choose light, so that line becomes more obvious and straight and narrow. There is no confusion but a strength that comes from your own soul that decides your actions, that discerns the difference between that which is the human condition and that which is condition of love, the love of your soul.
+
+Yes, at times you feel anxious. At times it is difficult. At times there seems not to be a clear answer to whatever dilemma that is in front of you. This is when you must go to prayer asking God to continue awakening your soul. To infuse you with His Love so that this Love may expand and awaken all your faculties, all that is within you, all that is you. That this great integration of Truth, this transformation of the soul in Love may indeed inform every thought, every action, everything that you do in your life. Not that someone has told you, nor even a spirit has told you or God has told you what to do, but God provides you with that which you need, the implements and faculties required to discern for yourself the right choice, the road that is towards Light.
+
+So you will continue to be tested and confronted and urged towards Light. As you continue to grow in the Father’s Love so God brings you tests that are more involved and complex and challenging. For you must grow, beloved souls, if you are to be those channels which you envision and desire to be, to walk the world as a teacher, as a channel of light, as a beautiful soul. You must learn these lessons of discernment, of soul growth and Truth. It is the way that any soul must travel if they are sincere and desire to walk this road of Truth. It cannot be done for you. 
+
+But know that in the past that many of these challenges have been blocked from you. You have been protected. There are some which you have brought on to yourselves by your own actions and deeds. But now God loosens this protection so that more is able to infiltrate into your life and that you may have the opportunities to grow and to face these challenges that the world reflects in its human condition. There is so much, I know, that each individual soul desires to hide from, to not be aware of, to be within that bubble of peace and ignorance and harmony. This is a human trait. It is a higher choice to not engage in those difficult conditions of the world.
+
+Know that we would not have you drowning in negativity. We would not bring you to a place of such overwhelming contradictions of truth that you would be in great pain and suffering. No, this is not the way of God. But with any father who takes his children out into the world and shows them how to navigate and be in the world, that learning comes through experience, through challenging conditions. So you are being challenged, beloved souls, at this very moment. For some this brings distress, for others a sense of resolve, for others detachment, for others a desire to embrace and make all right with those who are in distress. 
+
+You cannot rescue every soul from their own condition. Even those who see your light and wish for you to embrace them and bring harmony to them so that they release their own sense of responsibility and understanding of how they have brought this condition upon themselves. I am not suggesting that in every case you must be detached or walk away or not to care. No beloveds, there are times when you, within this understanding of the soul, will know to go to that individual and comfort them and bring your love to them. This is doing God’s work. This is fulfilling God’s Will.
+
+There are other times when you cannot embrace someone who through their own condition will poison you and infect you with negative energies because you have invited this in. It is for you to discern between these two situations. Your biggest challenge is that of the mind that confuses these two impulses and desires and ways of dealing with the harsh conditions of the world. 
+
+So this is your challenge and your test. I ask you, can you discern at this very moment considering the situation that you are contemplating? What is the right road? If you can and you know within your soul that road that must be taken, can you decide to do so without doubt, without being talked into, as you would say, a different path and tact in this situation? You see if you continue to choose the path of least resistance, these tests will continue to mount up in your life until you are able to surmount the obstacle. 
+
+With the power of Love within your soul, that beautiful complex soul that is you, the answers lie there waiting for you to discern and to accept and to embrace. It is not that difficult. What is difficult is to be resolute in the truth where it is not polluted by your mind and your fears and your desires for acknowledgment or acceptance or recognition, rather this clarity where you rest within the embrace of God and know without a shadow of doubt the road forward, what is in harmony with Truth, what is meant to be in your life.
+
+God continues to nurture your soul. We continue to walk with you and assist you in all the aspects of your spiritual awakening and growth in the Father’s Love. You are in hands that cannot be equalled. You are in and upon the Divine Path flowing in that great river of Love. Even if you make mistakes, God will continue to steer you back to the river and your course will indeed be forward and upward unless you decide to dig in your heels and not move forward and not embrace Truth and not accept a lesson that has been given and understood. 
+
+It is always your choice, beloved souls, always your choice whether you stand for Truth or whether you continue to insist upon the conditions that you have inherited through generations that are a part of this world in which you live that are not in harmony with Love and Truth. It is easy to embrace these conditions. They are more accessible in your world. To walk the Path Divine, to truly be God’s instruments and channels of Love and Truth, this is not an easy road. But it is a road that will bring many rewards, many blessings, and much joy. But it requires your strength, your resolve, and your dedication, nothing less, beloveds, nothing less.
+
+May God bless you upon this journey. May you come to know all Truth. May you come to see within yourself that dichotomy that exists within you and within all souls who struggle for Light and Truth and Love. God bless you, beloveds. May God truly bring His Love and Light to embrace you all and infill your soul til all there is around it and within is of Light. We are with you. Our love is with you. God’s Love continues to pour upon you. God bless you, beloveds. I am your teacher Augustine and my love for you is great. Beloved charges upon the Path of Love, God bless you, God bless you.

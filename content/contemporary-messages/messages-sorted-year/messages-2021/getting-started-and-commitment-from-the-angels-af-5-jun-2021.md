@@ -1,0 +1,53 @@
+---
+title: "Getting Started and Commitment from the Angels"
+menu_title: ""
+description: "Seretta Kem is Getting Started and Commitment from the Angels"
+date: 2021-06-11 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Getting Started and Commitment from the Angels
+
+June 5<sup>th</sup>, 2021
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+
+God bless you, beloved souls. I am Seretta Kem. And so we begin on a new venture, an extension of old ventures so that we may multiply our efforts in the world and that one day we will indeed come and manifest to your brothers and sisters who are seeking Truth. What a boon to humanity this would be. What a great step forward, though it is not the antidote to all the error and darkness in your world for there will be many who refuse to believe that we are real and present. Indeed, there will be many who will feel in their hearts that this is a true sign from God, that His angels may come and speak and manifest so that they may see with their physical eyes, hear with their physical ears, and know from their minds’ perceptions that God has not forsaken them, that they are indeed loved, and that there is something far more to life than so many have come to understand.
+
+You know of our commitment and you know that we are more than eager to assist you upon this journey of awakening certain gifts and capacities that will come through prayer and through your concerted efforts to be in harmony with God’s Laws for nothing can manifest without this harmony being evident within your lives. It is important that you come into alignment with God as deeply and fully as you can. This is not a casual venture, rather, it is a venture for those who have decided and commitment themselves to God so that they may serve, that they may indeed follow the Path of the Divine Love exclusively and with deep dedication and humble purpose. 
+
+As we have told you many times, it is the power of love that will bring many miracles forward. It is the gathering of love within your souls, allowing it to transform and heal and make you a new person bringing forth these opportunities and channels. In this way you have all chosen to be a part of this venture. It is important that you recognize the depth of your choice, the power of your choice and the commitment of your choice. It will require daily effort. It will bring you upon a path that will require of you some  sacrifice, application, and in some regards heartache, for each of you is an impure channel.
+
+In whatever way you carry impurities and I see that they are many as I look at this collection of beautiful souls. It is important that you release these conditions within you. As you continue to pray together in this way, as you continue to consider your obligations here, I tell you that we will be close and we will help to facilitate the release of these conditions. This will not be an easy task for either of us, for we do not force one to look to release and allow in order to purify your souls. This is your work that is done between you and God but we will help you to see, to have insight into these conditions.
+
+Whatever way you are able to receive these insights so to be guided, we will utilize those efforts to open up the awareness of deeper things within you. For this to be accomplished, I would ask you to spend less time upon material considerations and more time upon soulful considerations. I have repeated many times that it is the state of your soul that will determine the success of this venture. The state of your soul is determined by your free will and your efforts with God. 
+
+I urge you to redouble your efforts in prayer. I urge you to consider what is in alignment with God’s Laws and God’s Truth. I urge you to consider those things that flow through your mind in the way of thoughts and emotions, that there is a need for discipline and a desire to be in harmony at all times. This is not easily accomplished upon your Earth plane as currents of darkness continue to flow like clouds through your atmosphere and influence everyone upon this Earth. To insure immunity from this, you must be earnest in prayer and earnest in cultivating positive thoughts and loving thoughts, so to catch yourself in those patterns within you that do not express light and love, whether that be towards yourself or towards another. It is important for you to recognize these old patterns. 
+
+We do not criticize you, beloved souls, but we merely point out the barriers in the way of success so that you are well-informed as to the depth of commitment that you make here. I wish for you to consider what I say seriously. Are you ready and willing to take on this challenge for in the beginning of any group such as this, the greatest challenge is to forge an alliance together in harmony, to forge an alliance with God with great depth and power, to forge an alliance with us through the subtle insights and gifts of your soul? 
+
+There is much work to do, much work indeed. It is not that you come together in a simple prayer and seek simple answers for I tell you there are no simple answers in this venture. It is a very complex matter. It requires a great deal of commitment from we in the spirit world to come to you, hopefully with such a strong rapport that we may work diligently and productively in order to put within you the capacity to be a channel in what you call Direct Voice. 
+
+I urge you to start upon a program in your own daily life wherever you are in the world to monitor your thoughts and your actions and your emotions, to put aside judgments,  negativity, fears and that sense of bereavement, that you are not loved, all of these things that a soul may harbor within the material mind. These things must be released so that when you come together in the flesh, and indeed you will do so, that you come together with great joy and anticipation and that much of the work in releasing  barriers will have already been accomplished before this meeting point. In this way, our time together will be very productive indeed. 
+
+I do not wish for you to be naive but to understand the seriousness and depth of this commitment. It is not for the faint of heart, as you would say, for there are great struggles upon the road. Much can be accomplished by those who are prepared. If in one day, you feel you have failed in your preparation, I urge you not to condemn yourself but to have compassion and to realize that tomorrow is another day and another opportunity. 
+
+We do not intend that you sense you are engaged in a process that cannot be done or that these tasks are impossible to perform perfectly. This is not how we perceive the journey that we are taking. Yet indeed, our expectation is that you will try to succeed in these efforts. I know that many of you live your life with these ideas and expectations in mind. It is not different in as much as your efforts are concerned. Rather, I wish that the intensity of these efforts may be greater, as the intensity of your prayers may be greater for it is in the effort that is given that the corresponding results exemplify what is done.
+
+Beloved souls, you are all loved by God. You are all loved by us in the Celestial Kingdom. Each of you will be assigned a beautiful angel by your side in order to assist you upon this journey. You will come to know this angel and they will dedicate themselves as you have dedicated yourselves to this great venture. This is a great blessing from God. Though you have your angel friends and those who work with you, the individual that is given and remains with you for this particular purpose is another gift given and a blessing upon you.
+
+Yes, we have much to accomplish, beloved souls, but I’m glad that we have made a start. For those who listen to my words and feel that they cannot commitment themselves to this depth and degree and wish to remove themselves from this venture, I urge you to do so. There is no judgment here. There is merely the encouragement to move forward and also that sober second thought of understanding that this commitment requires much from you and possibly at this time, it is too great. But I do not see here those who are unwilling for you all are. Otherwise you would not be here together. 
+
+Unfortunately there are often in life circumstances that predicate a barrier or a situation that disallows a harmonious flow of progress towards our goals. For some this may be a double-edged sword, one which requires a great deal of effort to come together in this way, to be focused upon their thoughts and efforts, to be willing to sacrifice this time and energy towards our venture. It is completely your decision, beloved souls. I know that if you search your heart, you will come to realize what is right and in harmony for you. 
+
+May God bless you upon our journeys together, upon this great venture towards light and truth, towards service and love. We will step forward and move forward together. None shall be left behind and all shall move together, arm in arm, as we walk upon this path where God will bless our way and light our way with Truth, with many blessings that will help facilitate our goals and these efforts.
+
+You will find that in these times together and through this process and journey that we take, you will be deeply blessed, deeply blessed, and you will find insights, experiences, a sense of blessing and grace that you have not experienced before. For those of you who have been upon this journey for some time, I say to you that there is much more that is to come. For those of you who have a great desire to begin this journey as a true participant, you will indeed be greatly blessed and much will come in the stead of your efforts. 
+
+May God bless you, beloved souls. You are all precious to us and we will continue guide you. Our love and gratitude for your commitment is great. You are still fledgling souls upon a great journey, but indeed you have made powerful choices, wonderful choices towards light. In this way, God blesses you deeply and you walk more fully upon this Divine Path and will continue to do so. As long as your desire for the Truth to open your soul to God’s Love is true and your commitment to do so is a priority, then all that we do here together will reflect wondrous joy and harmony and light. 
+
+You are blessed, beloved souls. You are blessed and loved. I am your Seretta Kem and I love you dearly. God bless you. God bless you, beloveds.

@@ -1,0 +1,36 @@
+---
+title: "Q&A: What is Spiritual Light?"
+menu_title: ""
+description: "Josephus answers Q&A: What is Spiritual Light?"
+date: 2021-01-04 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Q&A: What is Spiritual Light?
+
+August 31<sup>st</sup>, 2019
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+Dearly beloved children of God, I come again, I am Josephus and I wish to speak about light. We ask you to bring light into the world, to seek light, to express light. I wish to speak of this quality, this component and energy of the world and of God’s Universe. As I have said, love infuses all. Where love is present, there is light. Light is an indicator of the element of love in the universe. Love and light exist hand in hand. Light is a reflection of love. Light is the expression of love. Light is that which is opposite to darkness. Light is that which is in harmony with the Laws of God’s Creation. So harmony and light go hand in hand. Harmony brings light. Light affects harmony and brings to any circumstance, situation, element of the universe, the component of harmony and light. 
+
+In your world there is both light and darkness and there are some who surmise that this is God’s Plan, that indeed there needs to be both in God’s Creation, which is your world. I say to you that there is indeed both, but it is light that reflects the presence and workings of God and often darkness is the result and reflection of the presence and workings of humanity. For when individuals seek to contravene the Laws of God, darkness is created. Inharmony, no matter how subtle or slight, is born from these actions and thoughts that are inharmonious with love thus creating darkness. 
+
+When a soul is compelled to express love, to be in harmony with another soul, then there is light. There is light and that light attracts greater harmony, greater light. The Laws of Attraction come into place responding and interacting with the environment, the reality of your life and all life. So light then becomes a force in the universe that ensures that all workings and expressions of God’s Creation come together in harmony and within the workings of light is love. 
+
+God has infused all of His Creations with love. Not the Divine Love of which we speak which is the Essence of God, but it is a quality of love that powers the universe, that brings the act of Creation to reality and fruition. Without harmony, the act and expression of love in the universe will not bring fruition and completeness. Consider this, my friends, consider the power of love coupled with the power of light bringing harmony. This is a Spiritual Law that is expressed everywhere in God’s Creation, in all of the universe. Whether this be the great powers of revolving galaxies or the opening of a flower, all is dependent upon these aspects and elements that God has put into place in everything. An atom cannot spin without love. Creation cannot happen without light. All is expressed in God’s intention which is love and light, harmony and expression. 
+
+So as you continue to walk upon life’s path, everything that you do will either create harmony and light or disharmony which is the absence of light. This, my friends, is an important consideration. As walk in the world you are empowered with free will. You are empowered with the ability to create either light or darkness, to bring love or to bring that which is not of love. For the most part humanity does not understand these Laws of Creation and fumbles along in their lives misdirected by thoughts and appetites, deeds and needs within them that often brings a lack of light and harmony, love and grace. Yet each soul has this potential. Each soul can create the conditions that are favorable for love, light and harmony to exist together. 
+
+So we come to you to tutor you on these ways and means to bring light and harmony into your own life, to understand the power of love, to be in the Grace of God. When we ask of you to be a channel of love and light, we are asking you to be in harmony with God’s Creation and to seek out the gift of the Essence of Love that God wishes to give to each soul, empowering the soul to create light and to express love. In this way you attract more light and you draw to you love. So the expansion of this condition within you and around you continues, as you choose these elements that are the building blocks of the universe and you choose to expand and bring within your soul great Love and great Light. Thus the power of your presence, the effects of your soul in light, the ability of your being to express itself in this world becomes exponentially stronger as you attract the Divine Love within your souls thereby expressing Light and Love. 
+
+It is very simple, my friends. This is not complicated mathematics or formulae that mankind devises to express the Laws of Creation, of physics and all of those elements in the world. It is simple: draw to you love, love creates light, light draws more love, and love draws more light. So you expand your countenance, your being in this simple way, as God continues to bless you and your desire for this blessing continues to bring its blessing awakening your soul, empowering your soul with light thereby bringing all the elements that you are and all the elements that are within your soul to a point of awakening, of enlightening your inner self. 
+
+So you see, my friends, to seek love, to express love is to build light and to awaken light within you. This is what must be in your world. If you are ever to counteract the darkness of your world, those conditions built by humanity as it continues to choose that which is not of light, you must build within yourself a great condition of light and love. It is your choice. We have shown you the way. We have given you all that you require to do so. But it is your choice. It is what you are entitled to express. The truth is not complex. It is simple. Though indeed for many of you who are ruled by your minds, you continue to assert ideas and thoughts, conditions within you that you have obtained through many years of existence in this world that are not in harmony with light and love. So you are challenged. So you continue to struggle with this very issue. Though it is simple, it is powerful in its effects upon you. Each moment is a choice and each thought has its effects. Each action has profound effects upon your being. So you are empowered with the responsibility for yourselves to make this choice, to walk a path of light or to stumble, as so many do, upon a path of ignorance that lacks the simple truths and understandings that come with the soul that is awakened in light and love. 
+
+May you choose well my beautiful friends. May you come to understand the power that you carry that will and can create light, that will and can bring to you great blessings and great light. It is your choice. God gives you so many gifts and the gift of free will is indeed a powerful gift reserved for His children who possess a soul and within that soul, great potentials and possibilities of expressing light. 
+
+God bless you, my friends. I am Josephus and I am happy to come to you once again to speak in hopes that you may garner some truth and express and implement these truths in your lives. God bless you. God bless you my friends.

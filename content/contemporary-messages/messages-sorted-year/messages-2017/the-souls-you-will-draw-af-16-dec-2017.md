@@ -1,0 +1,30 @@
+---
+title: "The Souls You Will Draw To Work Together"
+menu_title: ""
+description: "Elijah and Isaiah talk of The Souls You Will Draw To Work Together"
+date: 2020-05-11 09:06:52+10:00
+draft: False
+hidden: True
+weight: 330
+---
+# The Souls You Will Draw To Work Together
+
+December 16<sup>th</sup>, 2017
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+ 
+
+Children of God hear me. I am the prophet of old, Elijah and I come to speak to you about your future. You carry a gift with you my beloveds, a powerful gift, it continues to gestate within you and will be borne upon the winds of change of this world. For God has impregnated you with a gift, a gift to help humanity in the coming times, a gift that will bring wisdom and Love, strength and a new sense of purpose to humanity. You each carry this gift beloved souls. You each have a role to play in the unfolding of God’s plan for humanity. And so God has touched you deeply beloveds, He carries you forward. Though you have come through many trials and tribulations, you have asked many questions, you have sought many answers, and much of this comes from the outpourings of the your mind seeking Truth from God in this way. Yet you have progressed beyond this kind of knowing to a new state of understanding, a new way, the way of the soul. You now will bring this Truth, this new way of being in the world to your brothers and sisters, for you awaken beloved souls. You have shifted from that place of the mind. That place so revered by mankind and so understood, yet is mired in error and misunderstanding. You have gone beyond this place to a place of knowing, of being in harmony with the laws of God that have come about with the blessing of His Divine Love.
+
+You must adjust beloved souls to this new way. You must carry it into your lives and live it with passion and wisdom, with strength and Love, seeing and recognizing that new part of yourselves that has emerged with these many blessings from God. And in this recognition, will come the gift, that gift that you so desire. You will move in the world beloved souls as these great changes come and you will give to your brothers and sisters the answers so that they may understand why God has placed His hand upon this world and brought deep change, a great blessing, so that all of His Creation may live in harmony and peace.  
+
+You carry many gifts beloved souls, you carry a great gift and these gifts God will use, he will bring forth in times of need, in times of opportunity to touch the lost souls in this world. You are newly awakened beloveds, you scarcely know your own new selves. And yet you feel that awakening within you, that newness, that tenderness and you will come to express this with strength and humility, grace and wisdom. You are the vanguards to a new era and the expression of humanity in this world. You have a great task ahead of you beloved souls and do you not think that God will equip you with everything that you require to bring you this message, this new way, this message of Love to humanity? For He will and He does and He has done. He has brought many gifts to you, many gifts, powerful and beautiful, clear and resplendent in Love. Come to know yourselves beloved souls. Come to know yourselves and to express yourselves in harmony with the Truth, in harmony with your awakening souls. Let this be your expression, your mark upon this world and all else will follow and be a beautiful adornment upon your being, these gifts beautiful and a true expression of God. As the old ways of mankind crumble and fall, your vision will become more acute, your understanding deeper, your capacity to touch many souls will come to the fore and you will see with the eyes of your soul. You will know with the knowing of God’s Will. You will be in that great river of Love and nothing will stop you beloved souls and nothing can, for God has put His Hand upon you and given you the opportunity to serve Him in grace and Love in the power of Love.
+
+Accept your destinies beloved souls. Have faith and trust in what God shall bring forth through you and in your lives. You have been anointed by God and you shall know His Will in your life. You shall express His Love in beautiful ways. There is no turning back beloveds, merely moving forward step by step, day by day. Each day is more powerful than the last. Each moment in grace and Light is more beautiful and the closer to God you step. The world will be laid at your feet beloved souls. You will step in grace and express Truth with every word through your lips and God will bring His manifestations and miracles through you and through all the beautiful souls that desire peace and Light for this world. Those who are able to release the conditions of their minds and the human error and be humble in the expression of God’s Will. Those are the souls that you will draw into your lives and you will work together for the good of mankind and within the harmony of God’s Will. 
+
+Much is coming as you well know and the opportunities will increase day by day as these great changes bring also wondrous opportunities and expressions of your gift. The energies that God brings to this world will make expressions of these gifts powerful and clear. You walk within the Will of God now my friends, this is your life, this will be in harmony with His Will. You are blessed and you will know great Light. You will have the power of the Love of God within you and all will be expressed in accordance to His Will and the rhythm of His Time and the glory of His Creation. All will be given and all will manifest within His plan.
+
+You carry this gift beloved souls, do not doubt this, you are blessed. I am Isaiah and I bless you beloveds in the holy Light of God. His Holy Spirit descends upon you. And you are blessed. God bless you.

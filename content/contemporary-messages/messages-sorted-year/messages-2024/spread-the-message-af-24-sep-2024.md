@@ -1,0 +1,36 @@
+---
+title: "Spread the Message Far and Wide"
+menu_title: ""
+description: "Luke says Spread the Message Far and Wide"
+date: 2025-02-10 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Spread the Message Far and Wide
+
+September 24<sup>th</sup>, 2024
+
+State College, Pennsylvania, U.S.A
+
+Received by Al Fike 
+
+Friends, I am Luke. I am sure there are times when you have considered our part in how connections and relationships fall together in this great effort to bring the Truth of God’s Love to the world. For every individual on the earthly plane that makes an effort, a commitment to work toward these goals, there are a thousand angels who are making equal effort, if not more effort, to help bring these goals to fruition. In this frenetic world of yours, having sufficient inspiration and impression upon an individual takes a great deal of effort. 
+
+We speak of the world as being a dark place, but within the darkness there are lights. There are individuals who are seeking. There are individuals who have created a relationship with God, just as you have. But to assist them, to help guide them toward a place such as this where there is unity and a common understanding together, takes a great deal of effort indeed, many stages, many steps in order to bring that individual into contact with you and with others. 
+
+This is why having many outlets, many opportunities for an individual to make connection is important. For there are predilections and desires within each individual and we must utilise those things in order for them to travel a road that will lead toward connection, will lead toward an individual or a group of individuals whom they feel comfortable with. Several have spoken how they have held back from making that crucial step of saying, “I am here and I wish to join you.” This is a common response. So, many sit in the wings watching, observing, assessing. Of the many who are in that position, there is a small percentage that actually follow through and say, *“Yes, I am willing. Yes, I wish to be with you. I wish to pray with you. I wish to communicate with you.”*
+
+We must cast our net wide, beloveds. For there are many fish in the sea, so to speak. But how many are captured into this web of truth, this beautiful light that will indeed fulfil their soul’s questions and desires? But often, it is the mind that resists and is frightened. So, we make this effort. We pray for each individual who may have an inkling, a desire to reach out. In this, they ignite the Law of Attraction that brings us close. In us coming close, we exert a measure of influence, always careful not to circumvent free will. For we respect free will, but still try to open the doors for communication, for connection. 
+
+It is important that each of you continue to be open, each of you continues to broadcast your light and to reach out to others. For we cannot do this alone. We require your compliance and your desire to be a part of this great effort. As you continue to reach out, as you continue to grow in the Father’s Love, as you continue to grow in wisdom and light, you become a great beacon drawing in others, drawing in those who are curious, those who feel a desire and are willing to step forward, at least for the moment. But in that moment, if there is no one there, then who will answer the call? Who will be the instrument, the catalyst, the channel of light and love in the world? 
+
+So, I beseech each one of you, beloved souls, to step forward in whatever way that you can to use your gifts and creative skills to reach out to others. Each of you are unique in your personalities, in your abilities, in your gifts. So, you become a precious part of this great network of light. It is up to you to choose to do so. For without that choice, then there is a tremendous gap between our efforts and the desires of those who are curious. We may come to influence, but where might that individual go to affirm in a more tangible way the truth of which they seek? 
+
+Indeed, it is important that they reach out in many ways to read and to understand the truth that is given by our brother Jesus and others. But there must be more steps involved. The individual may be strong enough to pursue this on their own, but it is your nature to be a part of community. It is your nature to reach out to others. So, when you are available, you are a presence. When that other individual reaches out, then you are doing God a great service, and indeed, you are doing yourself a great service. For when you allow yourself to embrace another in love, to bring truth to another in your simple words, in your prayers, in your example, then you are benefitting just as much as that individual who seeks. 
+
+Have humility, my beloved friends, and know that those who are seekers come from what you may consider low stations in life and high stations in life. It is the entire spectrum. Be open to each individual no matter how their life is at that moment, what their priorities are, what their history is. Would you reject them if they did not comply with your expectations and your ideas as to how a true seeker could be and should be? Be humble and be loving. Accept everyone and give, if you can and are inspired to do so, the Truth of God’s Love to them. In this way, you are deeply blessed, beloved souls. In this way, they had been given a choice, an opportunity to choose. Though they may not choose the way in which you would like and expected them, still the truth has been seeded within their souls and you have done your part if that is all that happens in your interaction. 
+
+Much can come of this. Indeed, as your numbers grow and the individuals who come exercise their skills, their talents and their gifts, you will see that you will spread far and wide that net and capture many within it. Not that they will feel that they have been captured, rather they will feel that they have been found and that they have found something precious, beautiful and wondrous. That is the truth. Their souls have found their mark, their desire to reach out for truth and to find a way to live truth. You may be a crucial step for them, that connection that is forged, that opportunity that is given. I ask you to be of service to God, be of service to your angel friends and most of all, be of service to your brothers and sisters. For in this, comes great joy and great fulfilment. 
+
+My beloved friends, continue on in your efforts in service, in your generosity as you step forward in love. We will be with you, upholding you and assisting you in your efforts. God will have His Hand upon you and you will feel that strength, that love, that joy permeate you. We thank you for your efforts to date. I know that you realise that there is much more needed and much more that will come. We gather together in this place to affirm this, to affirm one another and to strengthen each other as you pray together and seek out God and His blessings upon you. God bless you, beloved souls. I am Luke and my love is with you, always. God bless you, intrepid, beautiful servants of God.

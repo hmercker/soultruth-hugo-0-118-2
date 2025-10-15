@@ -1,0 +1,57 @@
+---
+title: "Call to Action! We are All Deeply Needed in God's Plan"
+menu_title: ""
+description: "Orion gives a Call to Action! We are All Deeply Needed in God's Plan"
+date: 2021-12-11 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Call to Action! We are All Deeply Needed in God's Plan
+December 4<sup>th</sup>, 2021
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+
+My friends, I am Orion, your companion on the road to greater soul awakening and enlightenment. We continue to help you and assist our angel friends in establishing the foundations and truths that are required in order to bring this great shift of awareness and consciousness into you. We do so as God’s servants for it is God that orchestrates your journey of the soul. It is God who orchestrates the awakening of humanity upon your Earth. So, we are mere servants in this regard. We bring those blessings, capacities, gifts, and technologies that will help you upon this journey. We open up all that is within our treasure trove of gifts to you for the time is short, my friends. The time is short and the need is great. 
+
+If we had the leisure of time, then we would not be so intent and intense in our efforts. But indeed, as you can already perceive, the very nature of your world is changing and much more is coming as you continue on this path, as the world continues on its trajectory, a trajectory that is for the most part determined by humanity and its capacities for free will and decisions which affect your world in profound ways. 
+
+The thought atmosphere of your world continues to infiltrate and poison the atmosphere of your world with dark thoughts and fears, conditions, actions, expressions that are contrary to God’s laws. This condition has become so potent that indeed interventions, like what we are offering as well  as other efforts, are needed in order to neutralize these conditions and to give humanity a fresh start, a clean slate so to speak. 
+
+Because of the knowledge that humanity already has and the capacities and gifts of humanity, this restart of civilisation will be quite quickly established considering the conditions that are in play at the moment that will enforce a deep shift and change in the way your world is and the way humanity is within the world. Without this recalibration, humanity will continue to move upon a trajectory that will bring much destruction and disruption to the world. 
+
+God will not allow humanity to destroy this world or to destroy itself. So, great interventions are taking place at this time in order to redirect humanity with a more positive and light-filled approach. In order to do so, humanity must awaken to what  is at this time, great deprivation and darkness that is prevalent. Every heart must be opened. Every mind must come to see. Every soul must yearn and feel a desire to reach up to something that is much higher than the earthly conditions.
+
+Since humanity has free will, this will not be easily accomplished and requires severe measures. It is not that God desires for humanity to suffer for this has never been and never will be the case. But God allows humanity free will. As humanity exercises these gifts of free will, so they make choices that are either toward light or toward darkness. Often, it is an apathy, a neutrality that allows the slide toward darkness. 
+
+Each of you and all who are willing, all who bring light to the world, all who aspire for the world to be healed and awakened, filled with joy and harmony must summon the desire, the courage, the willingness, the joy, the love that will help facilitate this healing process. It will take a great deal from you and from many others and from all of us to help change the course of history. The momentum that humanity carries toward darkness is incredibly powerful. The countermeasures toward this momentum must equal and surpass this.
+
+So, we urge you on. We bring what we can, the tools and blessings and light and support and love that will help sustain you, but not just sustain you but to uplift you, to bring you closer to that place of purity where your intentions and your priorities and thoughts, deeds and longings are more in alignment with God than with humanity. We work ceaselessly, all of us. Not just your friends whom I represent but all in the spirit world and even in the world of flesh are working diligently to bring about a shifting of consciousness to humanity.
+
+We rely upon eager souls like yourselves to forge ahead, to seek greater enlightenment, to welcome the shifts of consciousness and understanding that are necessary in order to awaken humanity. Will you be the leaders, my friends, rather than sit and pray and seek the gratification that comes with God’s Touch solely for the purpose of your own upliftment? Or, will you step beyond this place of self-gratification and work with us and work with the many and work with God in order to help bring about this great shift of consciousness?
+
+It requires your focus, my friends. It requires much from you, much in the way of thought, much in the way of deed, much in the way of prayer, much in the way of allowing your souls to open, awaken, and to release those conditions which hold you back. The patterns of passivity are great within human consciousness. The vast majority of humanity seeks comfort, safety, peace but does so creating around them barriers and walls that they feel will bring them the security and safety that they seek. Yet, we ask of you the opposite, to tear down the walls, to tear down those conditions within you that are walls, and to open yourselves up to light, to love, to peace, and to truth so that you may step forward in confidence and ability with acuity of your mind and soul working in harmony to bring the truth to humanity, to enact the truth in your own lives, to be a light, a true, pure, and beautiful light in the world.
+
+Are you able to remove that cloak that you feel brings safety to you but is, in reality, shabby and tattered and ineffectual as you continue to walk upon this path of light and love? Yet, out of habit you cling to these conditions, these thoughts and patterns. It is your comfort, this cloak, yet, it must be released. You must be brave and forthright and say, “I shall not sustain these patterns any longer. I shall not be fearful. I shall not be judgmental. I shall not see the world through eyes that are clouded in error and ignorance”, and to ask God to open your eyes, to awaken you, to bring you to truth, to bring you into greater harmony with His laws, to bring His great Essence of Love, that which will sustain and awaken your soul which will in turn awaken all of you.
+
+I urge you, my friends, to take this journey as the journey of your life, the journey that is of the utmost importance, the journey that God wishes for you to take and to uphold in your consciousness with every moment because without those who are dedicated in this way, then our efforts will fail. Our efforts, all of our efforts, will not bring about the desired results.
+
+I know I speak very seriously to you today but as I see your world continuing to be shrouded in ever greater darkness, we have great concern. We have great concern for your future. It will take not as many as you envision to step forward to change the world. But those individuals must indeed have sloughed off all those conditions that are not in harmony with love, must be in the purity in light and joy and love, must have the knowledge, the gifts, the capacities to speak the truth and manifest the truth. 
+You come once again to pray for the gift, what you call the Direct Voice. So, we come to assist you in this effort for indeed, if this gift were open and used in the way it is intended, it will help to bring great shifts to humanity, will help humanity to see the wider universe and to see the greater truth that is always predicated upon the power of love. My friends, continue in your serious and diligent efforts to walk the path of light, to seek to be those channels of love and light that you so desire to be.
+
+You are not far off from your goals. But often, as you continue in your momentum and your light brightens, so the dark forces of your world make greater effort to slow you down and stop you if they can. Be vigilant, my friends, be vigilant of all that which creep into your consciousness, that you are well aware is not of light. Do not allow the negative forces of your world to derail you, to make you impotent, to diminish your light. You are responsible for your own inner condition. You must take this responsibility seriously. You cannot be one way for one moment and another way for another moment. There must be a consistency and an upward trajectory toward light, toward greater harmony.
+
+Indeed, in your earthly plane, this trajectory is not smooth. It is a bumpy road. Yet,  each day brings its opportunities and possibilities. You will find yourself continuing to grow and awaken. You will find that the help that is given is tremendous in scope, powerful in its protection and light. But we cannot do all for you, my friends. You must do for yourself, to take the discipline required seriously, to continue to put aside those dark thoughts, that sense that you are inadequate or that your life is inadequate. Indeed, God provides all for you, my friends. God provides everything for you to live a good life. 
+
+May you see it from that perspective. May you be joyful in this perception. May you come to know the wonderment that is you and the wonderment that is this gift of life given to you. You may live in the light, my friends, every moment and every breath but it is for you to choose. It is chosen with every breath. So, I urge you on in your efforts and prayers, in your thoughts and deeds, in all that you do to help bring the healing to your world.
+
+God needs you as His powerful channels, clear, beautiful channels of love, of truth, of light. This can be and shall be, provided you are in alignment with God’s Will and the beauty of His Love. We are all brothers and sisters walking together. I do not say these things in order to judge you or for you to feel judged. Rather, to open your eyes to your own powerful commitment toward light and what that entails.
+
+May you see clearly, my friends, and know from the very depths of your soul who you are and what God wishes of you and what you desire of yourself. May that deep purpose continue to flower and open in all of you and do so with the swiftness and efficiency that will make this journey efficacious and powerful. We are all God’s children and we are all here to be in unity and to help one another upon the path.
+Know that you are never alone, that you have indeed much support, greater than you can imagine, my friends. More is coming. We build the momentum toward light. May you continue to face in this direction, to choose this, to be in alignment with it. Our love is with you, my friends, truly with you. We desire to help. We desire that your world may be healed and in light. 
+
+May the blessings of the Creator of the Universe continue to infill you with His Love and awaken you in light and truth, that joy may be your reality, that truth may be what you carry as a flame in the world, that love may emanate, infiltrate, expand outward in all that you do and all that you are.
+God bless you, my friends. I am Orion. My love is with you all. God bless you.

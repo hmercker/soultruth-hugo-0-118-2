@@ -1,0 +1,32 @@
+---
+title: "The Mind is Limited but the Soul is Unlimited"
+menu_title: ""
+description: "Simon explains The Mind is Limited but the Soul is Unlimited"
+date: 2020-08-15 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# The Mind is Limited but the Soul is Unlimited
+
+June 25<sup>th</sup>, 2020
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+
+
+I am Simon. Many of you have come here because you are curious and you desire to find greater truth. Within you is an intention and a need to explore the spiritual truths of creation, of your world. So you come with an open mind, you come and you desire to know how to create a life for yourselves that is more spiritual and more in harmony. So this intention of the mind continues to bring you to many different ideas and concepts of truth and in this you must discern for yourself what is true and what is not. And in this pursuit of truth you are affected by those past experiences and biases and mental concepts that inform your understanding of the information that is given. 
+
+We of the Celestial Kingdom who have souls that are redeemed by God's Love see truth very differently from this form of perception and understanding, because we have found Truth through the awakening of our souls with this gift that is called Divine Love. So much of what you understand as truth is a construct of your mind and continues to inform your understanding and your perception of truth. Here we have before you a practice that will bring truth in a different way. When one prays for the inflowing of the Divine Love, when one opens oneself to God, the Great Source of all Love, then the faculties of the soul, the capacities of the soul to see deeply and fully the Truths of God’s Creation, there is a deep shift towards the soul’s feelings, perceptions and understanding. They are different from the mind; they are deeper. These perceptions of the soul and gifts of the soul may receive information and Truth and experience many things through these capacities that the mind cannot. The mind is very limited. The mind is linear and has its own capacities and abilities to deduce various things and yet cannot entertain this wider scope of understanding and experience that comes with its awakening with the Divine Love. 
+
+God has many Truths to give to each one of you. They are not conveyed by someone's thoughts and explanations, they come as a gift to your soul. Powerful and real Truth of the spiritual is a soulful experience. It is not truly of the mind, although the soul has its own mind and its own capacities of understanding. Those of you on Earth generally will experience a soulful Truth through your minds, your material minds and therefore this is an interpretation. As you continue upon the progress of the soul these understandings and experiences will become clearer and more concise. You will find yourself engaged in a different world, a world that is of God and not of man. In this difference you will realize that it is the soul that is the reflection of God that in time gives to you the capacity to understand God and all of God’s Creation, all of God's Laws and all of the universe. This journey of the soul awakens a great journey of understanding, of knowing all that is in the world and all that is in the universe. So I would impress upon you, beloved souls, that the mind is limited in its capacities to understand truth, but the soul’s capacities are unlimited; only limited by its development which comes with the inflowing of the Divine Love, the Essence of God that awakens the faculties of the soul. 
+
+So few in your world understand this Truth. So few in your world are willing to venture beyond the capacities of the mind into the deeper understandings of the soul. So few in your world are even willing to entertain that they may have a relationship with God, or they believe that God is within them already and that all that is of God and these faculties and elements of God are within each individual. This unfortunately is not the truth. For the truth of God, the existence of God, the elements and faculties of God, are so beyond the capacity of the human mind to understand, or even the human soul to understand, that it is folly to believe that within you lies all of this. Instead you have a gift, a gift of the soul. And within this gift, this reflection of God, are all the capacities of which I speak; these abilities to understand Truth, this capacity to love, to love deeply and to know God beyond the measure of the mind to the true wonderment and understanding of the soul. So we encourage you beloved souls, you of Earth who continue to believe that it is your abilities of the mind that will bring you to truth, that this is only one avenue and one aspect of understanding Divine Truth. 
+
+As you inch closer to God, as your faith in God increases, as your relationship with God widens and deepens through this gift of Divine Love, you will see that what I say is true. There is so much more beloved souls, so much more than what you could possibly imagine. In this journey, which is informed by Love, you will come to know such wonders, such depth of understanding, such joy in experiencing your relationship with your Creator, that that which you have invested with your mind will seem paltry compared to that which your souls may come to understand and experience. 
+
+Beloved souls, know that each individual who ascribes to receiving and practicing this simple prayer to receive Divine Love will have an Angel by their side, will know the upliftment of God’s Touch, will begin a journey like none other which is far beyond the concepts of your mind, going deep within your soul, a resonance and joy will grow because you have found the way of the soul. In this way of the soul you will find all that your soul desires, all that is of Truth, all that is of Love. May you be blessed by this great blessing of God's Love. May you come to know that true and inner self that God has implanted within each one of you that is yearning for life, to be fed with Love, with God’s Love, and awaken thus in the great journey of the soul. 
+
+God bless you beloved souls, I am Simon and I am happy to speak to you today of these Truths of the soul, these Truths of God’s Love. God bless you. God bless you beautiful souls. My love is with you.

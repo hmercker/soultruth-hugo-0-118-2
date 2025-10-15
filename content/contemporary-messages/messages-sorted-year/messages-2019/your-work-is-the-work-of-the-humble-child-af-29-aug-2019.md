@@ -1,0 +1,34 @@
+---
+title: "Your Work is the Work of the Humble Child"
+menu_title: ""
+description: "Matthew says Your Work is the Work of the Humble Child"
+date: 2020-12-29 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Your Work is the Work of the Humble Child
+
+August 29<sup>th</sup>, 2019
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+Beloved souls, I am Matthew. You have speculated and spoken about your future, about your instrumentality and the time to come where your hopes and dreams are that you may fulfill the Will of God and bring the Love of God to humanity. Indeed your souls long and yearn to bring Truth, not only to yourselves but to all. This Gift of Truth, this Gift of God’s Love, is an important expression in your life and your desire is to live this Gift, this Truth, to its fullest. You have a great ambition to shout this Truth to the rooftops, to spread this Truth far and wide, to bring this Truth to humanity. 
+
+My beloved brothers and sisters, it is important that you recognize that God has a plan and that that plan will indeed bring Truth to humanity. It begins to seep forward like water seeking the path of least resistance. So the Truth of God’s Love seeks those places of least resistance, seeks those souls who are open to receiving this Gift. In many ways you are assisting in this flow of Love. You are making available to your brothers and sisters the Truth, the possibilities of this Truth to touch many souls. Yet in your minds, you feel that this effort that you make is paltry in comparison to the need that is in the world. But you see, beloved souls, first those places of receptivity must be filled, must be blessed within your world, igniting the souls that are yearning, that are waiting and longing, bringing a vigor to their souls, bringing life everlasting to each one that yearns. Then they in turn are strengthened and ignited in the Truth. They in turn bring greater possibilities, touch others who are receptive. So the Truth is kindled. Its flame from one to another, one to another. In time the power of this becomes an exponential force that covers the Earth. 
+
+But indeed, you are impatient. You see the suffering in the world and you wish for this to stop, that there be Light instead of darkness, Truth instead of error, love instead of anger and hatred, judgment and all forms of negative human behavior. Beloved souls, you are strong and you are faithful. In your own time and in your own ways and means and presence in the world, you are helping to liberate humanity from these dreadful conditions. Though you cannot see clearly nor discern fully what this work entails, how this work has spread, this Truth continues on its inexorable flow, reaching those souls who are receptive. I tell you my friends, be joyful. Be joyful that this Truth is indeed spoken in your world. It is indeed available to those who are receptive to it. You cannot lament that the whole world is not afire with this Truth, though this is your dream and desire, which is ours as well, it takes time. But it will come to pass that every soul created by God will have the opportunity to choose to follow this Path Divine, to receive the Love of God and be transformed by His Touch. 
+
+My beloved friends, you carry this torch. You are consistent and persistent in your ways, in your efforts, in your prayers. I commend you for these efforts, beloveds. I commend you for the work that you do and the desires that you have to help bring great change to this world. In times to come you will see that your efforts will bear fruit, that there will be change in your world. That path to change, those events that will take place, the openings, the shiftings and the awakenings of humanity cannot be seen by you, beloved souls, for its path is not straight and clear and unobstructed. But it does indeed meander like the water, seeking out the Truth, to be given where it can be received. So it is subtle yet powerful and so it is persistent and continues to flow. 
+
+You are each caught in this flow of Truth, carried by God to all corners of the world, to individuals who are curious, whose souls are open. So your life shall be as it is. I am sorry to say that you will not find great drama, massive crowds eager to hear your words. It will be subtle, it will be humble and it will be simply executed as you listen to God’s guidance and are able to execute His Will in your lives. This is not to say there will not be great works and opportunities and openings for each of you, beloveds, and for many more for there will be. 
+
+As the water slowly rises, it is barely noticeable. But it is and will be a persistent force in the world that in time will quench the darkness with Light, heal the suffering souls and bring wisdom and Truth to all. Be a part of this inexorable flow that is the Will of God that continues to reach forth for those souls who seek and your rewards will come, beloved souls, the rewards of the soul that is imbued and transformed by the Father’s Gift of Love. So you will find your ways, meandering with God’s Will and Love flowing, flowing forth to the world. You will touch other souls, many souls on this journey. 
+
+Whether this opening and awakening will be realized by you and those you touch is not altogether a certainty. It is the subtlety of the power of this Love that will have its way with each soul in time. So your efforts must be efforts of hope and love, of trust and humility that each word you speak, each touch that you reach towards another, each embrace, each prayer, each effort to bring Light, is your daily commitment. So there will not be great fanfare, beloved souls, until that time when you join us in the world of spirit. I tell you, you will then realize the power of your efforts, the glory and wonderment that is your soul that is blessed by God and that has done God’s Work in the world. 
+
+Your work, beloved souls, is the work of the humble child who carries the Great Blessing of Love in the world, God’s child, known by God, touched by God, blessed and blessed again. This is your life. This will be your life and it will bring joy. It will bring fulfillment in your relationship with your Creator. In this joy and fulfillment, you will express the depth and beauty and power of God’s Love for all those who can see, who desire and are drawn to this. They will know you. They will know you, beloveds. May you continue to grow in the Father’s Love, walk in the Light of God’s Love and Will, be His channels of Love and much will be accomplished as you continue to humbly walk in faith and love. 
+
+May God bless you, beloved souls. May God bless you deeply within your souls. I am Matthew and I walk with you, as do many. God bless you. God bless you.

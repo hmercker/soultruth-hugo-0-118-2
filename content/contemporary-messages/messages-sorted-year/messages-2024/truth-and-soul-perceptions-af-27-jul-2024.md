@@ -1,0 +1,37 @@
+---
+title: "Absolute Truth Can Only Be Understood Through Soul Perceptions"
+menu_title: ""
+description: "Orion says Absolute Truth Can Only Be Understood Through Soul Perceptions"
+date: 2024-11-08 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Absolute Truth Can Only Be Understood Through Soul Perceptions
+
+July 27<sup>th</sup>, 2024
+
+Sechelt, B.C. Canada
+
+Received by Al Fike 
+
+Truth is such an elusive thing, my friends, it is Orion. As you continue to discern truth with your mind, you will find that the filters and biases of the mind will continue to operate and create a distortion of truth. For absolute truth cannot be obtained through mental processes. When it comes to spiritual truth, it requires the wisdom of the soul and the perceptions of the soul. Each of you continues to delve into various truths. You desire education and understanding of these things. Yet you use the faculty that is least reliable in terms of ascertaining truth and you place great trust within your mental faculties.
+
+Your soul continues to vibrate and express truth as it is able to understand and receive truth. Since many of you are almost permanently fixated within the material mind, that truth that is broadcast to your consciousness, is distorted in some way. Some of these truths are distorted in a great many ways. Yet you continue to believe and to put credence in what you understand to be truth. Until you truly come into soul consciousness and that your material mind is secondary to your ability to perceive and process information, then the purity of truth will not be yours. 
+
+I’m not saying this as a criticism to anyone for it is understandable that you come to that place of half truth because of the conditions of your world, where you live and how you live. I would suggest that in those times when you are confident and deliberate about the truth that you know, to have humility and to understand that you are still upon the journey of discovering truth and the truth that you know is merely the semblance of the truth that is. 
+
+Yet when you walk the Earth and you share what you know and you do so with love and attempt to inspire and guide others toward truth, it is a valid effort. There is much you can share already upon your journey. You have walked a great distance compared to many. Yet when someone comes to contradict you in your perspective and perceptions, I would not encourage you to be in conflict with them or to reject their perspective, knowing that each upon the earthly plane lives within the distortion that I speak of. I would suggest compassion and to hear out your brother or sister in their perspective. There is some truth always in what they say. Yet as you grow in the Love of God and you grow with your soul expanding within that Love, your ability to discern and to absorb truth grows as you grow within Love and Truth that comes from God.
+
+The Creator of all is the disseminator of truth, for it is in His creation, in the creation of the universe that truth is understood. It is in your connection, feelings and perceptions of God’s great Soul that truth may flow readily. You are still filtering that experience of that truth as your mind plays its part. Nonetheless, you are receiving truth and you are perceiving truth and that is the beginning of a journey toward absolute truth. I encourage you, my friends, to seek truth in ways that are prayer and desire, openness to receive the great Truths of God. As you continue to reach out to the Source of all Truth, you will find yourselves coming into greater alignment with truth. 
+
+Clarity will come, provided you are willing to allow the mind of the soul to guide your way and to discern truth not only from that part of you that requires words and concepts that are of the mind, that part of you that knows truly, that feels, perceives in a different way, truth. As you continue upon that road, you will find yourself absorbing and accepting truth in a different way, not in an intellectual, linear way, but in a way of the soul that absorbs and relates to truth in what can only be described as a three-dimensional format where truth has depth, breadth, and space that is multidimensional. 
+
+How can you explain a truth when you receive it in this way? You may attempt to do so. You may add some words to your experience but in reality, what you have experienced within the consciousness of your soul can only be understood by that consciousness and by the modality by which you have received it. Someday you will share truths in an intuitive, telepathic way as we do. Your species is quite capable of this and will come to that point in time. In that way, truth cannot be adulterated by the intellect, but given purely one to another as an experience, as a perception, as a feeling. I know that each of you yearns for this kind of understanding, this sort of experience. 
+
+Thus we encourage you to develop your soul and awaken within it, all those faculties and abilities that are designed by God to know truth. God has given you a great gift within the soul to truly know and understand the truths of the universe. As you grow within your soul, these faculties are awakened. You will come to understand more fully and deeply many things and come to love and appreciate the Creator of all. As you come to see with the depths of your soul perceptions how profound and beautiful is God’s creation, how profound and beautiful is God, His Soul emanating love so powerful, so complete that there is no other source in the universe like it. You will come to appreciate, joyfully so, all that God has created. You will come to know truth in such a way that it will be unshakeable, firm and clear within you.
+
+These times come for you, my beloved friends, as you grow so this capacity will grow. You will be able to understand and truly know. You will know the joy of it, the wonderment of all that is the truth. We encourage you to seek this great gift of Love from God in order to empower the faculties of your soul and to pave the way toward truly understanding God’s universe, paving the way to truly feel the depth and breadth of love and how love permeates the entire universe. Truly knowing within you the magnificence of your own creation and to love, truly love and appreciate yourself. 
+These perceptions come within the soul and they will build within you, my friends. Truly, they will build and you will awaken and be transformed by that which is coming into your soul at this very moment. This Essence from the great Creator continues to flow. 
+
+You must continue to receive and to open wider for greater reception, to be at peace within you rather than this often intense agitation and desire for truth. Rather, be at peace and know that the truth will come at its own time when you are receptive and able to understand with the faculties of your soul. The intensity should be directed toward God in your prayers, desiring the great gift of His Love. In this, all else will follow, as you well know and truth will blossom within your consciousness. May you be blessed, beloved and beautiful brothers and sisters, seekers of truth, seekers of the highest blessing of love. We shall venture further and the truth shall be known, my friends, by you and in time, by the world. May you be blessed in love. I am your friend, Orion. God bless you.

@@ -1,0 +1,48 @@
+---
+title: "Each is Responsible for Development of Spiritual Gifts"
+menu_title: ""
+description: "Seretta kem says Each of us is Responsible for Development of Spiritual Gifts"
+date: 2024-02-05 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Each is Responsible for Development of Spiritual Gifts
+
+February 7<sup>th</sup>, 2023
+
+Sechelt, B.C. Canada
+
+Received by Al Fike  
+
+
+
+God bless you, beloved souls, I am Seretta Kem. I wish to speak of the gifts that are opening for those who are diligent in their prayers and asking to be awakened. There are many ways that these gifts can be opened. We have spoken of how the Divine Love, the Essence of God awakens the soul and all its faculties. In this way, the highest and deepest way of knowing, experiencing, perceiving and expressing the gift of Divine Love is attained. Yes, this development is incremental and often quite slow, because as you continue to pray for the blessing of Divine Love, it comes drop by drop. 
+
+It is a slow process, not because God intends it to be so, but because of your limitations and the limitations that you place upon your capacity to receive Divine Love. But given the circumstance, as you continue fervently to pray and consistently to pray, the drop by drop blessing that comes may accumulate quite substantially within the soul. This will undoubtedly open up many gifts within you, the gift of soul perception, soul wisdom, soul discernment, the capacity to love, to open one’s heart to one another, to God in appreciation of God’s creation. All of these things may come with the soul awakening. Indeed some manifestations may be developed as well. Some of you here have been involved in developing such things.
+
+What is happening with all of you, is that we in the Celestial Kingdom are quite involved in developing your gifts. In this way, you are not just reliant upon your soul awakening in an organic way. But rather, we are assisting you in such a way that these awakenings, blessings and developments are coming to your consciousness. For it is the restrictions of the material mind that often get in the way of consciously being aware of your gifts. Thus, we put great effort to help you to clear away those obstructions of the mind, as well as obstructions of the soul, so that a clear and powerful channel of awareness may flow between your soul and its consciousness and your mind and its consciousness, utilising the spirit body and spirit mind as the intermediary between the two. 
+
+There is much that can be developed quite quickly if you are in the spiritual condition and alignment with the Laws of Love and the laws that pertain to these developments. Yet, of course, as in all cases, it is determined by free will. Your actions, thoughts and desires as you navigate the world play a crucial role in how far you may develop in a conscious way. Much can be developed within the soul. There are always things happening within the soul, shifts and clearing away of obstructions and developing faculties, perceptions of the soul, many things as you receive the Divine Love, it is inevitable that these developments may take place.
+
+But how are you able to consciously experience these things? How can you come to the realisation and utilisation of these blessings if there are great blockages and inhibitors between the consciousness of soul and the consciousness of the material mind? Each day you navigate the world and reinforce the material mind. Within the timing of that day, you spend a short period in prayer. In prayer there is a greater likelihood that these aspects of soul development may come to your conscious self. Indeed, you spend a small portion of your day in prayer, and a large portion reinforcing the material mind. Thus, the likelihood of fully realising, consciously realising these gifts and capacities of the soul, is not particularly available because of the condition that you carry within you and around you.
+
+Yet as the Divine Love accumulates within, so the likelihood of these experiences and acknowledging these gifts comes to the fore. Thus, we urge you to pray and we urge you to pray again and again until you are in that condition where the consciousness of both soul and mind are in alignment. The passage of information and experience is cleared by your efforts, by your prayers and by our efforts and prayers. For God provides the ways and means for this to be so. He is the Source of all blessings, all love and light, all things that are required for your awakening. 
+
+My beloved friends, often you come to an impasse because the state of your spiritual self modulates, goes up and down in accordance to your experience for the moment, your desires and your mental state. This is not to say that the light within your soul modulates. For this is not the case. But the avenues by which you may be in contact and communicate with your soul are tenuous and require your focus, concentration, prayers and discipline in order to access these things.
+
+We may uplift you often and we may assist you in a momentary experience and clarity of soul perception and soul awareness. But when we withdraw these efforts from you,  often you come back to the material plane and the material consciousness. It seems as if those experiences were like a dream, illusive and not of great substance. Yet, what came to you, what you experienced, is important and relevant to your continued progress and experience with God and with your own true self. 
+
+Much can come to the dedicated soul, and there are those who are quite gifted, naturally so, to experience these things. They have psychic abilities, metaphysical capacities that make such experiences more readily possible in a conscious way. This is because the intermediary of the spirit body is more attuned to the material consciousness. This is why we may and we can use this individual as a medium, a channel for our words. Because he possesses certain gifts and capacities that allow an easier flow of information through his soul, through his spirit body to his mind. Thus we utilise this instrument quite often because of the easy access to his mind through his soul and spirit body. 
+
+This does not mean that he is clear of all obstructions or has the capacity for all manner of experiences. For this is not the case. Even he struggles with attuning to the soul at times and we struggle at times to bring through information because of this. This modulating effect is within him as it is within all of you. There are good days and bad, as you would say. Often, in a conscious way, the individual is not able to discern the difference between these conditions and the modulating effect of these spirit conditions within them. Yet the results are plain to the individual as they experience many things within their prayers and their daily efforts to be in alignment. 
+
+Living upon this Earth plane continues to affect your experience with God, with your soul, with us, with all things spiritual. Even with the support of your angel friends and God’s numerous and bountiful blessings upon you, it is hard for you to maintain a consistent condition of spiritual sensitivity and awareness. But as you continue on and practice and make an effort to clear away the debris of the human condition, both outside of you and within you, then it becomes easier. The capacity for communication between yourself and us, between yourself and God, between yourself and yourself is made easier. The modulations are less and the consistency is more evident. 
+
+My beloved friends, I urge you to continue in your prayers. I know that many of you wish for these gifts and capacities, to know, to serve, to experience all that which God has to give to you and all that which God wishes to give to others through you. These things will come in time as you continue to make those efforts in prayer, as you continue to discipline your thoughts every moment, to open yourself to the many gifts that are made available to you, that are within you, that are awakened by God’s Love, by the efforts of the angels, by your own desire to be in alignment with these many things. 
+
+My beloved friends, you are a work in progress. Indeed, progress is made each and every day. But it requires your focus and efforts, faith to bring this to the fore, to bring it to consciousness. So we pray for you. God awaits you, for He has much to give. Indeed, you are in control of the flow, the ways and means that these things are accomplished. Yet God gives you everything you require. Everything needed is within you and is continuing to flow into you. Your angel friends are always with you.
+
+Yes, there is much needed to be done in order to progress, but you know the key. You understand the process. That is for you, beloved friends, to step forward in the light, to be able, strong enough, clear, loving, faithful, all things, all components that are required in order to be a fully realised, expressed, soulful human upon the Earth plane. The potential is there. It is for you to realise it and to bring it to the fore and to be in alignment with all the forces, angels, Divine blessing, that may bring this to realisation. 
+
+May God bless you, my friends. I am Seretta Kem. My love is with you. I encourage you forward and we shall do our utmost to assist you on your journey. It comes when you are ready, when you can indeed embrace these things with the strength, steadfastness and consistency that comes as you grow in God’s Love, in God’s blessings. God bless you, my beloved friends. My love is with you, always. God bless you. 

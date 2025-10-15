@@ -1,0 +1,34 @@
+---
+title: "God’s Gift of Love and Light"
+menu_title: ""
+description: "Augustine speaks of God’s Gift of Love and Light"
+date: 2018-04-06 00:02:42+00:00
+draft: False
+hidden: True
+weight: 340
+---
+# God’s Gift of Love and Light
+
+March 16<sup>th</sup>, 2018
+
+Hawaii Kai, Oahu, Hawaii
+
+Received by Al Fike
+
+ 
+
+Blessed child, your mother is in the Light. She continues to serve God in her ways and her means. She is happy to be in the realm of spirit seeking her place, knowing that she has lived a good life, a life that fulfilled her soul. Do not weep for your grandmother but be joyful that she has found her way to realms of Light in the world of spirit.
+
+So each one of you seeks to increase your Light, to be in a condition when that time comes for you to transition to a world that is of Light. So your motivations to seek the highest within you, do you well, my beloved souls and bring many blessings to your soul. For God knows your intentions, God knows the intentions of every soul in this world. When you come humbly to the Source, your Heavenly Father, and seek to be nourished and touched within your soul, to receive the blessing of His Love, you create a beautiful Light within you, a Light that never leaves, a Light that stays with you for all eternity, a Light that grows, expands and changes you.
+
+It is in this dedication of the soul, the desire to find your connection with God, in your relationship and serving in Love in this world that you create a powerful Light within you and a powerful Light in your life. Whatever way you choose to serve God, to understand the subtleties of life, to put forth your explanations of your path, your spiritual journey, you must place foremost your intention to be with God, to be in harmony and alignment with the Source of all Light. This does not require complex explanations. This is merely a simple expression of your soul to God and God's reciprocal answer to you in His blessings. As you come together in these circles of Light, are you not merely opening yourselves to receive what may be given, to support one another in this Light, to bring God to you and you to God so that you may experience the Peace that passes all understanding. And also that you may know God more clearly and distinctly in your lives, that you may feel His Love for you and allow that Love to journey into your soul where it may rest and move and make its presence known, to do the work that God has assigned with the blessing of His Love, to lift you up ever closer to Light and harmony and peace?
+
+This is not an onerous task, beloved souls. It is a joyful expression of your soul. It will carry you forward into Light, not only in this world but in the next. Carry this Truth with you, beloved souls, carry it close to your heart. Let this blessing of Love light your way and do not over complicate these expressions of the soul for they are truly simple, powerful, elegant and beautiful. You feel this when you are together, do you not? You feel how Love binds you together in harmony and joy no matter the experience in life, no matter the journey you have taken to bring yourself to a spiritual understanding. The foundation is always Love, beloveds. It is the force that binds and blends and brings you together as brothers and sisters in Light. Seek this gift above all else. In this gift the Truth will flow to you as God responds with each day to touch your soul, as you put your prayers forth seeking the connection that you desire within your soul, seeking to know the Truth that is pure and clear.
+
+You cannot stray far from God when God's Love is within your soul. It will bring you back again and again. It will ignite within you a deep desire to be with God, to answer these yearning prayers within you, fulfilling your soul, healing your soul and awakening your soul. This Truth is simple. God's Touch is powerful but simple. The awakening within you will continue until your eyes are truly opened and all that which is within you is in harmony with God. Continue in your efforts, beloved souls, continue in your service of Love, continue to love yourselves, to love all those in your lives, to love this world that God has created and to feel love for all your brothers and sisters in this world for God is building within you a deep compassion, a deep understanding, an awareness for all of your brothers and sisters. As Love flows from you, as God uses you to bring His Love to others, so this compassion and desire to embrace all grows within you and brings you to greater Light, for as this builds within, you will see the opportunities to serve God. It will become clear and evident of what you may do in one day, in each day, it will come. You will find great joy and satisfaction in your labours of Love, in your communing with God, in the simplicity that will come in your lives, uncluttered and unencumbered by the human condition that always seeks to distract and cause complexities and barriers.
+
+Your souls will awaken, beloved souls. You will come to know a new way of life, a new understanding that is not predicated upon the will of mankind and the perceptions of the human condition but of the Will of God and what He is meant to be in a life that is in harmony and Light in this world. It is coming, bit by bit. You awaken as God's Love pours within you drop by drop, as within you things expand and open, perceptions enliven, wisdom comes, the fears of yesterday disappear and the joys that come in your relationship with God intensify and push aside all the error, all those feelings that are not of Love, all that is not in harmony with God.
+
+You are His children, seek your Heavenly Father, seek to draw His Love and blessings that are bountiful and never withheld but always, always available, given your sincere desires and prayers. Seek ye the Kingdom and all shall come unto you, beloved souls. It is your birthright. It is a true treasure that you may take wherever you go, whether in this life or the next, you will carry this treasure of Light with you, within your souls. It will not be lost. No one can take it from you. It is God's Gift to you alone. As it builds within you, you will find a great strength, a deep peace, a profound knowing and a great joy. Seek this gift, beloved souls, seek the Light always. You are needed in this world and God will use you as His instruments of peace and change, Love and Light. Your souls desire this. Your souls have a deep desire to be expressed in this way, to break free from the confines of your minds into the clarity of at-onement with God. May you find that freedom, beloved souls. May you know this at-onement and all that comes with it. It is yours for the asking and will never be withheld.
+
+God bless you, beloveds. I am your teacher Augustine. I am with you as you journey forth and will continue to add my counsel, my love, as you walk ever closer to God. God bless you, beloveds. God bless you.

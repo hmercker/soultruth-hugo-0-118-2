@@ -1,0 +1,8 @@
+{{ define "header_css" }}{{ end }}
+{{ define "body_classes" }}page-default-single{{ end }}
+
+{{ define "main" }}
+<h5 class="h-decorate"><span class="r"><span class="l">{{ .CurrentSection.Title }}</span></span></h5>
+{{ .Content }}
+<div id="page-num"><span class="r"><span class="l"></span></span></div>
+{{ end }}

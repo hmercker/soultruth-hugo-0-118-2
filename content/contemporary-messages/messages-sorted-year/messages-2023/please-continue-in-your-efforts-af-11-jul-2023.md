@@ -1,0 +1,38 @@
+---
+title: "Please Continue Your Efforts to Break Down Barriers Between God and Humanity"
+menu_title: ""
+description: "Bartholomew says Please Continue Your Efforts to Break Down Barriers Between God and Humanity"
+date: 2023-11-27 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Please Continue Your Efforts to Break Down Barriers Between God and Humanity
+
+July 11<sup>th</sup>, 2023
+
+Sechelt, B.C. Canada
+
+Received by Al Fike  
+
+
+
+May our Heavenly Father continue to bless you. My beloved friends, I am Bartholomew and I come to encourage you upon the path. Each of you who continue to put effort and prayers towards your own soul’s progression and development in the Father’s Love, I pray with you. I am with you as you continue to make those efforts to struggle towards greater light, to be that light in the world. For many of you who know the truth and live within the truth of God’s Love, it is often like there’s a great door between you and your fellow man that are  on the other side. This door represents a great barrier that must be overcome so that you may make this connection, that you may speak of this truth and may help and uplift and inspire your brothers and sisters. 
+
+Yes this barrier is formidable and it is weighty. You, my beloved brothers and sisters, who are being uplifted in the truth and light of God’s Love, must have the strength, the fortitude, determination and desire to open this door, this mighty door of resistance that most of humanity has towards God, towards their own soul, towards those things that are of a spiritual nature. Rather they feed the error and the imbalance that is comprised of the human condition. They do not understand that they are resisting and lack the insight that will bring them to greater light and happiness. Most feel that happiness is derived by material concerns, that the material life is all there is and all that there can be. Thus, their focus and energies are upon developing their own material well-being. 
+
+Yet such things made by man can crumble in an instant, and will in times to come be very vulnerable indeed to the changing conditions of your world. They do not understand that if they put a concerted effort upon opening that door, that you are there to greet them with open arms. Not only you, but many other forces of good will be available to them in order to bring light and truth and upliftment to every child who desires the blessings of God.
+
+God’s plan is for this door to open in time. My question to you, are you ready to greet your brothers and sisters, to bring to them the truth of God’s Love?  Or are you content to sit within the light and blessings that you receive for yourself and not have any great concern for those in the darkness? I know many of you pray for them. You ask God to alleviate their pain and this is good and a blessing for the world. But in God’s universe, there are many levels of service, many ways in which God may operate in order to bring light and harmony to the universe. One of those components which is very important upon your plane are those individuals who are willing to be of service for God, for humanity. 
+
+This is a great responsibility. You have been given many blessings and you have been strengthened by them. You are beginning to see the world differently, beginning to understand the workings of God and the workings of your own soul. Yes you are not in that place of great understanding and transformation. Yet each of you continue to work toward this. Each of you are strengthening with each day with each prayer. You are in greater light with each breath.
+
+Do you not understand that God has a plan for you, that there are great opportunities for each of you to serve to bring this truth to others even though you feel within yourself, incomplete and that your knowledge of these truths is incomplete? I say to you, my friends, this is not a great impediment to the possibility of service. Rather, as you grow and as you exercise the truth that you know and incorporate this truth into your lives, then many will see your example and benefit by it. It may be quiet. It may be subtle. But indeed the light that you bring, the quality of the love that is growing within your soul will continue to change the conditions of your world. It will be an open invitation to your brothers and sisters as you knock on the mighty door and ask them to exert themselves so that they may open this door but a crack, a small sliver so that the light may flow in. That light will strengthen them and help them to have the determination and the ability to open that door further as you push and help to open this mighty barrier towards truth. 
+
+This is what you must do, my friends, to be intent on your desire, your efforts to help break the barriers, to help bring the truth and the light to your beloved brothers and sisters. God is empowering you. God is giving you every opportunity to be strengthened in light, to come to know the truth, the truth that will live inside of you and will glow all about you. In this truth comes a power to break down the barriers, to neutralise the darkness, to bring comfort and love to your brothers and sisters. Do you not feel the empowerment that comes with this gift of love, though your mind has certain ideas and intentions as to how this may be expressed? I say to you, my brothers and sisters, listen to the Will of God. God whispers to your soul. Listen from that place of soul so that you will understand what it is you must do. As you understand, as you open to this understanding, so the gifts that lie within your soul will come awake and be expressed in a faulting, halting manner in the beginning but will come more clear as you express these things within you. 
+
+You will become a beautiful light. You will be gracious in your efforts and in your being. You will show the way. For God will guide you thus. God will empower you thus. God will bring His Love through you in such a beautiful flow of light and comfort and healing and truth that many will be drawn and come to you. They will make efforts to break through this barrier and be with you on the side of light and love and truth. It is a great plan and effort that must be made and expressed. Each of you are part of this plan and effort. Each of you must muster the strength, must encourage within yourself such faith and fortitude that no barrier will stand in your way, no resistance from another will discourage you. Rather you will continue to carry on and bring the truth in your own way, through your own gifts and personalities and abilities. 
+
+Each of you are integral in God’s plan. May you find your way, my beloved brothers and sisters. May you find your way and become that powerful force for good, that beautiful light for truth, that loving flow and instrument to warm the hearts of many and bring hope and peace and comfort. May God bless you. I am your friend, Bartholomew. My love for each of you is great. I am happy to see my friends here, those who I work closely with. Know that I will continue in these efforts. My commitment is complete and sure and I shall never leave you, my beloved friends. 
+
+God bless you all. I love each of you beautiful souls on the threshold of a great work, the beginnings of the transformation of this world. May you be blessed with understanding and knowledge and purpose and insight, compassion and love. God bless you, each of you. God bless you.

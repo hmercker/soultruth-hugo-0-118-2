@@ -1,0 +1,35 @@
+---
+title: "The Opening of your Soul Perceptions"
+menu_title: ""
+description: "Matthew Describes The Opening of your Soul Perceptions"
+date: 2023-08-19 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# The Opening of your Soul Perceptions
+
+February 8<sup>th</sup>, 2022
+
+Gibsons, B.C. Canada
+
+Received by Al Fike   
+
+
+I am Matthew and I come to speak of your soul's perceptions and abilities opening to the transformative blessing of the Heavenly Father's divine love.
+
+Much is changing within you as you continue to pray together as you are and as you continue to pray and reach God in your daily life, receiving this great gift of the Father's love. So these perceptions and awarenesses will change your behavior and how you live your life. As love continues to grow within your soul and it influences your conscious mind, then your desires will change and align themselves with the power of this love. Those of you who are fearful will release their fear. Those who are alone will be motivated to reach out to their brothers and sisters in the world. Those who are reluctant in any way to engage in life in a full and complete way, knowing the joys of the gift of life that God has given you, will find themselves desiring more life within their lives, awakening to the potentials within them and the potentials of their life. 
+
+Love will do this my friends. Love brings connection. Love awakens the desire to love your brothers and sisters. To love God, to love your angel friends, to love life is to find yourselves thinking and doing in ways that are not common or familiar and in this God's hand is upon you. It will guide you through a life that may once have been quite isolated, judgmental and fearful but now the doors of joy, of love, of connection will open, so that you may be truly God's instruments in the world. Allow his great love to flow through you. Give yourself permission to enjoy life and to be engaged in life and not worry of the dangers that are present in an earthly life. For when you work and live within the love of God, you are protected and though the conditions of the earth are still present, how you are affected by these conditions and the consequences of these influences and dark conditions of the world. They will diminish greatly and at some point will not be present at all.
+
+You seek the love of God and you ask that his love may transform you but often you do not see nor understand what that transformation will be like. You see yourselves as children of God. Seeking his nurturance and comfort and peace and refuge from a dark world that can often be harsh and unloving and that desire to be cloistered in love, healed in love and know the peace of God's love. This is important, but it is a phase of your development. There must come a time when you must step forward in the world and be God's champion of love - to walk in the world unafraid of the judgments of others, to express yourself in the world that is truly a part and an authentic expression of your gifts and who you truly are. Many hide away and seek safety, for they fear the judgment of others. They cannot truly express their inner nature or being and often they do not know what that is or how that may be expressed, but when one is in alignment with God and asked to be an instrument, a channel of God's love and to truly be that soul that God has created in all its unique qualities and beauty and light, then your perceptions of the world change. Because your perceptions of yourself will change as a result of this gift and you will see yourself free from the burdens and fears of your old ways and patterns and come to a new dawn of a new you. One which may surprise you. One which in all its beauty and wonderment has been lost to you for many years and yet your soul has a deep desire for expression and to acknowledge the great gift that is life and express itself in that joyful acknowledgement. 
+
+That life is a gift to each one of you and that in loving one another, you find comfort in one another and yet you are all diverse and different from different parts of the world living different lives. Some have different cultures and ideas. All have had a flow of life and life's experiences which are unique to them. Yet here, do you not feel the unity and the togetherness that you share in this light and in this way? As you pray together and walk together, it is important that you open yourselves to your brothers and sisters. To draw them into this sense of community and fellowship and family. For this is what every soul seeks. Yet many are afraid to be vulnerable and open to one another. Yet it is in the safety and the power of love, of this authenticity of the soul, this powerful connection with your creator, that it is possible and that fears are unfounded and that true love for one another is nourished and established amongst you and for the world. 
+
+This is how the world will change my friends. This is how the world must change as you reach out to your brothers and sisters. To acknowledge that yes, each of us are different but each is truly a part of God's great family. His children who seek to live a life that is of light, of truth and love. 
+
+May you carry this banner with you wherever you go and though you may not say much to another, or make overt overtures to a stranger and yet, as you walk in the world in the light that is a reflection of God's Love within your soul. You signal to your brothers and sisters that there is a way to be together in harmony and that you may express this and be this upon the earthly plane as it is meant to be. Walk together beloved souls and seek the love of God together and seek to serve God together and many surprises and blessings will come your way and you will meet many souls upon your path. It is inevitable that these relationships and connections will be made. Because God is guiding you and God will show you the way upon this path of service and love and the flow of unity, of connection, of harmony and of peace. 
+
+Yes, there are many harsh conditions in the world but God will guide you around these conditions and through the maze of the human condition. So that those souls who are eagerly awaiting your acknowledgement and touch and love will find you as you find them. As you walk upon your life's path and pray to be used as his instruments of light and love, so it will unfold as a journey, a path, a plan that is all leading toward the salvation of humanity. From these dark conditions, that salvation is the acknowledgement of love. The acknowledgement of one another. The acknowledgement that all are loved and love can and will be expressed to all.
+
+May God bless you on this path beloved souls. I am Matthew and I pray with you and I walk with you as to many angels as you continue to seek your way of service. As your gifts unfold and your true selves are acknowledged and awakened, in love. God bless you my friends. God's Love is with you. God's Love is with us all. God bless you beloved souls. 

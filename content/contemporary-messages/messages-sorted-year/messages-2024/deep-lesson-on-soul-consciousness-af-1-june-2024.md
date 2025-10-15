@@ -1,0 +1,53 @@
+---
+title: "A Deep Lesson on Soul Consciousness"
+menu_title: ""
+description: "Augustine gives A Deep Lesson on Soul Consciousness"
+date: 2024-06-06 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# A Deep Lesson on Soul Consciousness
+
+June 1<sup>st</sup>, 2024
+
+Sechelt, B.C. Canada
+
+Received by Al Fike 
+
+
+Beloved students, it is your teacher Augustine. The way in which you will express truth and live truth will evolve and change as you grow in the Father’s Love. Most often those who aspire to teach the truth do so from that mind-centred consciousness that is so common in your world. It has an eloquence, a wordfulness that satisfies the mind and satisfies those who listen. For you give great credibility to words and to the mind. It is the way of your world.
+
+Yet we are teaching and helping you to develop a different centre of consciousness, and that centre that is the soul. The words of the soul, the expressions of the soul are quite different from that of the mind, though the mind must be engaged because you live in a material world. This is inevitable and unavoidable. If you were all telepathic, and there may come a time on the Earth when this may be possible, then words will not be so important. Rather your expressions will have tones of feeling, will have imagery, will be coloured differently from that which the mind expresses so forcibly.
+
+Yet there are many stages and phases that you must progress through before you come to that place. Indeed you will discover these things as you progress through the spirit world and come to realise that verbal communication is the most rudimentary form. That there are other ways and means that are eloquent and convey the message more deeply and widely than that of mental conflagrations.
+
+My beloved friends, would it not be wonderful that you could all communicate together mind to mind, soul to soul in such a way that distance would not matter? That you would be connected together without the interference of the material? Indeed this is possible, but first you must overcome various barriers and biases that insist on the various forms of communication that you have. This is where the transformative expressions of God’s Love within your soul will make possible these avenues and ways of communication.
+
+First and foremost you must trust your soul and let go of the rigidity of the mind to be able to have a fluid interchange between both, in time, making this interchange so solid and common that it merges together into one. When this happens, and it is possible that it will happen in your lifetime, then you will not be burdened by time and space and the material restrictions of communication. Rather it will come as a flow of consciousness between each other, between you and us, between you and God. Is this not the ideal scenario for you, beloved souls, to release those restrictions that have held you back for so long? To disallow the interference of a mind often filled with erroneous notions, fears and assumptions?
+
+Yet the price one pays for such a wonderful condition and ability is that the truthfulness of your condition and the truthfulness of those around you will be quite evident. You will not be able to hide away within your mind. For the mind is very adept at creating its own reality and ignoring those things that are of pain and error and filled with feelings that are not of love. You must reconcile these places within the mind with truth. Then with this reconciliation, comes the power of the transformative love within your soul to forge this connection, so that you are at-one with yourself. For without being at-one with yourself, you can never be at-one with God, or at-one with each other. It is not possible. 
+
+For with the dichotomy that exists within your mind and soul, the energy and effort that it takes to balance these two, to run back and forth between the two, to have your mind *“in check,”* so to speak, and allow your soul dominance, can take a great deal from you. Yet you find this the most comfortable, the most common and, at times, the most ideal condition to live within. Because you see all around you and you have experienced all around you this dichotomy working and having its powerful influence in your consciousness and how you see the world. 
+
+Yet it is time for change, is it not? We have said this many times. It is time to accept that this compromise between mind and soul is not ideal if you are to truly be God’s instruments, to walk in faith, to walk guided with every step. Do you think that this duality that continues to thrive within you is ideal? It is not, beloveds, it is not. We do not criticise you for we have also been human, we have also lived in the material world and there are very few who have accomplished what I suggest you may all accomplish. 
+
+You have arrayed around you and within you a great powerhouse of influence, support and love that can potentially make this a reality. Are you willing to step forward in this way? For many of you it would feel like stepping off a cliff, not having the control that you are so used to. Yet in this release of control you will find a whole new world within you and around you. I would ask you to pray for this, to pray that you allow your mind to step back and acquiesce to the true desires of your soul as your soul strengthens in love and awakens in truth.
+
+You must allow the soul to predominate your consciousness, to be a clear leader in expressing who you are. This is the balance that is ideal. For to have the soul predominant and to have the mind *“in check,”* so to speak, will bring the results that you are so eagerly seeking. You pray together in this group for the manifestation of us in the world. But how can we establish such a close rapport with our instruments, for instrumentality is necessary, without your consciousness being in that place of harmony and peace, and powerfully so?
+
+You must go within. Go to God, beloved souls, before you can go to each other in humility and honesty, utilising the gifts that you carry. For each of you has the gift of telepathic communication. It is part of humanity, of everyone. But you dare not open this up if you are reticent within the mind in control and unable to release that control in faith and trust in that other part that you find so elusive and yet so intriguing.
+
+It is time for your soul to take precedence. You know the road to take in order for this to be accomplished. You know that, in feeding the soul with the Essence of God’s Soul, you are contradicting the common perspective and reality of humanity. You are taking the road less travelled. You are strong enough, brave enough and desirous enough to take that road. We know each of you so very well. For our capacity to know your minds and your souls is an easy thing to accomplish for us. For we have made that transition. We have allowed ourselves to merge our minds and souls together. The love within our souls has made this possible.
+
+Now it is for you to follow in our footsteps. It is for you to challenge yourself in this way. It is for you to find your way. First you must confront your fears. The fear of truly laying bare who you are and the conditions that you carry, the thoughts that you have. This first step is the most challenging one, indeed. For each of you have created a paradigm of consciousness that is easy for you to manage and feel comfortable with. Yet within that paradigm are many blind spots, many flaws, many parts that go unrecognised. So that effort to seek beyond the comfortable, the complacent and to go deep within yourself is important and necessary. I am not suggesting that you have completely ignored this process. For you have not and you continue to expiate the error as you see it, yet there is more to come, beloved friends. You have not completed the process. Indeed the mind is the great barrier to it. 
+
+Thus this is a step necessary, one that you must maintain and continue to explore in order to clean out, to release those vestiges of all the pains and hurts of a life lived on this Earth of yours. Then you must clearly establish the road of consciousness between your mind and your soul. That once the great barriers, at least the majority of these barriers have been released, then it is readily available to you to establish this interaction, this relationship between these two centres of consciousness. In doing so, you begin the steps toward merging the two. In time this will happen.
+
+If you are able to accomplish this on Earth, then you become a formidable force of light upon the Earth. For this merging of the two consciousnesses cannot happen without the power of the Love of God igniting your soul to such a degree that it can lead the way toward the merging of the two. Thus you become a great light. Your capacity for truth, for wisdom, for love will be multiplied a thousand-fold, and you will become a beautiful channel of love for God. 
+
+I know this seems somewhat unlikely or impossible in your mind, but the mind is like that, is it not? Seeking to limit, seeking to maintain control. Indeed your souls know this to be true, that this is the journey, this is the road that you are headed upon, and that this will be your destiny at some point. Our hope is that it will be realised on Earth. Indeed, if it is not, it will be realised in spirit, where you will learn how to do this before you can enter into the Celestial Kingdom. For if you cannot, that Kingdom would be a very confusing place indeed. It would not be a harmonious place for you. 
+
+Yet you yearn for the love as we all do. You yearn for the effects of that love as we all do. We are just further along the road than you. We come to you in love and understanding, compassion and appreciation of who you are and what you are seeking to accomplish. Your great struggles, your great struggles, beloved students of truth, continue. So they shall for a time yet to come, depending upon your efforts, your choices that reflect your free will.
+
+May you continue to seek truth, to seek for the expansion of your soul in God’s Love, to seek the integration of all parts of you into one soul consciousness dictated by love and truth, harmony and peace. May this be so, my beloved and beautiful students. You are on the road and we acknowledge this and we love you. We shall stand by you always, always my friends. We are your teachers and healers. We are the lights that surround you. We are the ones who love you. We are sent by the Heavenly Father to uphold you. God bless you, beloveds. I am your teacher, Augustine and I truly love you, I truly love you. God bless you.

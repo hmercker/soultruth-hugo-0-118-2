@@ -1,0 +1,42 @@
+---
+title: "The Power of Free Will"
+menu_title: ""
+description: "Augustine talks about The Power of Free Will"
+date: 2018-05-30 05:02:53+00:00
+draft: False
+hidden: True
+weight: 314
+---
+# The Power of Free Will
+
+September 26<sup>th</sup>, 2017
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+ 
+
+God bless you, beloved souls. I am your teacher Augustine and I wish to approach a subject of which I have spoken of many times and that is the power of free will.
+
+What does free will mean in one's life and how does it affect the soul? The first act of choice for a soul is to choose to incarnate into this world. Many believe that a soul incarnates because of God's Will. No, my beloveds, a soul chooses to incarnate. This is the first act of millions upon millions of choices a soul makes in its life. So God has given a great gift to His Children to act upon their own volition, to choose their path in life, to seek what it is that they desire and to be an expression of their own individuality in the world.
+
+There are no two souls alike. Each soul walks their own individual path although all of creation is governed by God's Laws. A soul even has the option to step outside of the governance of these laws to some degree and may choose to do so for whatever reason. Often this reason is because of ignorance and error not because of a conscious desire to do so, but because so very few in this world are consciously aware of God's Creation as it stands, and the conditions into which it is born have a much greater bearing upon the choices of a soul than the reasons for its incarnation.
+
+This consciousness is buried deep within the soul, this understanding of its own being and purpose in the world. The mind governs so much in your world. The mind carries the soul forward into many experiences and conditions that are not necessarily in harmony with the desire of the soul. Thus the power of free will is a double edged sword, is it not? Every soul has a choice and yet most souls choose out of ignorance and from an incapacity to understand Truth. Thus, in this world, the conditions of this world created by man and are not in harmony with God's Law. Yet God continues to allow humanity to choose their fate, to choose the conditions of their lives. They do not even understand the power of their own thoughts. Most go blindly through life unaware of the conditions that influence their choices, the many powers and influences, energies and thought conditions of this world which steer a soul asunder. Thus instead of creating and seeking harmony, but often doing the very opposite, creating pain, confusion, negative emotions and erroneous thoughts. Thus the suffering in this world is intense because of the ignorance and the unconscious recognition of the true meaning of life is lost.
+
+And so we urge you on in your own discovery of yourself through the blessings of the Father's Love. Igniting an awareness that cannot be ignored, fuelling wisdom, fuelling choices which do bring harmony and showing the way to Light and Love. In this way you are charged with a responsibility to share these Truths, simple as they are, so that others may consciously choose Light and harmony, Love and compassion, joy and wisdom.
+
+Is this not the goal of every spiritual path? To seek harmony, to seek Light, to seek wisdom and to break the chains of error within each soul? In this way those conditions which have fostered such pain for so many millennia in this world that humanity may be free of their own ignorance and lack of Love so that not only a strong sense of morality may flourish in this world but also a deep desire to love and accept each other. This comes with the awakening of the soul, for in this awakening a new sense of choice emerges, a choice that is not just requisite upon the desire of the individual but includes the Will of God.
+
+When this understanding and connection with God is in place, one begins to see how a blending of the desire of the soul and the Will of God brings harmony. Thus free will is intact but is also influenced by the Will of God, the Truth of God's Creation and the laws of His beautiful Universe.
+
+As soul wisdom emerges, a deeper understanding comes, and the empowerment of the soul occurs to choose the harmonious course in order to find fulfillment through a sort of obedience to the Laws of Creation and the Laws of Love. This does not feel like the choice of the individual is subverted. No, there is a sense of creating together, the soul of the individual with the great Soul of God. This is what is meant to be, my beloveds, a moment by moment sense of a connection with God and a harmony that ensues that is far above anything that the mind, the material mind may conceive of. The depth and breadth, the power and the complexity of true soul awareness through the faculties that begin to be ignited by the Love is awesome in its nature and wondrous to behold. Each soul, each soul created, has this potential to express itself in its own unique ways. Thus God feels great joy in this perfect expression of His creation, the beauty of each soul in harmony in Light and Love and in connection with God.
+
+This is the way of Divine Love, my beloveds. This is what we continue to teach you. We continue to help you to observe and to be aware of your own choices for this is the beginning of everything. For it is a choice that brings you to God. It is a choice that brings you to His Love, a choice that is inspired by a soul desire. Thus you choose Light, you choose to understand your own natures, your true selves and to grow in Love. With each day you try to express yourselves in harmony with the Laws of Love and thus you choose Light, not always successfully or perfectly but in the choice you do attempt to do so. You desire a life that is in harmony with Love. Thus you draw to you the angels, you draw to you God's Touch, you draw to you the blessings of His Love, and you begin a process that changes everything within you where your choices become easier and clearer, your efforts more harmonious, your capacity to love greater and deeper, your words filled with Love and Truth. What began with desire expressed with your choice brings great Light and harmony as you continue to grow in this way. 
+
+So it is important when you speak to others of this gift to stress that it is a choice that comes with the desire of the soul. It cannot be any other way for this is the Law. You cannot do for another, that their spiritual life may be predicated upon the Truth of Divine Love by your efforts. No, my beloveds, it is reliant upon the desire and choice of each individual and your efforts are to teach and exemplify these Truths in your own life. This is all that God wishes for you to do, my beloved souls, to continue in your efforts to connect, to be in communion with God, that your souls may be open to His great blessing of Love that will ignite the faculties within the soul, changing your awareness, bringing higher Truths to your consciousness, opening the floodgates of Love and Light. This is what God desires for you and for every soul. Remember the power of your choice, your free will, how important it is, how much depends upon your choice, your desire, the true expression of yourself. For God gives you this gift so that you may grow and be in harmony within the realms of your own desire and pace of your soul growth.
+
+Such is God's Love for you, beloveds, and all His Children. He does not insist, but He does invite and attempt to inspire every soul to seek Light. So you must do the same. Thus you do the same in many ways and God will continue to open those doors for you to express this simple Truth in ways that are clear and unambiguous, ways that are true and authentic to your experience and knowledge and wisdom. May God bless you on this venture. May God be with you every moment, for He is waiting for you to lift your eyes to His Presence, to seek His Presence, to seek the holy Touch of His Love.
+
+God bless you, beloved souls. I am your teacher Augustine and I continue to walk with you and shall continue for all eternity, my beloved friends. For we all walk in the same direction to our at-onement with God. May that pace be swift. God bless you, beloveds. I love you. God bless you.

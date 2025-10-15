@@ -1,0 +1,44 @@
+---
+title: "Acknowledge Your Gifts to Allow God to Work through You"
+menu_title: ""
+description: "Matthew says Acknowledge Your Gifts to Allow God to Work through You"
+date: 2020-09-02 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Acknowledge Your Gifts to Allow God to Work through You
+
+December 5<sup>th</sup>, 2019
+
+Waianae, Oahu, Hawaii, U.S.A.
+
+Received by Al Fike
+
+
+
+Beloved souls, I am Matthew. I come to speak to you about your gifts, that as you have been sitting in circle in this Circle of Light, we have been diligent in our efforts to help you to develop those gifts that are emerging from your soul and your abilities and capacities as a channel of love in the world. I urge you to acknowledge your gifts, beloveds, to not shy away, to not doubt, to not be in that place where you recognise, yet cannot accept, those things within you. Indeed there is a certain element of vulnerability when these things, not commonly known in your world, emerge from you, perceptions of the soul, channels of healing and abilities for spirit to speak or to impress upon you thoughts and ideas and blessings. This is the world of God, beloved souls. This will become more and more your world as you shift from the intellectual and mindful perceptions of the structure of the world and how you fit into that creation of man, towards that which is the creation of God. 
+
+As God’s harbingers of gifts and of Love and of Truth, you lead the way. God pushes aside the barriers in your lives so that you may be free to express the hidden gifts within your soul, out into the world. That you may have access in a conscious and mindful way, that which is within your soul. In order to do so, it is important that you put aside your worries and cares. For the world will constantly provide you with distractions and worries and situations that draw you away from the joy within your soul. So the world tests you. It tests you with each day saying: *“Come join us in this place of mindful concern, of intellectual pursuits, of emotional pain, of desire of the flesh, desire for power and control.”* So many aspects of the human condition continue to tempt you to be drawn towards it. 
+
+Each of you have been blessed with the Father’s Love within your souls. You continue to grow within that Love. The power of that Love strengthens you and the power of that Love shifts your thoughts, your perceptions, your reality towards that which is in greater harmony with God’s Laws of Love. So you awaken, slowly and subtly, in all the ways and beauty of the soul in relationship to its Creator. 
+
+If your world is to change, beloveds, it is because there have been brave souls willing to step beyond the framework of the human condition to a place that is in alignment with God. Are you strong enough, beloved souls? Can you let go of those conditions that vex you and draw your attention away from God? For there is a way in which you may be with God and also attend to the demands of your world. A certain detachment comes where the baser emotions are not so much engaged with worry and fear and anger and reaction to those conditions that put the pressure upon you, this heaviness that brings pain to you and to all who live here. This detachment, this freedom from the conditions of this world is hard won but is possible, provided you are of great faith and that you are in alignment with God. You should allow the Hand of God upon you, trusting that God will attend to all your needs, to all those things within your life that are not in harmony and require your attention. 
+
+Yes you may attend to those you love. Yes you may engage with those who are in darkness and pain. But when you do so in the flow of God’s Love, it is the outpouring of Love, the outpouring of Light, of compassion, of gentle care for those around you that does not engage to that point where you feel and receive the conditions of another. This burdens you and can be a great temptation for you to draw to yourself these conditions. For compassion can bring an open door to those around you who are in pain. But there is a way, beloved souls, there is a way to be strong and steadfast in love, to reach out and not receive the scalding burns of those who are in pain, even those who are your loved ones. This detachment is not a reflection of uncaring and coldness of the heart. Rather it is a powerful flow of Love and healing that may manifest through you from God to that individual. Prayer, beloveds, prayer will bring some resolution to the lost soul, given time, given their decision to step into the Light. 
+
+You cannot control the world and it is best that you do not allow the world to control you. Instead be in the Grace of God, the Love of God. In this way the gifts that you have will manifest more powerfully through you and will not open you to the slings and arrows that are so often a part of life in your world. Instead each gift that comes and is awakened within you as you joyfully accept this great shift of perception and experience of life, allowing God to be ever more closely within your Light, your being. The wisdom and perceptions and love and compassion and healing and peace and joy that are all components of God’s manifestation in your life and within your soul and will continue to grow and become the guiding Light, the powerful manifestation of your unique soul awakening in Love. 
+
+So much awaits those who are strong enough, who are willing to put aside their need to be accepted by others, to be loved by others who have a need to be that center point within another’s life with the natural love connections. Rather to stand in the Light of God, to be God’s instruments with each moment, each breath, to be truly that beautiful channel for God, allowing God to guide, allowing the wisdom of God to inform you and allowing that great flow of His Love to be your expression of your being.
+
+In this way the needs of others will be given to God and when God guides you forward to attend to the need of another, it will be done in such a way that you will not be diminished or affected by the condition of another. Rather you will walk with strength, steadfastness and love. Your compassion will be the loving compassion of God, that your attendance to that individual will be reflective of the wisdom of God and the Love of God. Those gifts that you carry will become ignited for the purpose of blessing another, of giving to another that flow of Love which is so powerful. The insight, the gift of healing, the blessing of your compassion will touch another soul deeply and help to ignite a greater strength within them so that they may choose Light, that they may see for themselves a way beyond their confusion and darkness to Light. 
+
+Can you imagine the power of igniting insight and inspiration towards another soul who is lost, to ignite a desire for God’s Love within that soul? This power comes from God, not from you, beloved souls. Too often you are engaged and feel inclined to express your own ideas and energies to assist another, rather than seek God to work through you to bless another. The more powerful expression is with God, in your alignment, in that place of great strength that is your soul in alignment with God. 
+
+So if you are feeling diminished in your efforts with another and I know there are situations amongst you that are extremely challenging, I beseech you to seek council with God, to be blessed by God, to release those difficult feelings and conditions within you and be free by the power of God working through you. 
+
+I realise this is asking a lot from those of you who are very close to situations that are difficult. It is a great challenge indeed. It is certainly more easily asked than expressed. But I say to you, each one of you, if you pray to be strengthened by God’s Love, by God’s Touch upon you, if you pray that you may release your anxieties and worries and cares for another, God will uplift you. God will show you the way through your dilemmas. God will bring to you the strength that you need, the compassion, the wisdom that will assist you to work through the maze of your own feelings, your own humanness, to that place where the Divine is persistent and prominent within you. This is possible and we ask you to give great effort, to be strong within the faith of love, and ask God to strengthen you each day. 
+
+May you continue to grow in His Love, awaken in His Love, and see the way of His Love in your lives, that it may be applied and expressed in all harmony and goodness and Light. 
+
+God bless you, beloved souls. I am Matthew and my love for you is great. May you continue to find great peace and joy within your lives. In the flow of God’s Love, all is possible and all will be given. God bless you. God bless you, beloved souls. I am with you. God bless you.

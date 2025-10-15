@@ -1,0 +1,31 @@
+---
+title: "Allow God to Touch those wounded and dark recesses within your souls"
+menu_title: ""
+description: "Jesus on Allow God to Touch those wounded and dark recesses within your souls"
+date: 2017-03-15 04:43:00+00:00
+draft: False
+hidden: True
+weight: 436
+---
+# Allow God to Touch those wounded and dark recesses within your souls
+
+
+February 2<sup>nd</sup>, 2016
+
+Gibsons, B.C. Canada
+
+Received by Al Fike.
+
+
+I am Jesus and I come to be with you in your prayers, I come to comfort you in your struggles, I come to be with you in this Light of the Father’s Love, beloveds. His Love reaches deep within your souls, it reaches deep within filling those spaces where you keep your pain hidden, filling those places within you that are crying out for healing and comfort and the transformative Touch of the Father’s Love. Open yourselves, my beloveds. Feel the longings of your souls. Allow God to Touch those wounded and dark recesses within your souls, my beloveds, so that you may receive the complete healing, the transformation and the regeneration of your souls, and your souls may flourish and open and be in harmony with God’s laws of Love, that you may come to know God’s Will and come to know your true selves in this great awakening of your selves. 
+
+Continue to walk this Path of Love, to be a channel of Love, to take this highest road, to choose the Path of Love in whatever you do, however you are, wherever you are with each day of your lives, and with each breath you take. Each moment you are a child of God, you are His channel of Love and you will become strong in this Light and channel and grace. Beloved souls do not allow negative conditions and forces to turn you away from this Light. Be strong and know that God has you firmly within His grasp and nurtures you with each day that unfolds within your life, that what you do in your life, and how you are is not determined by the human condition but by God’s Will and you know this you know this and you must have faith that God is guiding you. And those who would denigrate and criticize and cast aspersions upon you are expressing their pain and their mental understandings and projections upon you. You, my beloveds, must turn to God and ask what it is you must do, how it is that you must be in this world and be free of these human conditions and expectations and be in alignment with God’s deep and loving Will for each one of you.
+ 
+Be strong in the Light. Always choose God over those who seek to manipulate and advise you, my beloveds. God’s Will comes to you as a seed of a thought, a small inkling within you and it grows as His Love nurtures this seed and brings it to fruition into your consciousness and these small thoughts and ideas, perceptions and understandings are important. It is important for you to listen, to grasp, to honor, to allow these things within you to take hold within your consciousness, for as you allow this, as you have the strength to say, “I wish this and accept this”, it will grow and unfold in harmony. You will know a great wisdom from this, a beautiful learning, and a wonderful work will manifest through these droplets of guidance which God puts within your soul. Allow this guidance  to rise up into your minds and act upon this in loving faith honoring the Will of your Heavenly Father who has much to give you, my beloveds, much to give and guide and show. As His Love pours within you so do these multitudes of awarenesses, truths, guidance, inspirations. 
+
+Your relationship with your Heavenly Father, my beloveds, is rich and full of many aspects, which if you allow them to take root and grow within your consciousness will fill you with many perceptions and understandings, truths and possibilities to be a strong and powerful channel of Love in the world. 
+This instrument has had such an experience a few days back where a seed of a thought was planted within his consciousness as he asked the question, “What can I do to expand my ministry in the world? How can I be a greater channel of Love?” And some guidance was given and he is reluctant to grasp this because he feels that it is a different way and route and possibility, but I tell you, this is true guidance and this is another door opening to the flow of his work in this world and God’s Will that works through him in this world. Do not resist, my son, but allow God’s loving Hand to reach through you to many others. He has the Gift of writing. He has the Gift of mediumship. He has had many experiences upon his path and spiritual awakenings. It is time to merge these Gifts and perceptions and understandings together in a way that will bring powerful information through him for others to increase their understanding, to inspire and stimulate their pursuit of Truth and Love 
+
+Yes, each of you, my beloveds, have great potentials, possibilities and as the Love fills your souls and opens the doors within you, you will find surprising outcomes, unexpected expressions of the Love within your lives, within your beings. This is the power of God’s Love and this is the awakening of your souls, my beloveds. You do not understand the power of your soul, the possibilities that lie within your beautiful souls. It is a treasure trove of Gifts which can be awakened if you so desire, if you give yourselves to this unfolding of your true selves upon this Divine Path, all will unfold in harmony with God’s Will and laws of Love. 
+
+There is nothing to fear, nothing to fear and much to gain as you explore your Gifts, your great, beautiful potentials. Be at peace and know that God truly loves you and is nurturing and guiding you upon your path, and I walk at the head of this Path with my Light and my love for you and shall serve you and all of humanity and all the angels and all the spirits in this great universe, for God has gifted me with His Love and I have within me a great love for all humanity, for you are my brothers and sisters. You are my brothers and sisters and part of my family of Love. Continue to follow me and follow God in His great, guiding wisdom and Will and Love for you. God bless you, my beloveds. God bless you.

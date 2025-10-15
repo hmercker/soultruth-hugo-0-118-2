@@ -1,0 +1,47 @@
+---
+title: "Each Individual Experiences Their Spiritual Journey in a Unique Way"
+menu_title: ""
+description: "Seretta Kem speaks of Each Individual Experiences Their Spiritual Journey in a Unique Way"
+date: 2019-01-26 23:21:03+00:00
+draft: False
+hidden: True
+weight: 386
+---
+# Each Individual Experiences Their Spiritual Journey in a Unique Way
+
+March 30<sup>th</sup>, 2020
+
+Received by Al Fike.
+
+Gibsons, B.C. Canada
+
+
+It is Seretta Kem. I wish to elaborate further on the talk which our beloved [Josephus](/contemporary-messages/messages-sorted-year/messages-2020/how-to-deal-with-the-changes-af-29-mar-2020/) gave the other day. I especially want to address the variations of experiences that individuals have while praying for Divine Love, reaching out to God and connecting with your angel friends. 
+
+The mortal, and the spirit for that matter, is a complex creature. In your world, the material world, to some degree each individual constructs its own reality. Each individual’s experience of life is unique. Though there are many aspects of life that overlap one another and certainly the core of the experience of life is identical because of the various aspects of the material world. Yet each has a mind to interpret these experiences and each perceives differently. Some elements of perception are heightened within each individual therefore creating a kaleidoscope of tactile, visual and sensual information that varies from one individual to the other.
+
+So a group of individuals may witness some event together and relay their experience of that event in a way that varies greatly. So it is with prayer, receiving God’s Love and all that comes with this experience. Most of your experiences, be they spiritual or within the world of matter, are determined by your mind and your perceptions. So these variations of experience and of absorbing a particular event, will bring a great deal of variation in this experience. Few will have a similar experience especially when it comes to the spiritual experience of receiving the Divine Love.
+
+Some are very gifted psychically. Some are very gifted visually. Some are very gifted in their ability to be in tune with their feelings. So these enhanced aspects of the experience with each individual determines greatly how they may interpret and consciously acknowledge the experience. Each individual creates their own paradigm of reality, slightly different from the next and the next. Your cultures determine much of this, your education, your individual experience in life, your physiology, the make-up of your brain and all its functioning together, the synaptic connections between all of these aspects of the brain and your emotional state at any given time. That information which you call truth and which is that which you have absorbed over the years, will inform your perception of the experience. These many aspects of the individual conspire together to create your individual paradigm of reality.
+
+So each individual experiences their spiritual journey in a unique way. You have acknowledged this. You have been told of this and you accept this. Thus we encourage you to embrace and to accept each soul you meet upon your path, for each soul that you meet carries with them a different story and a different perspective. Yet, for those of you who pray for the Father’s Love, this highest of blessings, this deepest of blessings to the soul and at its core is a commonality, an experience of recognition from those deep places of your soul that is similar to each who participate and walk upon this path. It is the interaction of all of these elements of which I have described within the individual that conspire to cause the individual interpret this experience in their own way.
+
+Some will suggest a sensual experience of receiving God’s Love bringing warmth to the body, a heightened sense of joy, of peace, of love and that this inflowing of Divine Love enters through the solar plexus area of the body and brings about these physical sensations with it. Others sense receiving the gift of Divine Love through the top of their crown. This too is a valid experience for the individual. Others suggest they feel nothing, yet they are uplifted. Their temperament and feelings and sense of being, of well-being, come with this experience and linger with this experience. There is always something to acknowledge, proving to oneself that the experience is real and that there is a benefit.
+
+As the dear wise soul Josephus has explained, it is due to the openness of the mind and the ability to see beyond those areas of the mind that are of words and thoughts that one may experience these things more readily. As he has said, it takes discipline, a desire to go beyond that superficial stimulus of the mind. For a great many in your world, this is a difficult dilemma. The challenge of counteracting what you call busyness of the mind is difficult. Your habits, your thoughts, your focus of consciousness towards the material, your lack of consistency and dedication towards the spiritual and all the other factors, both physical and spiritual, will determine your experience in prayer.
+
+Some practice the art of meditation, using yogic movements or rituals that enhance and encourage the mind to recede and the soul to come forward. All of these tools are valid, provided they do not detract from the effort of prayer to receive God’s Love. Unfortunately, in your world, the rituals, the movements, the ideas, the explanations become greater than the actual process of receiving and going deeper within. This is a reflection of the mind in control, locking down the consciousness into one stream that is acceptable to the mind and comfortable to the mind. You have been urged, beloved souls, to move beyond this place, to go to God with your soul open, your feelings fluid, your desires transparent and your longings evident. In whatever way this becomes the active agent of prayer, then you have found that way which is in harmony with your being and your efforts to go to God.
+
+The litmus test is in that exceptional and unique experience of knowing that you have been blessed by God with the inflow of His Love. If this is your experience in prayer, if all the other aspects of your spiritual endeavors conspire to bring you to that place of receiving the Father’s Love, then you are on the right track. When you have found this place, this sacred and holy place of connection with God, then you are well on your way to truly understanding what this gift is and what it may bring to your lives. The door is opened. The journey begins. Transformative experiences come close. The consciousness of God grows within you. 
+
+My beloved and beautiful friends, do not be discouraged when you pray and you feel very little. This is only the beginning of a very long journey, a journey that will last for all eternity. God endeavors to open you to all the experiences of the soul that are possible. Your angel friends help you to come to that place of acknowledgement, of conscious experience and your soul longs for this. If you honor your soul in this regard, with all sincerity and longing, I say to you that the experience and the acknowledgment of this gift will become evident in some way. That way is determined by your own unique self and experience of life. 
+
+Though it is a human quality to compare one to another, I say there is no comparison between one soul and another. There is only the loving and open sharing of one to another of their unique truth and their unique experience in life. If the individual who you shared with is open and loving and accepting, then you have created a bond of understanding between you. In this, God is pleased. God wants all His children to have the eyes and ears, the minds and the souls to acknowledge their brothers and sisters as they acknowledge God in all His bounteous, loving expressions towards you.
+
+Very little is held back from you, beloved souls. A great wealth of knowings, of understandings, of joy, of love is set at your feet. It is for you to set aside your mindful concerns and obsessions to be in that place of innocence and openness, of clarity, of honesty, of soul longing so that God may reach you and that you may see and understand and know in this experience of communing with God.
+
+Many of you feel greatly challenged, but I say to you, it is not so challenging as you may think but requires your dedication in prayer, your dedication to open those doors, to go beyond those things of the mind to that place of soul, to that place that you all possess, that place that awaits your time and inclination to enter.
+
+May God bless you in this effort to know your own soul and know God’s Great Soul. So much will come in this way. You are birthing a new paradigm of understanding. The soul will show the way and bring to you one by one the gifts that it possesses, blessing your mind with all manner of experiences. Open yourself to this place of acknowledgment where the soul and the mind are connected and communing together in prayer.
+
+May God bless you, beloved souls. I am Seretta Kem. Thank you for all your efforts, desires to seek out the soul and thereby seeking out your relationship with God. God is with you always. We are with you always. Come to know this to be true and you will be blessed greatly. God bless you. God bless you, beloved souls. My love is with you.

@@ -1,0 +1,40 @@
+baseURL = "https://soultruth.ca/"
+languageCode = "en-us"
+title = "Soul Truth"
+theme = "newbirth"
+enableRobotsTXT = true
+googleAnalytics = ""
+
+[outputs]
+home = [ "HTML", "HEADERS" ]
+
+[mediaTypes]
+[mediaTypes."text/netlify"]
+suffixes = [ "" ]
+delimiter = ""
+
+[outputFormats]
+  [outputFormats.redirect]
+    mediatype = "text/plain"
+    baseName = "_redirects"
+    isPlainText = true
+  [outputFormats.HEADERS]
+    mediatype = "text/netlify"
+    baseName = "_headers"
+    isPlainText = true
+    notAlternative = true
+
+[[menu.main]]
+    name = "Home"
+    url = "/"
+    weight = 1
+
+[params]
+  [params.homepage_meta_tags]
+    meta_description = ""
+    meta_og_title = "Soul Truths"
+    meta_og_type = "article"
+    meta_og_url = "https://soultruth.ca/"
+    meta_og_image = "https://soultruth.ca/images/social.png"
+    meta_og_description = ""
+    meta_og_site_name = "Soul Truth"

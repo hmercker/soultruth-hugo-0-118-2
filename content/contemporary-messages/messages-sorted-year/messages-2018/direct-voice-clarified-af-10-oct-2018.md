@@ -1,0 +1,34 @@
+---
+title: "Direct Voice Clarified – Alignment of Soul"
+menu_title: ""
+description: "Direct Voice Clarified by Seretta Kem – Alignment of Soul"
+date: 2020-06-11 07:27:15+11:00
+draft: False
+hidden: True
+weight: 358
+---
+# Direct Voice Clarified – Alignment of Soul
+
+October 10<sup>th</sup>, 2018
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+ 
+
+You have had some expectation of my speaking of the direct voice and I am happy to do so this day. This instrument is correct in his perceptions that indeed the direct voice, the potential for it, is firmly in place within each one of you. What I wish to clarify is what you call direct voice or your ideas of this gift may not be quite correct. This instrument has observed and studied the components of ectoplasmic manifestations recently. This is a very physical and mechanical approach to bring forth spirits for the five senses to acknowledge. This is not our approach and I believe that you understand this. What will manifest through you my beloved friends will be somewhat different, because we are engaging the soul in this process and the vital components of bringing forth this manifestation comes from your souls, not from some organ in your body. (So not ectoplasmic) Thus we encourage you to continue to awaken your souls through prayer beseeching God for His Love. 
+
+In this way you ignite a reaction that relies upon the alignment of your soul, your spirit body and your flesh body in a way that allows a measure of physicality to the manifestation so that each part of you is engaged in this and the alignment is important. Think of aligning several prisms or several lenses together thus creating the effect of a concentrated beam of light. This is similar to aligning these components of your being and focusing the energy. In so doing with our help, we may create an image that is seen by the physical eye, heard by the ears and acknowledged by all the senses. This image will not be entirely physical. It will shimmer and be translucent but it will be seen. Voices, even music may be heard. Light will manifest, many colours and many images of light will appear. Yes through this technique, this gift, Jesus may indeed appear for he adds his component, his gifts to this, which will make his appearance substantial in nature. This instrument was given a vision of such many, many years ago and it is true and it shall come to pass in some way, by some means.
+ 
+I wish to assure you my friends that when you speak of direct voice, you speak of something that is important and substantial. You have had many ideas as to what this is, so I wish to clarify and when the right time comes for you to exercise these gifts for the purpose of bringing the truth to mankind, it shall be so, given the right conditions. Your attitudes and light and love contribute to this, for love is the most powerful force in the universe. The greater the love that is within your soul and expressed through your being, the greater the potential for the expression of this gift.
+
+To serve humanity my friends is the goal. This is not to satisfy your own curiosity, or to assuage doubts that you may carry within you. No, this is to serve and to demonstrate the truth. For all of us to be together in unity in this regard, putting aside your mindful anticipations and ideas as to what this is, is helpful. Moving in innocence and faith, love and joy, allows God’s blessings to be spontaneous. Since all of these things come from God, the closer you are to God, the more powerful will be the blessings and that which comes through you for others. Humility my friends, it is important to walk with humility. Do not add a structure of expectation, an analysis of what this gift is and how it will manifest and who is able to do so and who is not. It is not relevant. It is your prayers that the manifestation of love, light, truth, peace, comfort for humanity is what is important.
+
+In order to find your place within the flow of God’s plan for the salvation of mankind, humility, faith, trust, desire and innocence is important. Many of you are feeling within you the birth of something very tender and new as your souls continue to be transformed by the Father’s Love. In this birth you come to know your own innocence, your own beauty and you come to love yourself in that new way, a deeper way. Continue to nurture these things within you and focus on your relationship with God, to walk in the world as a channel of love. It is easy to think that you will be recognized once such gifts manifest and you long for this. Yet the true recognition, soul to soul, comes from the light within you. This is the manifestation, this is the power and the beauty that moves others, this is the true, authentic, powerful and beautiful expression of your soul. The Master Jesus walked in this way, he was an example, he taught, he spoke, he touched others, embraced them in love and was a channel for healing. He did so with God’s guidance and Touch upon him. He is your example and he leads you today as he led others in past times and continues to lead many more in spirit. This is your example. 
+
+I urge you not to be overly concerned about the manifestation of what you call direct voice, yet be assured that this gift exists. It exists within each one of you and will manifest in God’s good time and Grace. There is no need to exert your will in this direction. Instead, exert your desire towards God and all good, beautiful and wondrous gifts shall come from this relationship with your Heavenly Father. It is that simple, beloveds, always, always that simple. No need to complicate, to ruminate, to project, rather be God’s children in His Love and Light. 
+
+Be at peace and know that there is a plan for the salvation of mankind. You need not overly concern yourself as to where you fit into this plan. For this plan is exercised each moment and as long and as you are attuned to God, then many things may come. The alignment of your being is important to be a clear channel, an instrument. It would be advisable to focus upon this, that all parts of you are infused with the Father’s Love, that you allow the wisdom of your soul to dictate your actions, whether it be the food that you eat, the conversations that you have, the actions that you take in your life. All that you do must reflect love, and in this way the alignment will take place more refined with each day, until indeed that light becomes concentrated and powerful, allowing many gifts to manifest. But that light must come from your soul and that soul must be filled with light. So it will be in all things, the infusion of God’s Love in everything.
+
+God bless you my beloved friends. I am Seretta Kem. I continue to assist you upon this beautiful journey, soul awakening, exploring the potentials of your soul, expressing the love in all kinds of ways and means. God bless you. God bless you my friends. My love is with you all.

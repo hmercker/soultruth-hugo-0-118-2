@@ -1,0 +1,33 @@
+---
+title: "Be God's Waypoints upon the Earth"
+menu_title: ""
+description: "Jesus asks us to Be God's Waypoints upon the Earth"
+date: 2021-08-05 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Be God's Waypoints upon the Earth
+
+July 18<sup>th</sup>, 2021
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+
+May the gift of the Holy Spirit touch your souls, my beloved brothers and sisters. I come, I am Jesus. I come because your prayers are deep and strong and bring me to this earthly plane to come to pray with you, to join you in your efforts to bring greater light to this world. I come to tell you that you are all channels of God's Love. At times that channel is bright and powerful. Each of you is a waypoint of light in the world. Consider this, beloved souls, that you are scattered throughout this world and that you do God's Will at times, and bring His Love through you to others. As you walk in the world in unison with God, then that light spreads as a great arcing circle around you and you become God's instruments for that moment, touching all you meet, touching the ground and touching the heavens. It brings the curiosity of mortals and spirits who do not yet know of this great gift of God's Love, and they are drawn to you because they feel the condition of love around you. And in this God intensifies His blessing around you.
+
+As you walk the earth, so you are blessed. As you reach to God, so you are blessed. As you reach within your soul and seek for the redemption of His Love, so you are blessed. Each of you have the potential to be mighty and powerful channels of God's Love and Truth in the world. Each of you can contribute to God's plan for the salvation of your brothers and sisters in this world, to bring it to light. As you walk in the world as lights, so you ameliorate the conditions and the reactions in your world that is bringing great suffering to many. The more of those who bring this light to the world and walk in light wherever they are and whatever they do, it will help to dispel the darkness, the chaos and those difficult conditions that are continuing to be expressed in your world. God does not want His children to suffer. This is needless, for change can come in harmony given the openness of His children to accept that which is in harmony with His creation, rather than insist upon those things that are in harmony with their will and desire for power and control of the earth.
+
+If humanity had but a measure of humility within them, a measure of insight, a measure of love, a measure of kindness and compassion, a measure of understanding and truth, so the world would be a different place, for humanity could not live in the conditions that it now creates for itself and would be compelled to change. Each of you are compelled to live in light. Indeed, at times it is difficult and uncomfortable because with light comes the insight into your own condition and your own way of life in the world and your soul compels you to act, to change, to accept new ways and new perspectives. God lays before you greater opportunities, a new path that leads you more quickly to light, harmony and love. 
+
+Be God's waypoints upon the earth expressing love wherever you go. Do not diminish yourself and your thoughts and your ideas of who you are, for many of you do not know truly who you are and all of you do not understand fully the great potentials of your soul. You continue to beseech God to ignite those potentials and awaken you to your true self. Indeed God responds by sending His Holy Spirit to touch your souls.
+
+Beloved and beautiful brothers and sisters, may we walk together in harmony, in truth, and love. May you see with the eyes of compassion and love for your brothers and sisters, may you come to understand that all that man has created will evolve and change and transform into something more beautiful and more harmonious upon this world and this in turn will affect all worlds. This in turn will affect the souls that are coming to incarnate in your world. This will change the trajectory of human history. And you, beloved souls, are a part of this and shall become a greater part as you walk more fully upon the path of love.
+
+May you be inspired and blessed by God. May we come close, ever closer, so that we may as brothers and sisters walk in greater light upon your earth, for we will be with you as you continue to be God's waypoints of light. We will continue to work with you and through you. Our deep desire is for the healing of your earth, for your earth is the beginning of life in the material and spiritual world. If this foundational part of every soul's journey of life is in harmony and love, so all that follows will be in harmony and love. So you can see that these efforts are crucial, are very, very needed, and your efforts are indeed the beginnings of God's plan upon this earth. May you see yourselves in the light of your souls, in the light as we see you, in the light as God loves you. May you walk in this light and know yourselves in this light, and love yourself and all around you in this light. In this way you do God's work, you fulfill God's plan, and you help to begin the transformation of your world.
+
+I am with you, beloved souls, with you in love, with you in the power of love, the grace of love, the blessings of love, the truth of love. I am with you and shall walk with each one of you as you stride upon this path of love and bring greater light to the world. I am with you and shall never leave. Know that I am with you. Be comforted that I am with you and many angels accompany you upon this earthly path as you are needed, beloved souls, you are needed to help transform the world from a place of darkness to light, to help bring the world to harmony and peace, to help bring the simple truth of love to every soul that walks your earth, and every child that is born, and all who are upon this path of life. May they know the truth that God loves them, that they are born in love, that they may live in love, that they are channels and expressions of love, that their souls may be awakened, and the earth may know the blessings of each individual soul living in harmony with God and what that may bring to this world, for that will transform everything, everything. Beloved souls, we walk together, we are together in this great mission to bring the truth of God's Love to humanity.
+
+May the blessings of His strength and peace, His truth, His healing His joy, come to each of you, beloveds. God bless you. I am with you. I am with you and my love is with you. God bless you, beloved souls. I am Jesus and I come to be with my brothers and my sisters upon the world. God bless you, beloveds.

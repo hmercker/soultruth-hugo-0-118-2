@@ -1,0 +1,31 @@
+---
+title: "The World is Enshrouded in Mist and Hues of Grey"
+menu_title: ""
+description: "Augustine says The World is Enshrouded in Mist and Hues of Grey"
+date: 2020-03-26 23:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# The World is Enshrouded in Mist and Hues of Grey
+
+January 7<sup>th</sup>, 2020
+
+Received by Al Fike.
+
+Gibsons, B.C. Canada
+
+
+It is your teacher, Augustine. The world is enshrouded in mist with hues of grey, some dark, some lighter but very little light. As we approach your Earth, so we must penetrate this misty environment created by the conditions of humanity upon your world. The oppressiveness of this blanket is difficult for each of you to live within and to become clear of in your daily life and prayers. It is the power of your own prayers that is capable of clearing the air and bringing light.
+When you pray for the inflowing of God’s Love, so you make for yourself a little oasis of light in this dark world. You draw to yourselves the angels of God from the Celestial Heavens to be with you in this concerted effort and humble prayer to God. It is important that you know this when you feel the oppression of this dreadful blanket of the human condition that you will put yourself to prayer clearing those conditions around you and to be in the Light for this blanket and mist moves and shifts and encircles your world.
+There is a need for great vigilance and the knowledge that you must have one hand reaching out to God at all times. No matter what you do you in your world, ensure that your thoughts and your motives are clearly aligned with God and that the power of God’s Love within your soul is a beacon that shines through these conditions. So much in your world continues to strengthen and darken this great cloud around you. It is indeed necessary for you to continue earnestly in your prayers to work towards light always for each of you have experienced the dark conditions of your world and have felt its oppression and mantle upon you.
+Now you realize that there is an antidote to these conditions. There is a way of neutralising the darkness. So you must use this knowledge and utilize the power of your own desire and intention of the soul to help dissipate this condition. You may pray for others as well. Pray for the cloak of protection for your brothers and sisters. Pray that the dark conditions may be dispelled with Love and Light and efforts on the behalf of humanity that are of Love and Light, that God’s Hand may come to you and to all in your world and with these blessings, a light may be strengthened and the darkness diminished.
+Prayer is a powerful thing. It keeps you in the Light and protects you from the darkness. Just as you have shelter and food and all that you need in the material realm, so you must ensure that you are rich in light, provided for by God, and awakened in your soul so that your lives may be one of joy and great fruition of your soul’s purpose and desires and alignment with God.
+Consider this, beloved souls, your responsibility towards yourself and towards this world to help dissipate the darkness, to help generate light and be a co-creator with your Creator in this process. Each of you have a great hidden power within your soul that may bring great blessings toward yourself and toward others but it is your choice and it requires your efforts and focuses. It is your prayer, your desire for the highest of gifts, the blessings from God, the fulfillment of your soul in Love. These things generate Light. Your thoughts can generate Light. Your actions and intentions can generate Light. Light is the antidote to darkness.
+Consider what you bring to the world, what you can give to the world with each moment and each breath. Consider that in prayer and with the desire and thought and action, everything that you do may bring greater light and neutralise the darkness for there are many places in the world that are very dark and are suffering at this time. There are eruptions and indications of greater darkness as the will of men continue to try to tame your world and tame the peoples of your world.
+There is no more important time and a greater need than now for your prayers and efforts to bring light to yourselves and your brothers and sisters. Continue to pray. Continue to be in alignment with God. Do so with faith and confidence that your efforts are important and have meaning and purpose. Be in alignment with God and strive each day to continue to strengthen your alignment and harmony with God. In this way, great blessings flow, possibilities are realized and Love abounds. This is the key to your own well-being and joy in your life.
+An awakened soul is immune to darkness and can indeed be a great instrument to alleviate the darkness. May you all find enlightenment through the gift of God’s Love in your soul and dispel whatever darkness that may cling to you or to your families or to your area in which you live. All these places in the world from which you come are in need of your light and your instrumentality as a channel of God’s Love to dissipate the darkness, to bring Truth and Love and joy to the world.
+I know you have great concerns. I know you see around you fomenting darkness, crises, problems, suffering and error. Your greatest ally is God. Your greatest instrument is your own soul. The greatest possibilities for Light may be realized through your efforts in prayer and your actions guided by God. May all these things come into alignment and make you an effective instrument for Light in the world. God yearns for your partnership in assisting in the healing and transformation of your world.
+May you see the role that God has designated for each of you. May that insight and perception come to you clearly and powerfully so that you may move within the Will of God and act accordingly. May God bless you upon your path. May God show you the way. May God strengthen and guide you and teach you about the ways of Light and Love.
+
+God bless you, beloved souls. Your teacher Augustine is with your in your journey and awakening. God bless you. My love is with you.

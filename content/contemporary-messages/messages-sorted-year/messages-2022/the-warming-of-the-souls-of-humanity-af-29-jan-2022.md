@@ -1,0 +1,36 @@
+---
+title: "The Warming of the Souls of Humanity"
+menu_title: ""
+description: "Orion tlks of The Warming of the Souls of Humanity"
+date: 2023-02-28 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# The Warming of the Souls of Humanity 
+
+January 29<sup>th</sup>, 2022
+
+Gibsons, B.C., Canada
+
+Received by Al Fike   
+
+
+
+The continuation of the transformation of your world will bring a warming of the souls of humanity, a sort of awakening that in time will bring to consciousness a yearning and desire that originates from the soul so that humanity may feel motivated and inclined to turn their eyes to God. This warming of the soul will manifest in many different ways and as is the case in your world, will be interpreted in many ways. Humanity has put on its spiritual journey, many filters, biases, ideas, and inclinations that are of the mind and so therefore, the pure longing of the soul is often distorted by the interpretation of the mind. 
+
+Yet, even with these distortions, filtering and interpretations, the yearning and burning within the soul will find its way to the consciousness of man. For as the conditions of your world continue to change and intensify, so this condition, this energy that is placed into the soul by God, will intensify with it until the whole world is feeling a need for change and awakening. In that dawning awareness, many of the old ways will be rejected and a feeling and sense that the material goals are no longer enough to satisfy the individual. Many will feel frustration, anger, and confusion. They will doubt everything. This is the mind rebelling and reacting to that which is within the soul, powerfully turning the consciousness of man towards the spiritual. 
+
+This is a time when you will be very active indeed, and the time when those gifts that have been implanted within you will be predominant and will manifest in many ways. We prepare you for this time, and this time is coming sooner than you think. A deep yearning will blossom within humanity, and to complement this shift of consciousness, we and many others will manifest upon the Earth to help humanity understand what it is that is taking place. God’s plan for the salvation of humanity has many aspects to it and much that will come of it. Each individual upon your world will be touched by God’s intention for the soul to know its own self, that each individual may come to see themselves differently and deeply. They will begin to understand that there are deeper faculties, more complex gifts, and possibilities within the individual. God will open many doors at this time and much focus will be upon your Earth, for it is the birthing of a new world, a world that is much more in alignment with God’s laws, God’s Creation, harmonizing with the laws of love. 
+
+Yes, there will be at times, conflict, disagreement and resistance. For, this is the way of you humans, to walk in the world challenging everything and finding your own way within the paradigm of the realities which you create by your minds and your actions. So the new reality of God’s Creation will not be embraced by everyone. In fact, many will not choose this because of various reasons and affiliations, for the mind is a powerful thing. The mind carries many intentions and perceptions about the world and about their place and experience in the world. Since God cannot thwart free will, He cannot force His children to drink from the trough of the Truth and the Living Waters therein, but God is always making available to humanity an opportunity to do so. The invitation continues to be repeated continuously and constantly in the lives of every human being. 
+
+Choice matters and is a powerful determinant to the conditions upon your Earth plane. This is why it is so important that God may have His shining instruments upon the Earth, examples of this Truth, living it in every way, allowing this Truth to permeate every part of you, every aspect of your lives. In this demonstrating a new way of being, a new focus, new priorities, new desires, new actions and outcomes that are more in harmony with God’s Laws of Creation. There are many like you in the world, God has seeded many with the propensity towards light and love. Their approach may be different because of their biases, whether they be cultural, mental or both, yet within them is a soul warming to God’s Love, feeling that desire, that yearning coming forth to consciousness. The harbingers of Truth are being prepared and awakened. 
+
+Few in the world have the clarity as you do of this simple Truth and this simple way. With simplicity comes strength, clarity, and a purpose that is not muddied by the ego and the desires of the mind. Within each of you is a desire to serve God, to do so with humility and grace, and so you will, my friends, so you will. You will find yourself each day inching closer to that purpose that God has put within you before you incarnated upon this world. When that purpose blossoms forth and you see for yourself in every way what it is that you are meant to do, the gifts and abilities that are intended to blossom and awaken within you. You will feel such joy and appreciation for who you are and for what God has created and His intention for you, which is of the utmost and highest purpose, reflecting the highest Love, the highest Truth, and the highest intention. 
+
+You will reflect this, my friends, and do so willingly and without reservation nor doubt nor confusion. You will act reflexively and clearly, and the power of this clarity will ignite many manifestations and blessings in your life and in your mission. Many souls will benefit from your strength, and light. Every moment of every day will be purposeful, and the Light of God will shine forth through you in powerful ways. You are beyond this warming of the soul, it has turned into a flame of the Truth, a beautiful manifestation and acknowledgement of the Truth of God’s Love for each soul. So this flame will grow and brighten and strengthen. The warmth will become a burning, a passion, an expression of the soul awakened by God. 
+
+May you come to that place readily with deep longing and desire so that you may join us as equal partners in this great endeavor to awaken humanity and be truly a part of God’s plan. Each of you has this potential, this beautiful light, this magnificent possibility. Do not doubt yourselves and do not feel unworthy, but walk in the joy and true knowledge that you are a child of God and that God is guiding, protecting, blessing, awakening you with every breath. 
+
+May God bless you thus upon your journey. We are with you. We are with you and have great hope and trust and faith in what is to come upon your world. We walk hand in hand towards this destiny, beloved souls. Blessings to you and love, love that will reign supreme within your hearts, within your lives, and in time, within this world of yours. God bless you. I am Orion. My love is with you always, beloved friends of Earth, blessings of light and love always.

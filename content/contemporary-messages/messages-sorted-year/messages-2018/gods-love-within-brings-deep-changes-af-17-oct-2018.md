@@ -1,0 +1,32 @@
+---
+title: "God’s Love Within Brings Deep Changes to Your Lives"
+menu_title: ""
+description: "Matthew says God’s Love Within Brings Deep Changes to Your Lives"
+date: 2020-06-18 06:00:01+11:00
+draft: False
+hidden: True
+weight: 362
+---
+# God’s Love Within Brings Deep Changes to Your Lives
+
+October 17<sup>th</sup>, 2018
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+ 
+
+You are at the threshold of a new life, a new way of being in this world. At present you are letting go of the vestiges of the old, releasing your old fears, old expectations, old desires and coming to something new and beautiful. The power of God’s Love awakens your souls. They stretch and yawn from their deep slumber while coming back to life. In this, the world will take on a different light, different meanings, different purpose, different priorities, different desires and different intentions all reflecting the perspective of the soul rather than that of the mind. You will feel God close to you, beloved souls. This awareness will be with you always and in this deep, comforting knowledge will come your strength, will come your wisdom, will come a deep love for all.
+
+Yes your life will take on a new luster and all will fall into place, harmony will ensue from the perspective of the soul. For as your wisdom grows, so those decisions that you make in life, those responses that you have with each moment, those desires that you make and express in each day, will be different. New vistas will open up for you my beloveds, new ideas, new directions and a different understanding of the meaning of life. You will have a burning desire to serve humanity because the love that will burn within your soul will compel you to serve, to touch others, to comfort and to be a comfort and a source of strength and love for many. This will flow bountifully and intensely at times. You will be filled with a yearning, a yearning to uplift humanity and to walk in the Truth of God’s Love upon His path towards at-onement. 
+
+Each time you sit as you do now beseeching God to receive His Love, it will be uplifting and beautiful and deeply rewarding and so much of your time will be spent between quietness with God and active service in the world. You will find your balance beloveds, so that your need for rest and recuperation and nurturing of your soul will be fulfilled and great opportunities will come to you to serve in creative and dynamic ways. Many will marvel at your ability to see clearly what must be done and to act accordingly. You will walk with such strength and clarity that many will step aside as you walk along the street in deference, not knowing why, but feeling within them, this individual is one that deserves my respect. Some will fear you because they do not understand the power which you bring. Some will revere you because they acknowledge that you have stepped forward in the light and have the acknowledgement of God within you. But few will be indifferent my friends, for when that wondrous gift of love is so powerful and evident, it brings attention, it brings others to notice you. Some are drawn and some are not.
+
+Beloveds you have worked very hard to come to that place of acknowledging your own soul and establishing a deep relationship with your Creator. The fulfillment of that effort is the awakening of your souls. You will see that many aspects hidden within you will now emerge and be expressed readily in your life. When there is a time to act upon your guidance as God wills you forward, you will have the strength and the clarity to act in harmony with His Will. You will walk as channels of light and love, you will act in accordance and in harmony with God’s laws of Love. You will manifest many gifts and blessings for others, not just one gift my beloveds, but many. They will flow and manifest and be evident without your conscious effort. Rather, it will be a willing response from your souls, something that flows in the deep flow of God’s Love, something that brings light and joy, fulfillment and peace. Know that you will not struggle my beloveds. As you carry on in the light and grow ever further in love, life will become easier for you. Those needs of the past will not be so intense and demanding. You will find fulfillment in being in the moment with God acting in the moment with guidance and perception of the soul. This will be a great strength. You will enact things within this world, ideas and actions that will seem remarkable. The power of your perceptions and understanding will seem as if you have known all along the solutions that are sought after by your brothers and sisters. This will flow through you like a river of deep awareness, clear wisdom, powerful insights and loving solutions to many dilemmas. Others will listen beloveds, and will listen intently as you in your humility and innocence speak with wisdom of the soul, as a channel of God’s Love and intention in this world. 
+
+So much will come my beloveds from this time together, so many blessings will flow, so much deep knowledge and understanding will emerge as the soul awakens and comes to consciousness. Beloveds, this is a very important time. It is a time of preparation and development, of truly knowing your own soul and glimpsing into the potentials that exist within you. Do not inhibit in any way the flow of this revealing of your true self and gifts. Merely walk in faith trusting that God has placed you together, upon this path together to work, to be a channel deep, deep and filled with love.
+
+As we have said many times, much awaits you beloved souls, so much. May you continue to awaken, to know your true selves and to be with God always in the flow of His Love, so deep and pure, so powerful and cleansing of your inhibitions and conditions that need to fall from you beloved souls. God reaches up to you with such power and Love. How blessed you truly are, how beautiful is your path, how fortunate you are to be upon this journey of awakening. All because you accepted the truth and committed yourselves to such. All because you trusted in God and made the decision to face towards the light and to shed all that is not of light. This brings such joy to God, and this joy will also burn in your hearts for all eternity. 
+
+God bless you beloveds souls. I am Matthew, I love you. God bless you.

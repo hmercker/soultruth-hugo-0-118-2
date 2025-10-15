@@ -1,0 +1,33 @@
+---
+title: "The Divine Path is Different from the Natural Path"
+menu_title: ""
+description: "Lao Tsu says The Divine Path is Different from the Natural Path"
+date: 2021-06-18 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# The Divine Path is Different from the Natural Path
+
+June 8<sup>th</sup>, 2021
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+
+Children of the world, I am Lao Tzu. I was once a philosopher, a teacher, a spiritual guide many, many years ago and I have existed for a long time in the world of spirit and have progressed into the Celestial Kingdom. And so I wish to speak about the travels of the soul. 
+
+For many in your world, these travels begin with a rudimentary understanding of themselves and their own potentials and they seek to perfect themselves in many different ways and so their spiritual journey often begins with ideas of the mindal understandings that are fabrications of the human mind. So they begin a journey to perfect those things within them, that which God has instilled within every human being. That journey we call the road of the natural love. For it is in perfecting the human condition and human potential that these attributes of love emerge in all their purity in light and they are beautiful to behold. There is much within every human that can come forth and be expressed in the world in a multiplicity of ways.
+
+But as we have taught you over the years that the road ends with the perfection of all those attributes and gifts of the human quality and thus, those of you who pray together in this way and come together and speak of the journey of the soul, you indeed have embarked upon a path that is somewhat parallel. You must struggle through the human condition and purify all those things that are not in harmony and not pure, but the journey is in essence a different journey. It is a journey where you come to God, foremost and primarily, for the nurturance and guidance you require to awaken your soul, and to receive this great gift of the essence of the great Creator of all. That essence is the Divine Love, a love that is indeed unique to God and only given to those who are desirous of this gift. Through receiving this gift of Divine Love, so your perceptions and experiences of the world are modified and different because you have added an ingredient, something that is indeed unique and of the Divine, purely and fully of God.
+
+The journey of soul awakening in time goes far beyond the experiences and perceptions of the purified natural man. One becomes transformed, awakened and in alignment with God. In these awakenings, in this change within you, so much comes that will bring you to perceptions far beyond the capacities of the mind. It is the soul awakened that will bring to you deep insights, understanding, perceptions of those things of God and the creations of God. The laws and lessons of God come to you with great clarity, depth and power. In all of this comes a budding and blossoming within you that reflects the great love of God pouring through you, lighting all the wonderful aspects of your being, both those things that you have been born with and those great potentials of the soul that can only come alive with the blessing of Divine Love, the essence of God. So your journey is different, beautiful lights in the world. Your journey reflects the awakening of your soul and all that that entails. This journey is unique for each of you as the perceptions and gifts that you carry make for  a unique experience in life. That beauty, that precious flower so unique, that is your soul, will continue to blossom forth and become ever more beautiful as you walk upon this ‘Divine path'.
+
+So you see, you are different from many. Your journey is different and indeed, you are unique from anyone else who resides upon your earth. You are unique, but equally loved by God. So may you find this unique treasure that is within you. May you come to express the unique qualities that are within you. May you come to experience unique expressions of life as you journey towards God. You are precious to God. You are precious to each one of us who are residents of the Celestial Kingdom. We continue to come to you, to assist you and guide you and I come today because this instrument has had a conversation with one of my charges today and I wish for her to know that I am close and that I will help her to understand those things which have been discussed and those qualities that make this path unique, powerful and beautiful. I also wish to encourage you all and I wish for you to know that I come to many of you in times where this allows through the operation of the law, to be with you, to stand by you, to help to influence and guide and teach you. We in the Celestial Kingdom have many things to do upon your earth plane in order to help uplift and to open you to much truth.
+
+Thank you for listening to me today. I hope that what I have said has inspired, and has reassured you that your unique path is the path of light and I encourage you to appreciate this uniqueness and these differences where they lead to a different destination. They lead to greater light and love. And so you are blessed, my friends, to know this wondrous path together. And so, you’re not alone, neither upon the Earth plane nor in the spirit planes. You will never be alone and you will know God’s hand upon you, guiding you forward into greater light, truth, joy, happiness and love. All the wondrous and good things in life can be yours upon this path. Nothing is sacrificed and the world is gained upon this wondrous journey towards light. God bless you, my friends. I am Lao Tzu. I am happy to be with you today. I think you. I love you. I pray with you. I am with you in this light. God bless you. 
+
+**Note** Lao Tzu also rendered as Laozi (commonly translated as "Old Master") and Lao-Tze  was an ancient Chinese philosopher and writer. He is the reputed author of the Tao Te Ching, the founder of philosophical Taoism, and a deity in religious Taoism and traditional Chinese religions.
+
+A semi-legendary figure, Lao Tzu was usually portrayed as a 6th-century B.C. contemporary of Confucius, but some modern historians consider him to have lived during the Warring States period of the 4th century B.C. A central figure in Chinese culture, Laozi is claimed by both the emperors of the Tang dynasty and modern people of the Li surname as a founder of their lineage.

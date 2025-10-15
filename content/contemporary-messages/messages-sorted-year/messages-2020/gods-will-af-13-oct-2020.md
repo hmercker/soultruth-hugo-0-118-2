@@ -1,0 +1,39 @@
+---
+title: "God’s Will"
+menu_title: ""
+description: "Jesus talks of God’s Will"
+date: 2020-10-26 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# God’s Will
+
+October 13<sup>th</sup>, 2020
+
+Gibsons, B.C. Canada 
+
+Received by Al Fike
+
+
+
+May you be blessed, beloved children, by the deep Love of our Heavenly Father pouring into your souls. May you be comforted, my beloved brothers and sisters, by the embrace of God, this warmth and peace and Love that is meant for every child upon your world and every spirit within the spirit world. This Gift of Love pours out to all in God’s universe. 
+
+God bless you beloved children, I am Jesus, and I come once again to speak to you, not about free will, but about the Will of God. For this teaching adds to the teaching that I gave regarding the free will of men. The beloved daughter prayed: *“Let our will be yours. May we be able to release our will to you, dear God”* and this prayer is a powerful prayer, to not let the desires of the mind and all those material efforts and ideas of the mind interfere with the building relationship between your soul and the Soul of God. As this relationship strengthens, as you come to know your true selves in relationship with God’s true Presence, then those things of the mind become paltry and superficial. The soul becomes the thing that informs you, that brings to you insights, that brings to you deep perceptions of many things, that brings to you Truth and guidance from God. 
+
+As this awakening continues with each of you, the inclination to assert your own will in your life in regards to spiritual work, is transformed into an eagerness within your soul to listen to God's Will, to allow God's Will to manifest through you, so to become a channel of His Love and His Will manifesting in the world. For there are few, my beloved brothers and sisters, few that may be such a clear and beautiful channel in your world. As such you are all needed greatly to put aside your own mindful ambitions and desires and adopt the Will of God. You cannot truly know God’s Will until the power of His Blessed Love begins to transform you and open you in your gifts and capacities to communicate and commune with your Heavenly Father. 
+
+As you forge this path between yourself and God, His Will becomes evident. It is not masked or muffled by the human condition or your own mindful enterprises. Rather as you put aside those things of your mind, so the channel to God opens, so the conscious awareness of God’s Presence and desire to communicate with you becomes evident and easily obtained. This begins with a whisper, something very subtle indeed, but at times, God may speak to you as clearly as I am today and as God did so with me when I walked the Earth. 
+I learned to follow the guidance of God and to ask, not just occasionally but each and every day, and I was guided on my footsteps and my efforts in ministry to bring the Truth of His Love to my brothers and sisters. On the surface, not all of my efforts were successful or dynamic in its effects to change the hearts of men. But truly, every word that I uttered, every footstep that I made helped to plant seeds within many individuals, and Truths that to this day continue to be shared amongst humanity. So even though your days may not appear to be dynamic and fulfilling and exciting, know that as you continue to pray for the Father's Love, as you continue to think of things that are pertaining to the Truths of God's Love and on occasion, share these Truths with others, know that wherever you walk, you are being used to plant seeds, to till the soil, to look towards a beautiful outpouring of Truth in times to come. 
+
+As you have greater faith, so the Will of God becomes something which you desire and welcome. As there is greater Love within your soul, the stirring of your soul will bring the Voice of God into your life. As you put aside those concerns of the material so that they do not overtake your thoughts and your actions to such a degree that God’s Will cannot find a way through you to others, you must make effort, conscious effort to not allow this obstruction of the mind to divert and take you away from God's Will. 
+
+Every day is a challenge, beloved souls. Every day brings the opportunities and possibilities of coming to know God more deeply. As you are aware, it is a progressive journey. It requires your efforts and your will, your desires and your humility, to build within you such a strong foundation of faith and understanding and knowing of the Truth of God’s Will for each of you. This comes as I say, gradually, quietly, unassuming, but in time the soul is awakened sufficiently so that you will know in a conscious way the communications that God has for you that will allow you to understand and come to truly know His Will. Do not glorify the mind as so many have done in your world. Rather, come to see the mind as the instrument of the soul, that the mind is there to assist the soul in all its experiences, the unfolding of gifts and truth, in all its communications and awakenings in the flow of God's Love, and in assisting you in your daily life, which needs to be simplified, purified and be a true expression of love. When these things come to you and when you assert your will to open the doors of light and love, of peace and joy, of truth, then you will truly know God's Will. 
+
+These things await you, beloved souls, and at times you have a glimpse as to what is offered to each of you. I assure you that in time these things which I speak of will become a vital part of each moment of your life. You are feeling the impetus now. You are feeling and sensing the changes that are taking place within you. You are noticing changes in your thinking and in your priorities. This will continue as God's Will infiltrates and comes into your consciousness, your soul and your mind, and this will intensify as you continue in your prayers. Those things that seem such a dilemma, such a challenge, will dissipate and you will find that you will deal with such things with great ease and great joy. You will come to know the hidden potentials of your soul, and they will be enlivened by the Father’s Love, awakening the beauty that is within each of you. 
+
+When you are in alignment with God to the degree that you know and sense the Will of God, so God will use you as His instruments; so your prayers will be answered; so you will know the next steps in your life. You will be used to assist many, your families, your loved ones, those around you where you live and those who reach out to you, even from distant places. For the Will of God will manifest through you and bring to you many opportunities of service, of joyful, loving connections, embracing humanity; such is the Will of God.
+
+My beloved and beautiful friends, know that the Will of God is not so distant or so difficult to know. As you simplify your lives and your thoughts, as you invigorate your souls through prayer to receive this Great Gift, so the Will of God becomes as evident as your physical self. It will be that tangible, beloved souls, it will be that powerful. And you will have the opportunity each day to serve, to choose light, to choose to be a channel of love. This is happening now to a degree and will indeed grow and blossom into a wondrous journey that will consume your life in loving, joyous harmony and truth. 
+
+May God bless you on that journey, beloved souls. I am your brother and friend Jesus, and I shall continue to come to teach you many things of the ways of the soul seeking God. God bless you. My love is with you beloveds. My love is with you. God bless you.

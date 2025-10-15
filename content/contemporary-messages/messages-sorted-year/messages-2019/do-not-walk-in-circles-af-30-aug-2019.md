@@ -1,0 +1,52 @@
+---
+title: "Do not Walk in Circles"
+menu_title: ""
+description: "Yogananda says Do not Walk in Circles"
+date: 2020-12-31 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Do not Walk in Circles
+
+August 30<sup>th</sup>, 2019
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+May God’s Love continue to awaken your souls, my friends, and bring you into alignment with all that is Divine, all that is of Love. I am pleased that you watched a program of my life that had many details and aspects of my life that are true and a perspective that I carried at that time. I did indeed feel that I was impressed and led to do the things that I did and taught. So much of this information was given to me by my teachers and I was a good student and absorbed much of these teachings from the gurus that I had in my life. 
+
+I was able to retain much. Much of my understanding came through my experiences utilizing the techniques of yoga and meditation. I taught this over and over again to many souls upon this continent in which you live, all very new, all very interesting to those who came to listen, to absorb what I had to say. It is because of my efforts and those of a few others, that the ideas and concepts of what you call “new thought” emerged in the Western world. Of course, this thought is not new. It is very old and ancient. It came from thousands of years of spiritual exploration and development in India and other places in the world. In many ways, these ideas have been interpreted and utilized with those individuals who wish to establish a new religion, a new philosophy, and a new spiritual path in your material world. 
+
+**So I do say to you, my friends, do not denigrate those who make efforts in this way for they do help to lay a foundation to assist those who are seeking to find answers, to assist those who are spiritually devout towards finding ways to go within themselves to discover their true natures, to discover many things that are of the spiritual.** Yes, I know that you disagree with some of these philosophies, for there is error. There is error in everything in your world, my friends. But there is also truth. This is the way of your world - light and darkness, truth and error. This dichotomy that brings great heights of happiness and great lows of pain and discouragement and unhappiness. This is the way of your world.
+
+I know within each one of you is a deep desire to bring the Truth of God’s Love to your brothers and sisters. This is a noble aspiration, my friends. It is the Highest Truth and indeed, it needs to be shared. I ventured forth to America alone, relying solely on my guidance, relying on my ability to navigate a new culture, a new world, leaving behind the great comforts that I had, the friends and family, an environment that I was so comfortable within, to a place totally foreign from my experience in life. But I persisted. 
+
+Indeed because of the information and truth that I shared with others, I quickly gained new friends and new experiences in life. I know now that God guided me, that God’s beautiful, loving Hand was upon me, showing me the way through the maze of life, the route to be taken that brought tremendous results.
+
+But it is not that I accomplished this with ease. No, my friends, I worked diligently. I had strong faith. I walked and was true to my path. And so you must do, my friends, so you must do. **Do not shirk from that experience or place or individual that is different from you. This only makes you walk in circles, my friends. Yet you must widen those circles.** You must go out into the world and speak to the stranger, speak in the place that is different and be a light wherever you go.
+
+Follow my example and you will see for yourself, doors will be open, interest will come, individuals will be drawn to you because who you are and what you have to say brings a new light, a new perspective in life. God indeed will have His Hand upon you as well. God indeed will guide you as He guided me. You will come to know God’s guidance and you will access this easily. Your minds will not rebel as long as your souls are strong and full of love and faith and you are true to this always. 
+
+Each of you has the ability and the capacity to walk into the world and make a difference, to shift the consciousness of humanity. Each of you has this because you possess a soul that is imbued with many powers and abilities and gifts that are in the process of being awakened by the one blessing of Love from God. You must focus on this, my friends. Focus on what may be accomplished through this process and gift of the awakening soul. Do not entertain the mind as your source of strength and knowledge. You may only do so when your mind is subordinate to the wisdom and capacities of the soul. Then with this marriage of understanding, you may go forth in the world and speak profound Truth and act in ways that will bring Light and healing, comfort and Love to many.
+
+The beloved Master, Jesus is your example and is the true fulfillment of a soul awakened in Love. And did he not say that these you may do as well, these things, this journey of service, of teaching and of healing? You may do, for each possesses a soul and within each soul is the capacity to do and be as Jesus was and is. Have faith in this, my friends, have faith in the power of the soul that is aligned with God and you will find your way through the maze of life, as I did. You will find yourself in surprising circumstances and situations as I did. 
+
+What motivated me? What was my strength? How was I able to do such things? Because I had faith. I believed that God was in my conscious self and was guiding me and motivating me to say and do what I did. Though my path was different, though my words were different, though much of what I taught is not what you teach, but indeed what I gave to the world in my way has helped to shift the consciousness of humanity. 
+
+This shift must continue. This consciousness must grow. The understanding of life must expand. Truly, bring the changes that are required so that harmony may be in your world, a harmony of peace, a harmony of truth, a harmony of happiness and joy, a harmony where all in your world may live together without destruction and pain.  Is this not the goal my friends? Considering the circumstances of this world, will it not take a great deal of effort and application to accomplish this? Not only from you, but from many, many more.
+
+Do you not see that God has initiated a magnificent plan to bring about this harmony, to save yourselves from yourselves, to save this world from the error of the human condition? Indeed, much is being expressed and developed and prepared so that when the time is ripe, you may all speak the Truth in unity and bring humanity to its senses. This is part of God’s Plan. This is how God will heal all of you through His Love and Light, compassion and care for this beautiful world of yours. So have faith, my friends. Continue to develop your gifts, to pray that your soul may expand and widen in the Love of the great Soul of God and be truly His, truly a Channel of His Love, truly a child in the Light. In this way, you find your place within God’s Plan. As you grow stronger and have stronger faith and a greater belief in what God has created within you and an abiding love for yourself and for all, you will then enter upon that road of tremendous service to humanity that will bring change, enlightenment, blessings to many. 
+
+Continue in your ways as you climb that ladder of Light. Continue to question and focus upon how you may serve God and how you may become beautiful souls in Love. There is much to learn, a great way to go before you are truly prepared. But you continue with each day to apply yourselves. This is all that one can do, my friends, to put into application the Truth that you know, to make this truly a part of you, truly an expression of you. 
+
+You carry a very important piece of the puzzle that is the whole Truth. You must cherish and guard this piece and speak it whenever you can. Add this piece to all those who are continuing to be light bringers in the world. Share this with them. Show them the way to it. For as you well know, this will awaken more understanding and truth within them and enhance what gifts they have. It is what is meant to be in this great unfolding of Truth. You must carry this Truth far and wide. Bring this Truth with love. Speak it clearly. Speak it without hesitation. Speak it directly and with love. Though the minds of many may reject such things, the soul will sing hearing the chords of Truth spoken with love. 
+
+So I say good-bye to you, my friends. I thank you for listening. I thank you for having interest in my life. I thank you for allowing me to speak again, to share my story, my truth, who I am. For much has happened since those times. I have changed greatly since those times. Since now I am a redeemed child of God living in a place so magnificent I could not begin to tell you of it. I am an inhabitant of the Celestial Kingdom, Heaven, true Heaven. I have the blessing of so many friends, so many fellow souls who truly understand the way to God. 
+
+When I walked the Earth, I often felt alone. I often felt like I knew things that others did not, nor could they understand. But now I live in a home where we all truly understand one another for we are all truly aligned with God and know God in ways that are magnificent and lovely and bring us glorious happiness and joy. The wonderment of Creation, the wonderment of Creation is at our feet, my beloved friends. Such a gift. 
+
+The gift will be yours as well as you continue to tread upon that path and strive and yearn for at-onement with God. It will come to you as it has come to me. For you know the way and we merely accompany you, the Angels of God. We are with you. We are with you, my friends, and our love for you is great. Our interest in you is great. Our prayers for you are great. We come to assist, to uphold, to guide, to bless. We are with you, my friends. We are with you and shall never leave you.
+
+May God bless you upon the journey of soul awakening, keep you upon your path. Firmly may you walk forward, gaining great wisdom and strength and Love as you go. God bless you. Your friend Yogananda is with you. God bless you. 

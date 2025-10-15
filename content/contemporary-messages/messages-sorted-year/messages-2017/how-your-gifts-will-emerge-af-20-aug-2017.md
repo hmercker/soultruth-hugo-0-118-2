@@ -1,0 +1,34 @@
+---
+title: "How your gifts will emerge"
+menu_title: ""
+description: "Augustine advises How your gifts will emerge"
+date: 2017-12-01 03:17:37+00:00
+draft: False
+hidden: True
+weight: 326
+---
+# How your gifts will emerge
+
+August 20<sup>th</sup>, 2017
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+ 
+
+I am Augustine your teacher here to help you as you travel the journey upon the path Divine to at-onement with God. I have come in response to your conversation, beloveds, and the query of the beautiful soul, this daughter, who seeks confirmation and guidance regarding the opening of her gifts. It is a process that each soul most go through as gifts open and new insights and awareness’s come. There is an initial excitement and enthusiasm. One often gets carried away by these different experiences. One must remember that when this door opens just a crack, the light seems a bit overwhelming. It is easy to become consumed with this experience and yet this is only a crack. As this door continues to open and wider insights and deeper capacities of your gifts will emerge, you will become familiar with this experience and you will understand how to utilise this gift and be disciplined in this utilisation. So, I would urge you, my daughter, to be patient. 
+
+You’ve set before yourself a small experiment as you travel. I would suggest that you go about this with innocence and faith. Allow the unfolding of what is guided in a way that you are not obstructing it with expectations. For God uses each channel in this world in many different ways and often there are ways and openings and expressions that God uses within you and through you that you are not aware of. Yes because you are human you desire something more overt and less subtle, something that reassures you that you are indeed gifted and that there be a manifestation that is undeniable and confirming. My beloveds, at times this happens but more often you move through your life unaware. This is not a negative thing for in this innocence comes many blessings and gifts to others. Just because your mind is not engaged in this work does not mean your soul does not find its mark as a channel of love in the world.
+
+So, my beloveds, I applaud each one of you as your gifts continue to unfold and I encourage you. It brings the angels joy to see each petal unfold in the flower of your soul. It also gives us joy when you are excited, when your attention is gathered upon these opening gifts. But as with every child who walks this path and seeks for the highest, it is a learning process. It is filled with trials and tribulations, experiments and some trepidation. Yet within your soul there is an excitement, a deep desire to know more, to experience more as these new parts of yourselves begin to emerge. So whatever you do in regards to expressing your gifts is the right thing to do because although there may be distortions, even error in these expressions you are learning and growing. You are moving forward. You are not standing still in stagnation. You are not allowing your fears to hold you back. No, my beloveds, you are stepping boldly forward and in your prayers and your desire to do good and your desire to reach for the highest God will guide you forward and assist you to hone your gifts in such a way that He will be able to use them effectively and beautifully for the benefit and service to your brothers and sisters in this world.
+
+So do not fear my little daughter. Do not fear. Be joyful as you continue to grow and step forward in this way and there will be many triumphs and unfolding awareness drawing you ever closer to your own soul the expression of your beautiful gifts and the fulfilment of your purpose. God rejoices in these little miracles of growth and openings as His Love ignites within you many such awarenesses and gifts. This is appropriate for each one who walks this path to know that even when errors are made and when you feel like you have been a failure, you are not a failure. With every error comes the opportunity to grow, to take a different approach and to understand from a deeper perspective. 
+
+Each of you are brave and eager. You continue to test the waters, to find your true selves upon your journeys. You continue to see more clearly the gifts that lie within you and the opportunities that God has set before you. Yes, there is much to learn, a great distance to travel yet. But as you continue to pray and sincerely come together in love and harmony, as you focus your efforts, your thoughts upon the coming project of Direct Voice, indeed God will open up faculties within you that will assist you in your efforts and development, in your mutual support of one another and the support of this great undertaking. 
+
+So, my beloveds, expect that gifts will open within you as you continue to pray and ask to be used as God’s channel of truth and love, comfort and light. For as you pray for this, you receive these blessings and they are gifts from God. Yes like a child exploring the world, their efforts and actions are somewhat unsophisticated but as the child becomes more familiar with the world so they grow. As the child becomes more familiar with its gifts there is a refinement and sophistication that ensues as each child becomes more confident, more familiar and trusts what is before them and within them. This is the way of the world and the way of growth. God gives you these great opportunities so that you may grow and learn and in growing and learning you may become a clear and beautiful channel of His Love.
+
+So, it will go, my beloveds as you step forward you will come to know what lies within you. Insights will deepen, perceptions will grow, faculties will emerge and love will flow. It’s all a part of God’s plan, my beloveds. It is all an unfolding of the beautiful flower that is your soul. Continue beloved souls upon your great journeys, the journey of awakening, of knowing and growing within through the Father’s Love. Many surprises await you, my beloveds. A great deal awaits as you continue to explore the world of your own soul and your relationship with your Heavenly Father. 
+
+As we have told you many times, changes are coming. In order to prepare, changes and shifts are happening within you. As you release those old barriers, as you tentatively feel the new reality dawning within you, as you grow to accept the Father’s Will and release that which is not in harmony with His Will and His Love. God bless you, beloveds. Your teacher, Augustine, continues to walk with you by your side as you grow and travel in this world. God bless you. God bless you.

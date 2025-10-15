@@ -1,0 +1,34 @@
+---
+title: "Changes Coming and Our Families"
+menu_title: ""
+description: "Samuel talks of  Changes Coming and Our Families"
+date: 2022-04-14 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Changes Coming and Our Families
+December 5<sup>th</sup>, 2021
+
+Gibsons, B.C. Canada 
+
+Received by Al Fike
+
+
+May God's great blessing of Love pour upon you beloved, beloved souls. I am Samuel.
+
+The conditions of the world and the human condition have not changed so much that there is a great difference between my day and yours. Yes, of course, the way in which you live is different, the pace has so much quickened, the distractions so many more. But the motives and desires and expressions of humanity have not changed much. The worries and the cares are the same. The desires are the same. They are just expressed differently. But the time is coming, my beloved friends, when the dominance and dominion of man will be transformed and diminished to such an extent that they will be humbled. Those who are willing and who have the deep desire to do so, will find their comfort in God rather than their comforts in man.
+ 
+God has given humanity ample time to return to His bosom, to be in alignment with Him and yet humanity, through the ages, continues to stubbornly resist and to cling to those beliefs and ideas of the mind which bring each individual away from God. God in His Love and gentle caring for His children has allowed the freewill of choice to be foremost in the human condition upon this earth. It is come to a place, a point, however,  where so much darkness is prevalent and destruction of God's creation continues to ride roughshod over the earth that God now has a plan to curtail the influence of man on this planet. In this humanity must and will awaken to their own responsibilities and choices, so to be conscious of these things that are a part of life. The gift of life has been given to each one to truly see as the scales are lifted from their eyes, all of your eyes, to truly know as God implores and draws the soul awareness forward to the consciousness of man. Even though that awareness may be feeble and without the great blessing of the Divine Love to excite and transform it, still there is the capacity and awareness within each individual to see beyond the illusions of the human condition to the reality of God and the reality of God's creation.
+
+When this time comes, which is upon us almost, it is for you to assist your brothers and sisters, to assist humanity, in seeing the direction, the road that must be taken in order to bring harmony back to the world and to the world of man. For in this time each man, each woman, each child will be given a choice, to be with God or not. God cannot circumvent free will, yet God can create the conditions necessary for humanity to see, to understand this great choice. As has always been the case, every choice brings its consequence. Those choices for light and harmony will bring blessings and joy. Those choices for the continuation of the human condition will bring suffering and greater darkness to the individuals who choose this. Indeed, God in all His benevolence and Love, His unconditional Love, will make sure that all see clearly and will understand unequivocably what is laid before them in choice and  what actions may be taken to cement their relationship with their Creator.
+
+Humility must come to humanity, a sense that they are not masters of their kingdom, rather, children of God who is the creator of all. In this humble recognition will come deeper wisdom and a desire to be in alignment with God without fear, without those barriers which keep man from God. Instead there will come a sense, a peace, a knowing and a deep desire to seek alignment, harmony, and love.
+
+You have found this for yourselves and God has intervened in each of your lives because your souls have longed for this intervention and God has opened the door so that you may know and sense and understand the way of love. You must teach this and be a living example of this to your brothers and sisters, to walk in the light of truth always. 
+
+Beloved, beloved, souls, you carry the light of truth, this great flame. May you continue to feed this flame with your prayers, desires, and actions, and be truly a channel, an instrument of God, for this is what the world needs at this time.
+
+The world does not need more inventions and things, distractions, material and mindful. These things are in great abundance, in such abundance that it almost chokes humanity with its power to distract and to cover over the soul. God will ensure that these distractions will evaporate and that humanity will be left naked without these coverings which bring them so far from themselves, so far away from that which is meant to be in this world. In their nakedness, they may either come to God to seek a different cloak and comfort or will crawl away in their aloneness and misery. How unfortunate that humanity has come to this point but it is indeed a turning point. Rest assured, beloved souls, that this world in short order will be a much different world and that the way humanity lives in your world will reflect greater harmony,  peace and alignment with God. Your prayers will be answered, but indeed, how these prayers are answered will be determined by each individual and their choices in life. Of course, you have concern for your families and your loved ones and you have concern for the world in general. You are not blinded by the great challenges of this life, the great challenges of humanity has set for itself, and refuses to come to that place of simplicity, the elegant touches of God that brings the solutions that are required. Yet this will come as well, my beloved souls. As we have told you over and over again, the solutions for the world are coming. The help that is needed is coming and in many ways is here.
+
+You will find your ways and you will help to lead your families and loved ones beyond that path that is dark and out of harmony with God, towards that path of light and harmony and alignement. May your prayers continue to lead you upon this path of light. May your souls continue to awaken and open to God's gift of Love. May you find your way fully into the light and see with the eyes of your soul, the wisdom of your soul’s knowing, the power of the love that burns within you so that someday you will truly be that leader, that example, that channel for God to lead the lost children back home to their Creator. May God bless you on this journey, keep you in the wellspring of His Love. My love is with you. I am Samuel. My love is with you. God bless you.

@@ -1,0 +1,28 @@
+---
+title: "Our Collaboration to bring Light to the World is Important"
+menu_title: ""
+description: "Augustine on Our Collaboration to bring Light to the World is Important"
+date: 2022-04-14 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Our Collaboration to bring Light to the World is Important
+December 10<sup>th</sup>, 2021
+
+Gibsons, B.C. Canada 
+
+Received by Al Fike
+
+
+My friends, I am your teacher, Augustine. The work that you embark upon together is important. To bring greater light to this world is essential in order for this world to heal and to change and that more harmony may ensue within the workings of humanity together. As you come together in prayer, so you bring a light that beams through the darkening clouds of the human condition. It pours upon you, each of you, and expands outward into your environment, your lives, your homes, your places of habitation. All those places, all those aspects of your lives are affected and blessed by the gift that you invoke from God, the great blessings that come as you continue to awaken within your souls. With this awakening you beseech God's blessings upon you and through you. Darkness is insidious, it is everywhere and affects everyone. Even you within your lives, are susceptible to the dark conditions of the world. If you entertain this, so it will come and find those cracks and fissures within you to infuse and bring its influence to your minds, for it is your minds that draw error and darkness. 
+
+I do not mean to accuse you, beloved souls, for you are earnest and each of you in your own way strive towards the light. Within these conditions that are of the earth plane, there are many vulnerabilities and aspects within each individual’s lives which may draw in the darkness, not by your own volition, beloved souls, but often by those you associate with, those conditions that you may be engaged within by living your life daily. It is important that you invoke the light. That you truly invoke the light and God's touch upon you, so that you may walk in light, that you may be a channel of light, that you may truly be in harmony with all that God has created and His Laws of Love which supersede all other laws when you sincerely pray to receive the gift of God's Divine Love.
+
+Do not assume that this gift is given automatically or that when you incarnated that it is a part of you, for it is not, beloved children. What you often confuse as Divine Love is the natural love that you obtain and is your birthright as you walk the earth. The power and glory of Divine Love is something wholly apart from the natural love that you have within you. It must be cultivated by your efforts prayers and desires to invoke this gift that will flow into your soul from God, through the workings of the Holy Spirit. As you invoke this higher law, as you seek this gift from God, so you bring these beams of light to you, which can and will neutralize the darkness and will heal all that ails you beloved souls, all the pain that you carry, all the effects of those around you who draw pain to themselves, often unwittingly. Indeed, as they live their lives, so they are susceptible to this darkness. 
+
+It is for you to be that light, to be strong and powerful in light, and it is for you to ask God to continue to guide and protect and envelop you with His touch that your souls may be awakened in love. In this way you may be used as a channel to help neutralize those conditions that are truly not a part of your soul as it grows and awakens in the Love of God. Beloved souls, you are truly blessed and truly loved. You have come upon a truth that is higher and more powerful than any other, and it is for you to continue to live this truth in all the ways that you can within your lives, to be this truth in all the ways that are truly a part of your soul and the expression of your being in every aspect. You are truly blessed and few in the world understand the Laws of Love as you do. Few in your world have come to know their own soul as you have. Few in your world have come to experience and acknowledge this gift of Love as is given by God's touch upon you. 
+
+Beloved souls, you are God's children. You are the hope of the world to bring this truth forward. Do not underestimate the power of the love glowing and growing within your souls and how that may indeed reach forth, tentacles of light, touching other souls, awakening their longings, awakening them to the truth of God's Love. For the darkness must recede and light must fill that place where darkness was and within you this is a powerful truth and is continuing to be activated in the healing accomplished through the great blessings of God's Love pouring into you and having its effects upon you. Beloved souls, you are truly loved, you are truly upon a path that is towards the light, this flow of light that continues to strengthen and awaken and heal. 
+
+May you carry on with your efforts, your prayers and your longings. May you consider the awakening of your soul as your primary goal in life and in this way all else that is problematic, that does indeed draw you away from light will be neutralized and solutions will be found. Awakenings will come, and healings will pour within you and fill you and uplift you, and bring peace within you. God is with you, beloved souls, God is with you. God longs for you to long for Him. May you truly be within that flow of His great Love. Beloved souls, I am your teacher, Augustine, and I love you all dearly, so very dearly. God bless you, beloveds. God bless you.

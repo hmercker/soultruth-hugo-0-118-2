@@ -1,0 +1,40 @@
+---
+title: "The Importance of Consistency, Dedication and Faith"
+menu_title: ""
+description: "Michael Collier talks of The Importance of Consistency, Dedication and Faith"
+date: 2023-09-05 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# The Importance of Consistency, Dedication and Faith 
+
+July 4<sup>th</sup>, 2023
+
+Sechelt, B.C. Canada,
+
+Received by Al Fike  
+
+
+
+Thank you dear daughter, for your prayers. They have a quality of innocence and faith that is often difficult for many of you upon the earthly plane to express. I see for you, beloved light in the world, that you will be praying with many others and you will be leading those prayers because of the quality of light, faith and innocence that you carry. 
+
+My beloved friends, I am Michael Collier and I wish to talk about the need for consistency, dedication and faith in your prayer life. Because it is in these three aspects that you express and apply in prayer that will help you along the road, a road that is often cluttered by the mind and by the distractions of your Earthly world. When you are consistent with your prayers, dedicating time and  you have the faith, the understanding that God will answer these prayers, you are well on your way on the road to soul redemption and transformation. 
+
+Indeed, with all of you upon this Earthly plane of yours, a feeling arises when you begin your journey, that sense within you that this is right, that this is truth and that you must take notice of what is being offered in these truths. You may read a passage, a book, you may talk to an individual, you may join a Circle of Light such as this. But whatever road you take, whatever passageway you elect to follow, if you do not apply the truths in a consistent way, if you do not dedicate time daily, if you do not allow those feelings of the soul to rise up into your consciousness as you pray, then often that initial excitement, that flush of eagerness is lost. It is buried by the many conditions of the world, the many thoughts that you may have, the many challenges that your life may present. When you make prayer a priority, when you go to God daily or even several times a day, then you are neutralizing the conditions that the world presents to you that are not in harmony with light. 
+
+You have made a choice to walk beyond that mundane human condition and seek the light. Seek the fulfilment of your soul’s desires. For it is within your soul, those feelings, desires, longings, that prayer must begin and must be expressed. Indeed, you may not have to pray with words, but just express your feelings to God. But whatever way you choose, whatever avenues expressed, and it may be a multitude of avenues, a multitude of aspects of yourself that you may present to God and begin the process. You open the door. In opening the door, the floodgates of love, the Essence of God’s Soul pour in and they do so because God has been waiting for each of you to reach out, to apply your yearnings and longings from deep within, in prayer. 
+
+The more you can pray in an earnest and steadfast way, the greater is the possibility that you will be blessed substantially and fully with the great Love of God, this transformative light and energy that is a manifestation of God’s Soul, as you seek this, as you open yourself to it, in whatever way is suitable to your mind and your sensibilities. But, indeed, you must ask, and prayer is an act of asking God for His Touch, His intervention, His blessing upon you and upon who you are praying for.
+
+Many find it difficult to humble themselves to God, to say: *“I need you, I wish to be in alignment with you, I am not complete without you.”* For no soul is complete without the great blessing of the Essence of God. You were given life for this purpose. Yet, many who have lived a life on the Earthly plane, or continue to live a life in the spirit worlds, do not recognize this very fact. They are embroiled within their mind and their sense of self that says: *“I am powerful, I stand alone, I am without need of the Divine.”* Many do not even believe that the Divine exists, how unfortunate for them. Those who turn away, either consciously or out of ignorance, are bereft of a great and wonderful relationship.
+
+For within your soul is the capacity to truly understand God, to truly be with God, to see God in time, to know God as your Heavenly Father, your Creator, the Source of all love. This is not something that is detached and that you have an observation that comes from the mind, the material mind, of this fact. When one is truly in alignment with God and this alignment comes about through your prayers and your efforts, then all manner of experiences, feelings, insights, senses, come in a multi-dimensional way. When this happens to the individual, they are smitten by the Love of God. They know something that is so unique, powerful and wondrous, that fulfils them, that brings them enlightenment, that adds so much to their personal experience in life, that they are incapable of turning away. That the desires and needs of the soul are now recognized and come to the fore, so that you, my beloved brothers and sisters, are fulfilled in this relationship which begins with a simple prayer, but never ends. For this journey towards God is for all eternity. 
+
+Yes, you are transformed. Yes, there are markers along the way, along this road, that indicate that you have grown and changed and are of greater light. But that road has no end, that journey is limitless and it can only be set upon when you in your desires, your intentions, your efforts, your consistency, your faith, walk upon this path and dedicate yourself to it. For many of you it is a meandering path. The road is straight and narrow, but indeed, you tend to be distracted and life tends to draw you away from it. Yet this is where the strength of your consistency and your faith come into play, and faith that God will always draw you back. For God will always bring you back upon this path, provided your soul desires this and your mind agrees with this desire, and that in your prayers you wish to be in the light, the truth, of the redeeming Touch of God’s Love.
+
+You are all well upon this path, each of you lights, and in some day soon, you will teach this to others. You will speak of what is needed, and this is why we come to you to teach you, to add the information required, as simply and concisely as we can. Know that we are close, we will continue to influence and uplift and pray with you and love you. All of you, beautiful souls, so desiring the truth, so in love with God. So, you will find your way because you love God and God loves you. Where there is mutual love, is there not this great journey, this romance of love that is of the highest calibre and quality, beyond any physical manifestation or passion? It is the passion of the soul seeking its at-onement with God and there is no material equal to this. It is purely of a spiritual nature and it will be yours always. 
+
+My beloved friends, may we ask for this great blessing. You ask. We ask. All souls in love with God ask for this great blessing. For it is the culmination of a yearning soul seeking at-onement with God and it shall never be complete. It will be a great blessing that shall grow and magnify exponentially as you walk this path of love, the Divine Path, as you call it. It is yours for the asking and it is God’s great and beautiful Love for you that opens the floodgate to this great blessing on your soul.
+
+God bless you, my friends. I am Michael Collier and I thank you for listening to me today. I thank you for seeking God’s Love, for being a light in the world and for being consistent with this. May God bless you, my friends, and keep you in light. May the joy of His Love continue to grow within you and well up like a great fountain of joy and light and truth. God bless you. My love is with you all. God bless you. 

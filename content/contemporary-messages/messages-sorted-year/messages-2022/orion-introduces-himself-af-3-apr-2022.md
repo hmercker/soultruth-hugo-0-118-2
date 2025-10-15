@@ -1,0 +1,50 @@
+---
+title: "Orion Introduces Himself"
+menu_title: ""
+description: "Orion Introduces Himself"
+date: 2022-06-10 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Orion Introduces Himself
+
+April 3<sup>rd</sup>, 2022
+
+Houston, TX, U.S.A.
+
+Received by Al Fike   
+
+
+
+May God be with you, my friends. I thank you for inviting me into your circle. I am Orion. I come to speak to you all about the importance of the awakening of your souls and the awakening of humanity and the healing of this Earth, this beautiful planet which is so full of life and so full of God’s creations that it is rich, rich indeed, with all God’s blessings. Yet how unfortunate it is that so many of you upon this planet are blind and deaf and unable to see beyond your own biased and blinded condition to see the wonderment that is all around you, the beauty and the life.
+
+We are making efforts to help you open your eyes, open your minds and your souls to what God has created and what God can give to each life. We have the perceptions, the understanding, the awakenings, the soul development that allow us to see beyond the murky conditions of the human perception. We can see into all of you as well. As your angel friends do so, so we are capable of the same. We have deep compassion for you all, a deep compassion for your struggles, how you have all contributed to the limitations, the errors, and the misunderstandings that have created the human condition. 
+
+You feed one another with perceptions that are not accurate, with opinions that are unloving, with fears that bring you further into darkness, with a soul that is often undeveloped and weak. These conditions are the very opposite of what we experience in our world where all that we know and we are is of light and harmony and love. We understand the workings of the universe. We understand the purpose of life. We know God. We are engaged in our relationship, both individually and collectively, with our Creator who is your Creator.
+
+As you have been told, life on this Earth is changing and will be unrecognizable in the future, that indeed, all the beauty and wonderment of God will start to manifest once more. The creatures of God, the balance that God has created upon your world, the beauty of it, the harmony of it, will all come back and be the predominant expression of God on this world of yours. Although humanity has endeavoured greatly to express its creativity and its willingness to understand and explore the physical universe, its scientific endeavours, the ideas of philosophy and art, and many other endeavours have their merits and in many ways are of life. But the way that humanity has utilized these gifts and abilities and capacities has perverted its purpose and meaning and gift that God has given in each soul.
+
+It is time for the perversions to be healed and a balance attained upon your planet. This does not mean that your creative capacities and your abilities to know and understand the mechanisms of God’s creation and universe will be expunged from your consciousness, for this cannot be. You are all human. You all have and possess many capacities and possibilities. But you are being dealt a very difficult lesson, my friends, a lesson in humility, a lesson in love, a lesson in truly understanding how those gifts that God has given you may be expressed in harmony with His creation and His Laws, for this has not been so for many thousands of years.
+
+Humanity has elected to walk the Earth bereft of God. Yes, there are souls who have come to God. There are individuals and at times even cultures and societies that have made effort to reach God but they do so from the top down, so to speak, rather than the bottom up. For it must be the soul awakened that begins the journey, not the mind awakened dictating the journey. The soul has a great capacity to communicate with God and to understand God’s communications and God’s Laws and God’s Truth. Because the mind has been allowed to expand and grow as it has, given great power and acknowledgment, suggesting that it is the only way to truth and the only way to understand life, then with this erroneous belief, the imbalances and the darkness have proliferated upon your world.
+
+It has come to a tipping point, a place where the world must continue and thrive and so must humanity but the trajectory that humanity continues to tread upon will not bring about this result. In fact, it will bring about the opposite. It will bring about much destruction, deeper darkness, deeper error. The children of God who reside upon this planet will find themselves very lost indeed. This is not God’s plan or will or desire. We live God’s plan and Will and desire upon our planet. We have found the truth, the secrets of the universe so to speak, the understandings that are required to live in harmony with God and with God’s creation. 
+
+We will come to teach these things, as will your angel friends who make such great efforts to awaken humanity. So, God is giving humanity a great opportunity and blessing to bring awakening to all those, whom within their souls, desire this, to bring truth, no matter how harsh it may be to those who are lost and willful, to humanity, to help all upon this world to come to a place where their eyes are opened and their minds see clearly the disharmony and the collective darkness that has been created.
+
+Despite all the creations of men, and there are many, despite the magnificence of these creations, how they reflect the power of man, how they are dominating your world, these things must be put aside because it is like children playing with deadly toys, things that they do not understand, things that are destructive and are not in balance with what God has created in this world.
+
+So, we have come to help correct that balance, to help teach these truths, to help influence mankind so that they may walk in the world free of the constrictions of the ego and the desires of the mind and the ambitions that are so valued and encouraged but are in essence a reflection of humanity’s disregard of the natural world and God’s world. All are one with God. All is one in God’s creation. Yet, humanity continues to separate and delineate the aspects of life making such a highly structured world where many are disengaged with that which encourages life and is a reflection of life. The mind then becomes a powerful and isolated instrument of the human awareness and existence, this individuality that is so prized amongst you.
+
+Yet, in truth, you are all part of one as we are all part of the one. This understanding must come, to see beyond this individual and isolating perspective and to come to love your brothers and sisters as you love yourself and as your love God, all connected in love, all a part of the oneness of love. 
+
+There is much for you to learn, my beloved friends, much for the world to correct and to heal and to bring true perspective and understanding and to bring love into your world so that all is a reflection of the soul in love with life, the soul in love with God, the soul in love. My friends, I see that you aspire to this, that you struggle and you yearn and you continue to grow in this. Thus, we are close for it is our desire to nurture those who are nurturing truth within themselves and wish to work toward greater understanding amongst all.
+
+So, we will continue to grow closer. We will continue to uphold and uplift you and to bring our gentle voice, our gentle ways to help you and assist upon an arduous journey. The time comes when we will manifest upon the Earth as will those in the spirit world, those in the Celestial Kingdom, and others from other worlds. There will be such a plethora of manifestations and what you might call miracles during this time of great change and deep shifts within the consciousness of humanity that what is considered now to be solid ground and normal patterns of life will not exist. New beginnings, a new world, a new way will manifest through these efforts. The efforts that you make and the efforts that we make, and all that is of light is focused upon your world to help to heal this injured, beautiful planet which has a consciousness of its own and is in need of your prayers and your light.
+
+God will continue and always desires harmony, will bring the healing energies, will manifest what is needed for harmony and peace, for the destiny of your world is to know peace, to live in peace, to live in light. So, it shall come, my friends. We are privileged and honoured to be a part of it and to witness it. This brings us such joy to see darkness transformed into light, that which is out of harmony brought back into harmony, that which is not of truth brought into truth. So, we will all witness this and be an active part within this process of awakening and transforming in the world.
+
+Beloved souls, I am glad to speak to you today. I am happy that you accept us, that you welcome us for our desire is to be your friends and to uphold you all and to bring our gifts to bear for your benefit and upliftment and healing. So, it shall be for all of those who wish to know us and to collaborate and be a part of this wondrous, wondrous blessing of God’s mighty Touch upon this world of yours.
+
+May His Love continue to awaken you. May His Love be your strength, your foundation, for it is the strength and foundation of the universe. May you come to know not only yourself but the friends who desire to be with you and known by you. God bless you, my friends. We will meet again and again. We will work together and we will help to heal the world. Blessings to you. Blessings to you, my friends, our love always with our brothers and sisters in the universe. God bless you. I am Orion and I am with you often as you consider truth, love, and the future of humanity in this light. God bless you.

@@ -1,0 +1,41 @@
+---
+title: "Light Beings from Other Planets are Helping Us on Earth"
+menu_title: ""
+description: "Orion says Light Beings from Other Planets are Helping Us on Earth"
+date: 2023-10-09 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Light Beings from Other Planets are Helping Us on Earth  
+
+July 9<sup>th</sup>, 2023
+
+Sechelt, B.C. Canada
+
+Received by Al Fike  
+
+
+I am Orion and I come from many light years away from your planet. Indeed some of us from other planets are with you. I am able to be here because of the light that you project and the prayers that you have to grow your soul in this universal gift which is the Divine Love. My soul is filled with this gift. I received it from the moment I was conceived on our planet. For our planet is infused with this love and it is the currency of all we do upon this planet.
+
+Our wish for you upon the Earthly plane is that you, too, may be a planet infused and alive with this gift, the Essence of the Creator’s Soul. It is possible. It is only curtailed by the willfulness of humanity. For it is freely given if its receipt is desired. When the tipping point comes, when enough of you upon this planet have received this gift to a proportion and strength sufficient, it will transform the environment of your planet so that, indeed, the truth of love will be an active agent, powerful and transformative in your world. We are drawn because of this potential. We come to teach of this truth as our example and what we are a demonstration of this truth. We do not come with any other intention, beloved souls. For why would we travel such a distance unless there is a great and higher purpose to it?
+
+There are others from other planets who join us to surround you with light, to help encourage you towards love, to help humanity take that next step in its evolution. Many on your planet believe that evolution is only determined by genetics and material things. In truth, evolution is determined by the soul and the condition of the soul. We have witnessed this upon your planet. We have seen humanity start from a very bright place and depreciate into almost animalistic conditions and is now rising again, ever so slowly toward greater light. We continue to witness the evolution of your planet, of each of you, as you make that choice toward light and truth, toward being a beacon of love and that you are each in harmony with the laws that you are created within. We will make great effort when the time is right to help to teach you, to extend our hands in love, to help pull you up from the conditions which you have created over millennia.
+
+It is time for a great change upon your Earth and that change will come quite quickly, the tipping point. Yet it requires a good portion of humanity to engage within these higher levels of consciousness and action that bring light and love. There is a great restlessness upon your planet. There is a desire within many souls upon your planet for change and for upliftment. Yet there is very little leadership, and that which is available in the world such as what you dear souls are offering, is lost and ignored in the cacophony of human chatter and the sharing and mundane conversation, so much of which is contrary to love and contrary to being in harmony with your planet and all that is contained within it.
+
+Yes, the tide must change. God is working diligently to change that tide towards greater light, dissolving the darkness, infusing within this planet those blessings and energies that will bring healing and upliftment. Of course it is within the free will of humanity to reject this, to move away, to turn their faces from the light but there are many, many spirits and angels and those of us from other planets who are working diligently to help uphold and inspire many to turn their faces to the light and to not ignore the blessings that are flowing readily and abundantly.
+
+We will win this battle, beloved souls, the battle of human consciousness, to help raise it up from these rudimentary conditions to that of light. We are putting every effort forward in order to do this. We are seeking all of you to assist the Creator in this great plan for the salvation of humanity. God has called many forces to assist. These are spiritual forces, and you are the material component of this force and plan for the reclamation of your world. Thus, you must be strong. You must seek for the light. Seek for the highest. Seek to grow in this great love, this great gift that will transform and will heal. That all conditions that are not in harmony with it will fall away from you in time. 
+
+Yet it is all determined by your choice and free will efforts to bring this to you, to draw the light to you, to strengthen you and uphold you in light so that you may live in a condition that is often contrary to the common flow of human endeavour. Thus many of you feel somewhat isolated, different, alienated from the crowd and this is often the price you pay for choosing a different way. I say to you my friends, you are not alone. Here you seek out one another to affirm your choice and who you truly are within your soul. You have many bright spirits, angel friends and your stellar friends who are with you from our side of life who continue to walk with you and uphold you.
+
+As you walk in the world, as you become a brighter light, as you draw to you those who are hungering for love and for upliftment and for healing, so God will utilise you as His instruments to transform the world, one soul at a time. There are many, many waiting for your call and your efforts. Indeed, a planned and coordinated effort is underway. It is for you to find your place within it, to ask for guidance, to ask to see clearly, to walk the road that for now is less travelled but many will join you, my friends. You will be prepared for the great changes that are coming and prepare many more for these changes.
+
+What you do here today in prayer is important and powerful. It does indeed send out a beacon of light, not only in your world but in other worlds. For those of us who are progressed enough may easily see and feel this condition of light that is being created. And so, it draws us close. In time, many of you will be drawn to work close together, to move in your world as a united front, to help revolutionise the way of thought and being that will incorporate higher truths and spiritual realities, realities that are often ignored by your brothers and sisters. Indeed, as God continues to infuse this world with many blessings, these realities will become more evident. More individuals will wake up to the truths of their existence, to the purpose of their existence. Thus, their priorities and perspectives will change accordingly.
+
+There is a great plan, my friends, and we are honoured to be a part of this plan. For we have been invited by your Celestial friends to assist them in this great work and so we do.
+
+I have come to speak to you today to acknowledge and to affirm our commitment toward uplifting humanity and preparing humanity for the great changes that are coming. May each of you be blessed, beloved and beautiful friends. May each of you see beyond the limitations of your material mind and come to that place of soul awakening. May each of you find a great inflowing of this Love, this Essence of God so that, indeed, what is within your soul may be ignited by Love, by the great Touch of God. We continue to pray for you, to be with you and to work with you, and we will not abandon you and we will continue in our steadfast ways to be with you. For you are our brothers and sisters. Though we come from a different place, this does not mean that our souls are different. Yes, they are created unique but we have what you have, a soul and a body and a spirit.
+
+This is a universal truth, whether it be in this galaxy or other galaxies. God has created and dispersed His children throughout the universes. Part the plan of creation is that those who have progressed further come to help those who wish to progress, but are not quite into that condition of light as of yet, but are yearning for it. My beloved friends, we pray together. We love you and we are close. May God bless you deeply. I am Orion and I love you. God bless you.

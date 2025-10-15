@@ -1,0 +1,32 @@
+---
+title: "Blessing for Al and Jeanne’s 48th Wedding Anniversary"
+menu_title: ""
+description: "Alec Gauntt gives a Blessing for Al and Jeanne’s 48th Wedding Anniversary"
+date: 2024-11-08 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Blessing for Al and Jeanne’s 48th Wedding Anniversary
+
+July 24<sup>th</sup>, 2024
+
+Sechelt, B.C. Canada
+
+Received by Al Fike 
+
+May the Father’s Love infill you greatly, my friends. I am Alec, Alec Gaunt. I come to acknowledge my two charges on this day commemorating their marriage. They did not meet me in the flesh when they began this journey together. Rest assured, I was close and I have witnessed their travels in transformation and spiritual growth. I have contributed to some degree to help them come along this Path of Love. I have guarded them often, helping to bring the light and protection around them. If you were to have known them in that beginning time and see them today in their maturity, there are not only physical changes that take place over time, but spiritual changes as well. The love has worked and has been working within them. Their lights have grown. Their wisdom has grown. Their capacity to be a channel of love has grown. 
+
+This is the law in action, my beloved friends. For you too, over the years, will see a great change within you. I, in my youth and efforts toward Divine Love, have changed dramatically as well. I came within a hair’s breadth of rejecting these truths, though they were guided to me in a most unusual way. Yet I found my biases holding me back from truly seeing what lay within the passages of the Padgett volumes. Yet once I settled into reading and learning from these passages, my soul was ignited. I came on fire with the passion for this great Truth, for I experienced it for myself. I came to know God as I never knew God before. I came to feel His Love as I had never felt it before. 
+
+The same is true for these beautiful souls and for all of you. Do not be discouraged and do not turn your eyes away from God. For when your commitment is deep and your desires are strong, then God responds in accordance to these things within you. This is the law in action. These beautiful souls who are celebrating their union can attest to the trials and tribulations that they encountered. Yet even though the difficulties of life presented themselves in many ways, they had the fortitude, the strength and the soul capacity to overcome these things. So they have. I and many others wish to acknowledge this and use them as your examples of what may come of prayer, dedication to truth and efforts to grow in the soul, the great Love of God transforming and strengthening the beautiful capacities of the soul. 
+
+I cannot stress enough how important it is to have a deep commitment to these truths, to walk within the road that is God’s Love, to express these truths that live and are a living thing within you in such a way that others might benefit as God utilises you as His channels of love. Each of you has gifts. Each of you has great capacities to be a spiritual light, to be a beacon of truth and to be a channel of love. How committed are you to expressing these things that are deep within, to acknowledging the truth that lies within you all? For each one is glowing with this truth. Each one has experienced God in their own way and has come to know the power of His Touch upon your soul. His Essence flowing forth and transforming you in this Touch. 
+
+The world needs leaders, channels of love and truth. The world needs the light that you have to be expressed and not hidden to be truly a flow of blessing for others. Do not curtail this, my beloved and beautiful brothers and sisters, but walk in the glory of it, in the wonderment of it, in the joy of it. You will find yourself meeting many souls, travelling to unusual places and being that instrument in ways that you never thought possible. Yes, gifts lie within you. Some dormant, some hidden, some eager to be expressed. I urge you, beloved souls, to listen to your soul. To listen to the beautiful yearnings that exist within it and the desires to serve God, which are strong within each one of you. Do not doubt yourselves, but step forward in strength, in clarity, in that form of leadership that touches others in loving and harmonious ways. In this way, God will use you effectively and powerfully in the world.
+
+Do not let the conditions of your world inhibit you. Do not allow your own self doubt to hold you back, but be strong and be brave, beautiful souls of truth. Walk in the world with a prayer that says, “use me, Heavenly Father. Use me as your channel of love, as your harbinger of truth, as a light in the world.” Each and every day that prayer is spoken with earnestness and sincerity, you will be surprised what may happen in that day, what may transpire through God’s Will and plan in that day, what you may accomplish even in the material sense that is in harmony and brings greater peace and joy to not only you, but all those around you. There is much work for you to do, beloved friends. There is so much work and I stand at the ready to assist you and to be with you.
+
+I inhabit the Celestial Kingdom. I found my way there swiftly after I transitioned into spirit. I wish to help you to find your way, maybe even while you are still on the Earth plane. It is possible. So, we journey together, my friends. There are many of us who flock around you, pray with you and walk with you. I am honoured to be one of those many and to stand beside you as you proclaim the truth by your very existence, an expression of love in the world. 
+
+May you continue to be blessed, beloved souls. Awakened, awakened with every breath and true to all that you are meant to be. A soul resplendent, alive and transformed in love, a being of light, a teacher of truth, a channel of healing and peace. All these are meant to be in your life. Grasp them, embrace them and live them. These potentials that exist and shall grow and be realised with the power of the blessing of God’s Divine Love. God bless you. I am Alec and I love you all. Such blessings, such blessings that we may all partake and experience together. God bless you. God bless you. 

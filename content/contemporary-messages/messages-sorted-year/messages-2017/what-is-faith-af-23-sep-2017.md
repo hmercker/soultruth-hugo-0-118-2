@@ -1,0 +1,36 @@
+---
+title: "What is Faith?"
+menu_title: ""
+description: "Faith speaks on What is Faith?"
+date: 2017-11-05 15:56:59+00:00
+draft: False
+hidden: True
+weight: 312
+---
+# What is Faith?
+
+
+September 23<sup>rd</sup>, 2017
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+ 
+
+God bless you, beloveds. I am Faith. I have not spoken to you for some time, but my love for you continues to grow. I have been close, I have been close. I have come to talk to you on the subject from which I am named, that is of faith. I wish to speak of the power of faith.
+
+I lived by my faith for a good portion of my life, as you well know my story of how I struggled physically with a severe condition and how God healed me with prayer. This great blessing came to me in the form of an instantaneous healing. Now I was not a prayerful person at the time but you know that when I entered that church long ago, I exclaimed to God "If I am your child, you must heal me. I require your attention and healing." And in that moment of healing I dedicated myself to serving God and I did so with each day. How was I able to serve God? It is because I had faith that He would guide me each day, that I was to ask and to be open to His Will and to serve Him in whatever way I could that particular day. God opened many doors of service for me. I was able to counsel and to bring inspiration to many through my efforts to speak my version of Truth in the world.
+
+Faith is a thing of the soul for faith comes from a knowing from within, a true understanding of God. It is difficult for many in this world to understand the power of Faith, for most souls are taught to approach Truth through the mind. Then when one thing is intellectually verified and acknowledged by the majority, then this becomes a truth. There are particular truths that can be obtained through this system of understanding, mostly of material concerns. But when one comes to the spiritual, how does one verify a Truth? One experiences many things with God, with your own true self. Often these things are not easily conveyed to another and yet within oneself, through the experience and the opening of awareness of the soul, there comes a Truth that is unshakeable within oneself. There is no doubt in the mind, there is no seeking of  corroboration from another. for an experience with God is intimate and personal. Through this experience, knowing His Love, feeling His Presence, seeing from within your soul His beautiful countenance of Light and knowing that you are loved. These experiences create faith within you. As you receive more of His Love, as your soul opens more to God, faith is formed within you like a rock, a rock that can be relied upon and is strong and unassailable. So when you base your spiritual life and understanding upon the rock of faith, then you cannot be swayed in directions that are not in harmony with Truth. You may, in your mind, have different opinions and ideas of what you have experienced, but within your soul there is a knowing that is unshakeable. So it is in this knowing, the development of your faith, in which you may serve God that you are not afraid or vulnerable in this service but strong and reliant upon the Will of God. As you understand these things within yourself, as you truly understand God, there is no confusion. There is a form of recognition, an understanding, that is based upon the development and growth of faith within your soul.
+
+It is simple - Faith grows out of Love, Love grows out of prayer and prayer grows out of desire. The action of a soul imbued with faith is powerful indeed. For in that alignment of a soul with God there is a power, a channel of blessings that can only come in this way. Yes, knowledge can be gleaned in other ways but faith can only come in prayer and in the reception of the Father's Divine Love, true faith, true and solid faith. This grows as the Love grows within your soul. As the Love grows within your soul so do your soul perceptions, soul faculties come alive and in this awakening the knowledge of faith, the blossoming of faith must come reflexively from the forging of your relationship with God. Can faith be dissected? No, it is a thing known by those who have true faith within their souls. It is a capacity of the soul that builds with time and experience, builds with the opening of the gifts of the soul. It comes hand in hand with Love and an unshakeable faith in God. In this you will find your gifts and purpose, the flowering of your spiritual life. It is not like what some men of the East talk about, this sort of detachment. It is not like that. Faith has a passion, a joy, a surety and a connection with God. This is not detachment. This is full realization of the power of God, the glory of God, the wonderment of God. With this awareness comes a longing so intense that one cannot help but go into prayer, connecting with your Creator, being in harmony with Love and the emanations of God. The passion of the soul comes from the outpouring of faith within.
+
+So in this simple way, an awakening that comes with prayer and a desire for His Love brings an opening to a whole universe of God. As one grows in faith, the eyes of the soul opens and opens some more until there is a point of deep connection with God and complete redemption of the soul through Love. A soul cannot enter the Celestial Kingdom without obtaining this component of faith to such a degree that there is nothing but an acknowledgement of the soul in relationship with God. This is the power of faith. Faith will lead you to God. Faith is the acknowledgement of this Truth. Faith is your rock. Faith brings all these gifts because married with faith is the true desire of the soul to carry on this journey to our beloved God Who beckons us forth, draws us closer, brings us deep joy, fulfilment and Love.
+
+So I have experienced the power of the faith within my soul. I did so at an early age when I walked this earth not too long ago. I see within you a growing faith, the strength of which will carry you far in this world as it did for me. It will open many doors of experience, opportunities of service, capacities to understand true spiritual awareness, and to teach others and inspire them. For it is the power of the faith within you that carries this Light where others may feel your loving energies, your humility and your strength.
+
+Continue on, my brothers and sisters, in your efforts to bring greater Light in this world for a greater Light is indeed needed. If the world could discover the power of faith, it would indeed be a different place, for God would be connected in a conscious way with each soul and each soul would live in harmony with God and God's Creation. Is this not a goal to pursue? Is this not a Truth to give to the world? Is this not a Truth to live by, to express and grow within the power of faith? May you do so with each day, my beloveds. May you do so with each day and may His Love pour into your soul with every moment and breath of longing, so that you may truly know the power of this faith growing within you, that you may truly live by this and be in harmony with God.
+
+God bless you. I am Faith. I love you so. I love you so. God bless you.
+

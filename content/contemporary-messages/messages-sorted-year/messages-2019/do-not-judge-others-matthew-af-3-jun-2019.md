@@ -1,0 +1,36 @@
+---
+title: "Do Not Judge Others"
+menu_title: ""
+description: "Matthew implores us Do Not Judge Others"
+date: 2019-01-26 23:21:03+00:00
+draft: False
+hidden: True
+weight: 386
+---
+# Do Not Judge Others
+
+June 3<sup>rd</sup>, 2019
+
+Gibsons. Canada
+
+Received by A.F.
+
+May God bless your souls with His Great Love flowing into your souls in great abundance, I am Matthew. I beseech you not to judge others who do not agree with your perspective or understanding of truth, for there are many, many ideas and thoughts regarding truth in your world. What is commendable for each of these individuals, is that they are making an effort to discern truth and to serve, to often serve in love for humanity. Though they may not follow your path, the Path of Divine Love, there is something within them that is of light. There is a desire within their souls to give love and to help their brothers and sisters in this world, for there are so many who are lost and afraid, alone and disconnected within themselves. 
+
+This sad state of humanity requires many, many servants, channels in this world of yours to help uplift and sooth the many who are in darkness and confusion. Would you condemn another who makes such efforts, though their beliefs are different from yours? It is the actions of love, the efforts of light that are to be acknowledged and reinforced with your love and light. If you are to be a channel, an instrument of God’s Love, then you cannot judge another, rather to step forward and embrace all those who are in deep need and those who serve in love. But when one decides to judge within the mind, to delineate, to graduate, to feel superior to another, this is not the soul expressing love, this is the mind seeking acknowledgement and recognition. Each of you beloved souls has to some degree this desire to be acknowledged, for you continue to be within the human condition. 
+
+I do not berate you, beloveds, for it is your ongoing struggle to go beyond the human condition and to acknowledge when one falls short of giving love and light. God does not condemn you, beloveds, when you make a mistake. Often, these mistakes are motivated by a desire to do right, to speak truth, a sense of righteousness comes to the mind and desires to set another on a course of truth. Yet, if this is not done in a way of love and harmony, the opposite is accomplished. This saddens us as I’m sure it saddens you, my beloved friends. 
+
+It is important to consider your words always, to walk in the Light and Love of God, a God who embraces all and Loves all and does not judge. This is a human quality, to judge another, to feel that they are beyond and above the error of another, but this cannot reside with a soul awakened in Love. Humility is important. Compassion is important. Deeply seeing another in love is necessary in order to be a clear channel of love. Though you may not understand why another will choose a certain path, a certain way in life, you may still love them and embrace them. For God needs those souls who are strong in love, who are capable of overcoming their biases and prejudices and judgments to walk in a world full of darkness.
+
+It is not difficult to recognize the sources of this darkness. It is blatant and everywhere and is a powerful influence in your world. In order to overcome the darkness, one must not enjoin its condition. Instead it is important to recognize the power of love to dispel all that is not of love. Beloved souls, each of you has a beautiful soul. Each of you aspires to God, to reach God, to be with God, to enjoy this communion with the Source of all Love. But do you think that God loves you any more than the poor and beleaguered soul living in some dark corner? No, my beloveds. God loves that individual as much as He loves you. If you are to be God’s emissaries, His channels of Love, this is your challenge and your goal: to be with God as a channel of Love always, to allow His Love to flow through you to all you meet. 
+
+Though you may not agree with another’s opinion or expression in life, their souls are precious, precious beyond all valuation. They are the creation of God and in this one must respect and honor that soul. Though you may not agree with their ideas and you may at times speak of your disagreement if this is effective in helping another soul, though whatever words you use and whatever you may say to another, do so in love. Do so as God’s child who recognizes the Light of His Creation. 
+
+The world is a challenging place, my beloveds. It is easy to be challenged by another who seeks to express their darkness, their sense of deprivation and lack of love. For those brave souls such as yourselves, who seek to rise above the human condition, it does not mean that you should divorce yourself from this condition and hide away in a place of solitude and light always. You must venture forth in the world and be with your brothers and sisters as a beacon of light, with deep compassion and humility, love, and grace. 
+
+You do not understand the power of this to any great extent, but I tell you, beloved souls, when you walk in the world in this way, you encourage your brothers and sisters who are lost to find their way to Light. Their souls feel your love and your light and they respond. There may not be any outward expression of this, but deep within them something is stirred and that plants a seed that in time will grow into a mighty tree, a beautiful Creation of God, awakened and in its fullness the expressions of True Love. This is your work, beloveds, each of you. If you cannot find the strength to express love in any given situation, continue to pray and ask that God will take those judgments, those hurt feelings within you away and replace them with Love. It is your daily struggle, my beloved souls, and yet you are uplifted by the angels, blessed by God, awakened with each day as a gift and an opportunity to grow and to give and to love.
+
+Yes, the world will continue to challenge you and you will continue to challenge yourself, but within you, beloved souls, is a deep desire to walk in the highest Light, to be in the flow of the highest Love, to be in service, guided by God. The blessings that come to you in this way are great. The Light that you cultivate within you and around you is the Light that will, in time, save the world. We do not ask you to be perfect, beloved souls, but we beseech you to love, to love yourselves, to love all, to love God. For this is the road to true redemption and healing and awakening. May you make that effort each day to love. In this way, you draw to you the highest; the Angels of God, the Touch of God, the Light of God, and this will strengthen you and inform you and heal you. 
+
+May God bless you with His Love, beloved souls, and keep you in His Light always. My love is with you and my light I bring that you might be blessed and uplifted and may you do so for your brothers and sisters, for this great chain of Light continues to flow and touch many. God bless you. Matthew loves you. God bless you.

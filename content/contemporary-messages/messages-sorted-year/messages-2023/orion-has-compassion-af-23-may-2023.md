@@ -1,0 +1,39 @@
+---
+title: "Orion Has Compassion for the Conditions We Live with on Earth"
+menu_title: ""
+description: "Orion Has Compassion for the Conditions We Live with on Earth"
+date: 2023-09-05 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Orion Has Compassion for the Conditions We Live with on Earth 
+
+May 23<sup>rd</sup>, 2023
+
+Sechelt, B.C. Canada,
+
+Received by Al Fike  
+
+
+
+May the blessings of our Father’s love awaken your souls, my beloved friends, I am Orion. Your world is filled with complications, details, expressions of humanity that bring about a very mindful state and condition. Each of you is challenged with these conditions that take you from God. Those conditions that are part of everyday life in your world. It is hard for us who live in a very, very different world to comprehend the complexities and the problems that come with such man-made conditions. Yet this is your everyday lot. It is your everyday challenge. 
+
+We have deep compassion for each one of you who continue to navigate through these conditions. Of course, for you, this is a normal state of affairs. It is part of your experience in life, even though you are grasping for and yearning for something that is very different to these conditions. You are still caught up in what are the human dynamics of a world so very far from God’s intention and creation. Fortunately for you there are so many in the spirit world, in the angelic world, in the world of other planets and galaxies who are coming to aid you, to uplift you and uphold you. For how could it be that you would be able to sustain these conditions, this light, if it was not at least in part our efforts?
+
+Of course without the core of Divine Love glowing and growing within your soul, none of these things would be possible. But it is in these collaborations, the exercise of your faith and trust, in the flow of God’s intention and Will and desire for each one of you, that much is accomplished and you are uplifted with every breath. For each one of you, individually, you carry a great responsibility for your own spiritual condition, your thoughts, your judgements, your deeds upon the Earth. This is not new to you. For you have been told this many, many times. I wish to emphasize the need for personal responsibility, to be that light that you can be, to express that light that is within you that may be, infiltrating every part of your life, every part of your thoughts, every part of your actions. This is the challenge and this is the test. It is also the key to the success of our ventures. Without personal effort, observations of your behaviours and patterns, then you walk blindly through the world without much knowledge or understanding of your own personal and intimate way of being in the world. 
+
+Your way of being has been developed over many years of life experience. Much has been, what you call, programmed into your mind. Much comes with your own choice. Are you able to be aware, to recognize, to allow a deeper insight to come to you? Often, you are too busy to even allow this in those moments of your daily life. Yet indeed, with prayer and quietness and contemplation, much can come of this and much insight will be readily given. Often you call the unpleasantness of these insights *“expiation”* or at least, the door open to expiation. At times, this is the case, yet often it is merely a requirement that you recognize a pattern and that you exert effort to correct it. This does not come deep from the soul. It is of the mind. Indeed every time you step forward in light and release a condition, a thought, a pattern, then the soul rejoices. For each step brings you closer to true freedom and awakening. For it is the entrapment of the mind and the conditions that you carry around your soul that hold you back from this freedom.
+Within each of you, much light continues to grow and it is exerting its pressure upon you, wanting expression, wanting release, wanting freedom. Are you able to allow this, beloved souls? Can you look deeply within yourself? Can you embrace the truth about your own condition? For if you can and you are strong enough to act in accordance that brings greater harmony to your being then, indeed, you are in harmony with that which we have guided you towards and that which we desire you to be in the world and within yourself. 
+
+It is not that your condition is rife with terrible and heavy burdens and errors. Rather it is the everyday habits and ideas and reactions that go often unnoticed and reflexive in your interactions with the world. These small things together make up a substantial barrier between you and God, between you and your soul awareness. It requires your focus and journey toward higher things, that which will bring greater harmony and bring greater truth to yourself. This loosening and healing of the human condition within you is inevitable with the inflow of God’s Love. 
+
+Yet you are eager, as are we, to bring the process more forward and to have a quick resolution of these conditions.Your beloved sister is eager for this. We are eager for this. Yet there is some confusion as to how you may accomplish this. Indeed, whatever is decided must be a collaboration that is harmonious, that all are a part of, and all accept. So, it requires some honesty and deeper acknowledgement of the needs of your soul. It is easy to maintain a place that is somewhat harmonious and to navigate, integrating old patterns and new thoughts in such a way that it is not altogether challenging. 
+
+Indeed, in this particular venture, it is important to be focused and earnest and a release of those peripheral conditions that keep you in the state of flux, spiritually. So, we leave it to you beloved brothers and sisters to decide. There is no pressure and obligation. It is merely our desire to see you come to a state of greater light and harmony within, to be closer to God, to be closer to your own soul, to be without restrictions and constrictions that are completely unnecessary. As I say, it is your personal journey. It requires your personal acknowledgement and effort. It cannot be done by any other person. It is for you to acknowledge and to act. Indeed, prayer is important.The further inflowing of the Divine Essence is a great catalyst for change and healing and insight and truth. Do not rest upon your laurels, my beloved friends, but continue to seek earnestly for all that which is required to bring clarity, purity, light and love in your life. 
+
+There is little more that we can say. For we respect free will and we respect your ability to choose and we honor a commitment that you have made. The pace in your own growth is determined by your choice and your commitment. 
+
+So, we are with you always, beloved friends, never to leave, always to be by your side, uplifting, inspiring and teaching. Our love for you is great. You are surrounded by love, each one of you is surrounded by love, upheld in light, true to the truth that you know. So, we continue, beloved and beautiful children of light. So, we will reach our goal in time. It is your destiny, and it is our desire to uphold you within that destiny. For how else can all of this be possible, the relationship that you have forged with beings of light, your Celestial Angel friends, all of us? 
+
+It is possible because God’s Will has made it so. Never underestimate the power of God’s Will, His Love and His blessings upon you. It will bring you to truth, to light, to clarity, to full and deep healing. This is inevitable unless you put, willingly, roadblocks in the way. Yet, I know you do not wish to do so. But you are eager to learn and to grow and to be in the truth of God’s Love. So, it shall be, my beloved friends, and so it shall be. I am Orion and I love you. God bless you.

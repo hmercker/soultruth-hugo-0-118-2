@@ -1,0 +1,6 @@
+# Redirects from what the browser requests to what we serve
+{{- $url := "redirects.csv" }}
+{{- $sep := ";" }}
+{{ range $i, $r := getCSV $sep $url -}}
+{{ index $r 0 }} {{ index $r 1 }}
+{{ end }}

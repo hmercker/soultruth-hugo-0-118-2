@@ -1,0 +1,30 @@
+---
+title: "Reach Out and Expand the Lattice of Light"
+menu_title: ""
+description: "Matthew says Reach Out and Expand the Lattice of Light"
+date: 2020-10-06 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Reach Out and Expand the Lattice of Light
+
+April 22<sup>nd</sup>, 2019
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+
+
+The light increases around you, beloveds. It is evident that your souls continue to expand in light. Each of you, beloved souls, is growing in Love, receiving more of this gift of God’s Love and it is having its effects upon you. There may be times when you feel disheveled in your thinking and have thoughts that are not altogether pleasant and you may struggle somewhat with your present conditions of living. This is to be expected, beloved souls. As the Love works within your soul, so there will be outward changes and manifestations of this shift, this awakening within, for it is powerful, beloveds. The power of God’s Love within your soul changes you in many ways. Many layers are affected and are in need of coming into alignment with this Light, with this Love, with this Essence of God that is compelled to awaken you. Heed the call of your soul and heed God’s call as your soul stirs and responds to this deep touch, this holy awakening within you.
+
+May you continue, beloved souls, to feed this network of light that you are all a part of. Adding light, adding what is required to strengthen this lattice as it spreads and grows out into the world. For those of you who have the inclination and guidance, make efforts to reach out to others to help grow this lattice. To help strengthen it by adding other souls who are desiring connection and fellowship, to work with you, to add to light in this world, to grow their souls in God’s Love. It is important at this time, beloved souls, to reach out, to go beyond your own needs for spiritual awakening and share with your brothers and sisters this truth and your experience with awakening your soul. Show the way to others, keeping the truth alive by sharing this vital truth that you are loved by God and that God’s Love is real, is powerful, is awesome in its nature and its ability to heal and grow your soul. By strengthening this network, beloveds, you do God’s work. You follow His Will which is for all humanity to acknowledge and discover the power of this bond of love that may be created in prayer, may be created by your thoughts of love for one another, may be created by your actions and efforts to bring love into this world. This is important, beloved souls.
+
+For those who just begin this journey, they are nurtured and upheld and spoon-fed the truth. You have all felt the benefits of our ministrations and God’s Touch upon you, but there comes a time when God asks of you to step forward in love, to acknowledge the change that has been brought within you that encourages you to be a channel of love in the world, to express the truth of your soul in the world. This may be done in simple words, in simple ways, but as you express this light and this truth, bringing love, bringing wisdom, you help to open a deeper inflowing of Love within your own soul. For in this giving comes a blessing and in this blessing comes a deeper capacity to give. So the flow of Light strengthens and awakens and comes to fruition as you make this your daily life, your daily reality, a reality that is predicated upon love. All that is of the human condition, what error may exist within you and what fear may continue to guide you in directions that are not of love, will fall away. This is the power of God’s Love. 
+
+In this change rises the joy of your soul. It becomes your heartbeat of joy upon joy, a sense that life is a wonderment, a sense that you are precious and loved, a sense that all of life is a gift from God and each day a blessing that flows and flows unending. With this joy comes deep peace, the concerns of yesterday no longer hold your attention nor your fear or concern as there is liberation from all that is of the material condition that shackles humanity. Your very demeanor changes with the Love and in this way you teach this Truth as a living example. Your choices will reflect this Truth pulsing within you, changing your perceptions and your understanding of the purpose of life. With this comes a deep wisdom, a calmness and a joy. Carry this out into the world, beloveds. Whatever you do, wherever you go, whoever you meet, may you be a shining example of love in action, love expressed with love as your foundation and expression. 
+
+There are those who are reaching for you, those who sense the power of the Love within you, those who need council and love, comfort and truth. Give what you can, beloveds, in simple and direct ways. Do not hold back but know that God guides you into the flow of humanity so that you may be used as a channel of love for many. It may be in the simplest of situations, the briefest of moments that you will feel this flow of love bursting forth from you to another, often a stranger, often someone you do not know or will ever know. But still, God uses you where He may to touch another soul, to bring some comfort and healing to another. Allow this to be. Allow yourselves to give freely, to not hold back or judge or to feel awkward, but to give freely an expression of the joy that wells up within your soul. It is so simple, beloveds. It is so very simple. Carry yourself in light. Monitor your thoughts so they are of light. See the world as an opportunity to give love. See yourselves as powerful channels of God’s Love and your life will be a great blessing and joy. 
+
+May God bless you, my beloved friends, and keep you always in His embrace and may we always be with you, every breath every moment. May the blessings and grace of God’s Touch be with you. God bless you, beloveds. Matthew loves you. God bless you.

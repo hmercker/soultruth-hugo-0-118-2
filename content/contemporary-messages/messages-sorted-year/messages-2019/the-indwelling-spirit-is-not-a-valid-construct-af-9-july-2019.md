@@ -1,0 +1,36 @@
+---
+title: "The Indwelling spirit is not a Valid Construct"
+menu_title: ""
+description: "Josephus explains the Indwelling spirit is not a valid construct"
+date: 2020-11-18 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# The Indwelling spirit is not a Valid Construct
+
+July 9<sup>th</sup>, 2019
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+I am Josephus and I have returned as promised. I am willing to entertain some questions from you, my beloved friends. If there is a need to question and that question is relevant to your soul’s growth and development, I am willing to answer as best I can through this instrument. So I await your response.
+
+*[Question: I have a question but I would quite happily leave it to you, Josephus, if you chose not to answer, but it is related to this stage in my soul development. What I understand from other sources and what I have personally experienced is that I have within my mind what I call an indwelling spirit. I have had some...I have less than great success in achieving communication with this being to the extent that I almost don't try anymore. So my question is: Am I...should I anticipate this communication? I suppose I should start with this question: Is it correct to assume that this is true? And you would know who I believe this entity to be and you might comment on that or not. And then I would ask is it important for me to establish this communication and therefore should I be working on it? Thank you.]*
+
+This is a complex question, my dear son, and one to be expected from your curious and detailed mindful exploration of spirituality. It is the inclination of men to categorize, to dissect and to label aspects of God's creation whether that be those elements within yourselves or those elements in the material world. This allows the mind to accept and to understand those things that are difficult to understand by the mind. This term that you use is a curious term to me for I see myself as a being that lives and dwells within the Celestial Kingdom as not a being that has particular aspects that are distinct in which I may communicate and have conversation, if you will, between my conscious self and another self within. So what you call an indwelling spirit is merely your spirit, your being that dwells within and may be easily interpreted as your soul. Yet indeed your soul has aspects within it that you may consider separate at this time of your development. But in truth once the soul has been completely transformed by God's Divine Love, there is no separation. There is merely existence and that existence is oneness. All that is within the soul and other aspects of your being becomes merged together into oneness so there is no dichotomy of consciousness. There is only the oneness of your being, that is a soul awakened, transformed, alive, and expressive, come together by the power of God's Love.
+
+Yes many teachers in your world, many writings and speculations describing the aspects of the soul of the individual and suggesting that it is compartmentalized in various ways is an error, although not so much from the human perspective but very much from my perspective as a Celestial soul. I have found oneness within myself and I seek at-onement with God which is beyond myself. These are the only two elements in play regarding my soul's communication. Other parts, of course, come into play to communicate with others whether it be with you mortals in this world or with my fellow Celestial beings in my world. But this is another matter altogether. It does not require a certain separation of who I am, a soul in all its components working together in, as I say, a complete and one state of being.
+
+I hope this answers your question, my dear son. I am willing to entertain more questions if this does not.
+
+*[Question: Well, it has lots of implications. I'm sure you know the source of the information. I don't choose to announce it in the circle but I'm sure you are aware of the source of this information and you would undoubtedly know also that I have some material on my website which tends to support that plus messages from a somewhat Divine Love medium that support that. So, to the extent that I take it to heart as I've heard it, I need to remove that material. So, I thank you anyway for what you have managed to deliver. Thank you.]*
+
+Well, I would like to say to you that what you are reading and expressing in these various ways is an attempt to explain something that is very difficult to explain, that there is a difficulty in communication of something that is beyond the comprehension of the human mind. The human mind has a great tendency to want to dissect and categorize things in order to make this more understandable. But as you progress in soul development and soul perception and faculties, this oneness state is more understandable. Because the material mind becomes absorbed into the mind of the soul, all becomes one and there is no separation. Even today for many of you when you communicate with yourself, it feels as if you are two people so that brings forth a soulful perception of reality and the mind that also brings its mindful perception of reality. This duality is a great dilemma for many of you.
+
+You wish to come to that place of oneness of which I speak because it is the soul's longings and desire to be in a state of oneness and wholeness in itself. When that is achieved there are certainly no conditions of confusion or separation of those parts of yourself. In the oneness is great joy, great fluidity of understanding, a great depth of soulful experience. This is your great reward for all of your efforts to receive this great gift of Divine Love. So that this may be achieved and for those who do not achieve this, there is indeed a sense of separation, of duality. This becomes the reality of those who walk the path of natural love and seek the reality of the path of natural love. So in some sense, what you say has truth for those who walk this path, even those who have come to that place of purity in the natural love, for they will never achieve the oneness that I speak of. It is not possible, for the soul needs to be awakened by the Divine Love, the Essence of God for this oneness of soul to be achieved. The great dilemma of mortals and spirits alike in this separation and duality is that it may be saved, awakened, and comes together so that there is no more a sense of the inability to communicate with God in this way, this sense of separateness. Instead, it is a journey towards at-onement, both within and with God. This is achieved to some degree as one continues to progress and walk upon this divine path which, as you know, is an eternal undertaking and experience of the soul.
+
+Thank you, my friends. I will now leave. I think I have said quite enough for you to digest for today. May God bless you all in your efforts to truly understand your souls and understand your relationship with God and all that God has created in His beautiful and perfect universe. God bless you, my friends. I am Josephus and I will return. God bless you.
+
+**Note** A follow-up question was asked later: [Q&A: Are Urantia Book Followers Listening to Their Souls?](/contemporary-messages/messages-sorted-year/messages-2019/are-urantia-followers-listening-to-their-souls-af-4-dec-2019/)

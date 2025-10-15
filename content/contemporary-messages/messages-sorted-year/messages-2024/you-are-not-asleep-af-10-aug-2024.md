@@ -1,0 +1,32 @@
+---
+title: "You’re Not Sleeping! Souls Are Awakening! "
+menu_title: ""
+description: "Keea Atta Kem says You’re Not Sleeping! Souls Are Awakening!  says Your Prayers Bring a Great Light into the World"
+date: 2024-11-11 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# You’re Not Sleeping! Souls Are Awakening! 
+
+August 10<sup>th</sup>, 2024
+
+Love Boat Tour, Alaska
+
+Received by Al Fike 
+
+Blessings to you, beloved souls, I am Keea Atta Kem. You all seek out your souls. You all wish to be in alignment with your souls, attuned to your souls, making your souls the precedence of consciousness for each moment, each time you are in the world awakened and true to yourselves, your true selves. Some of you know your souls very well and feel quite comfortable in that place of soul consciousness. Some of you however struggle with this awareness and find it difficult to be in that place of soul consciousness. For some of you, it is like threading a needle, difficult to focus and concentrate on that small space where the thread might enter through the eye of the needle and thus accomplishing your task. This is often the case with the soul. Though such an expansive part of you, to thread your consciousness into the soul so that you are aware and so that the soul and you become one consciousness, it is difficult.
+
+The focus is unfamiliar. The place of mind is familiar and powerful within you. Yet to release your grasp of the mind and to go to that place that is not mind but pure consciousness, pure being in all its simplicity, all its power and all its beauty is something that you have trouble releasing mindful considerations and entering into that place of soul. Yet your soul is very conscious and very much alive. It expresses itself in ways that the mind can not capture but allows it through, shall we say, the blind spots of the mind so that it comes and flows readily without the mind interpreting and holding onto this form of consciousness.
+
+You see the mind wishes to control everything. The mind wants the soul to integrate with the mind. Yet it cannot be. It is not part of the natural condition of the soul. It must be the other way around. The material mind must acquiesce to the mind of the soul. For the soul is the dominant part of you, although it is not the dominant part of your consciousness. It is that part of you that brings life into your being, in your experience of awareness. It is so close, and yet, so very far away for many of you. Because you find it difficult to release that powerful part of you that is of the material mind and relax and be absorbed into soul, allowing your consciousness to freely float within soul consciousness, the mind of the soul.
+
+We are there to help. We often make great efforts to help you come to that awareness and that place. Often the only way you are able to do it is to fall into a condition that you might describe as sleep, but it is not. It is the soul awakening into your consciousness. In this place of peace and respite, soul to soul, it is able to be expressed outwardly and inwardly where there is a unity of awareness. Though you may fret that your soul is not well-developed and the consciousness of soul does not exist, I say to you, my beloved friends, that the soul is doing very well and is powerful in its presence within you. It is a great light. Yet your mind, so stubborn and resistant, cannot allow this domination, this predominance of consciousness to such a degree that you do not recognise the difference between the two. 
+
+When you allow yourselves to do so, when you acknowledge that you can do so, when you let go of those expectations and ideas of what soul consciousness means, then you will find yourself in that place of freedom, expansion and light. That place where the Essence of God resides and is growing with each prayer and each day. A place where the wisdom, so true and so very much a part of the laws that God has created and is aware of these things. They come forth in subtle and sometimes unobserved ways, but they exist. The consciousness of soul is expressed. The love flows and the awareness may be added to the awareness of the material mind because it is there. It is a part of you and it is a powerful part of you, my beloveds. 
+
+Allow your soul its place within your being, your awareness, your experience in life and you will find that the integration between the material and the spiritual will come more readily and that the guidance that God has for you will be clearer within your consciousness and the love that God has for you will flow freely into you, through you and around you. This is happening despite your mind’s desire to dominate. Yet, you are frustrated often because you are not with soul consciousness. You do not feel a difference. You feel the mind and its dominance. 
+
+I say to you, beloved souls, as you continue to release those conditions that hold your mind so forward in your consciousness, when you are at peace and relax, having great faith, putting aside those fears of releasing control, then you will know soul consciousness easily. It will come to you in such a way as though there is no burden. There is no price to be paid. There is nothing that will harm you or change you to such a degree that you would not know yourself. For you are truly yourself within your soul and the consciousness of soul will show you more of who you are, truly, than your mind could ever do. 
+
+My beloved friends, seek the peace of the soul. Go deep within and when you feel that peace, when you know there is light all around you and within you, Is this not your soul? Is this not what you seek? When you feel God’s Touch, the upliftment of God’s blessings and when you feel the angels all around you, is this not your soul showing you what is the reality that is of God and your soul and all there is around and within concerning your soul? These things will come. They must come for as the soul grows, it strengthens in love so its predominance will be present and powerful within your consciousness. God bless you, my beloved and beautiful friends. I am Keea Atta Kem and I love you. I love you so. God bless you. God bless you. love is with you and I am with you often. Blessings and peace be with you all.

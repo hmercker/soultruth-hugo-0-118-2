@@ -1,0 +1,41 @@
+---
+title: "The Birthing of the Soul"
+menu_title: ""
+description: "Seretta Kem talks of The Birthing of the Soul"
+date: 2020-06-08 07:27:15+11:00
+draft: False
+hidden: True
+weight: 358
+---
+# The Birthing of the Soul
+
+October 6<sup>th</sup>, 2018
+
+Gibsons, B.C. Canada
+
+Received by Al Fike
+
+ 
+
+Are you thinking about direct voice, my friends? Not really. This is how we wish you to remain in your thinking, instead to focus on your soul development, the upliftment of your soul, the development of your soul. Because this is the next step upon that great stairway to light and to success. In previous sessions together, you have yearned and yearned for this gift of direct voice, such a deep desire, such a great focus in your thoughts. Now, your focus is upon your soul and your relationship with your Heavenly Father. This is important. This is crucial at this time. 
+
+I am not suggesting that your efforts in the past were misguided, for they were not. We certainly guided you to consider this gift, and the blessings that may come. In your fervent prayers, you have attained a measure of success in the development of this gift. As we have told you, it is seeded within each one of you. Its potential is there and palpable within each one of you. But this gift can only come with an awakened soul. This is the essential component, the one that will carry these gifts forward and be activated. 
+
+So if this gift were a machine that required fuel, then indeed, the Divine Love within your soul is the fuel that will ignite the expression of this gift. With the activation of your soul and the alignment of your soul with your mind, you are indeed powerful instruments in love, for change and as a channel of love. So I encourage you, beloved sisters and brothers, to continue to pray fervently, to put your focus upon the experiences of your soul, the feelings of your soul, the knowings of your soul, the love within your soul. These things will indicate the measure of your soul progression. These things will point the way toward success in all of these ventures which you have subscribed to. You are well aware, beloveds, that it is in your relationship with God, it is in this light that grows within you, it is in the power and wisdom and faith that grows with the Father’s Love burning within you that will enact this gift and protect this gift. For each of you has a great power and that power is free will. With free will, you may utilize this gift as you wish. If your choices run afoul of what is intended, then all our efforts will be for naught. You must operate with the highest motivations and integrity. You must seek the Will of God with each day, with each effort that you make. Without this knowing, this true knowing from within, you will be lost in this great effort to bring the truth to mankind, to bring the change to the souls of all of your brothers and sisters. For this is God’s work.
+
+We are all merely instruments of God’s Will and His work. Through our uniqueness, our beautiful souls, the expression of God’s Will has many hues and colours, many ways that will bring truth and inspiration to mankind. 
+
+Jesus brought a special gift to you all. He enveloped you in gowns that have deep designations indicating to others that you are souls of distinction, of beauty, of deep purpose. With this beautiful gift, you must have humility, my beloveds, deep humility. For like all beautiful gifts that are spiritual, they come from God. God has blessed you thus because you have passed many tests, my beloveds. You have prayed many times and  you have made concerted efforts. You have studied the truth. You have walked this path in earnestness, expressing the highest of intentions and expressions. Thus you have earned this designation and now you must live up to this designation with each day. 
+
+You are feeling the changes within you, beloved souls. You are recognizing that something different is emerging from within you, something vaguely familiar yet different. This is your soul, each of your souls awakening and speaking to you with the language of the soul. These designations have come, not because of your thoughts and deeds in this world but because there are few whose souls who have awakened in this world. Thus you have earned a great gift. 
+
+Like the butterfly breaking out of the pupae, you struggle and push and yearn and press against the shell that holds you in, cracks forming, with fissures opening. Soon you will emerge, my beautiful butterflies. Your wings will be gossamer gold and silver, purple, green and yellow. All the colours of the rainbow you will express in your glorious soul as it takes flight, a winged creature of God, a beautiful expression of God’s Creation in the world. 
+You cannot see readily your own progress, beloved souls, as you fight to be free of the constrictions, of the old ways of the world. But I tell you something wonderful and miraculous is happening with each one of you. You will find your way into freedom and glorious, beautiful expressions of a soul awakened. It is the most beautiful of creatures. The gifts and wonderment of your being in the world will bring many blessings to others and the beauty of your souls will inspire many others. The power of your love will draw many to you. The strength of your wisdom and your countenance will command respect and homage to who you are. In this you will speak the truth and give the way so that others may follow. You do not see this as you gather together in this beautiful circle of friendship and love, this safe home that cradles you, feeding you, uplifting you, giving shelter from the human condition. But beloveds, in time you must leave this place and be in the world as God’s true and faithful channels of love and truth and here you will gain new gifts and abilities. Aspects within will emerge that you did not know existed. You will utilize these things to forge a new life for yourselves, a life that is a true expression of God’s Will, a true expression of your own beautiful self.
+
+There is always change in God’s universe. As His powerful Love infuses you, there is always change, an evolution, a beautiful growing, an expansion from within. You cannot live life ignoring this emerging self that longs to be expressed and recognized, not only in the world but with yourself. To truly know who you are is a very great gift. To truly walk in the world in this way is a powerful example of truth. To shed all the old ways, to release the pain, the error, the constrictions of the predominant mind, to awaken in joy, to be able to hear God in your prayers and know His Will, to walk in freedom of the tyranny of the human condition, these things, beloveds, are within your grasp. 
+
+We await the emergence of this beautiful butterfly that is your soul. Continue to struggle and push, to allow the metamorphosis to take place. The world will look differently, my beloveds. You will feel differently. You will come to know your own soul which has been a stranger to you all your life. Glimpses, yes, you have had, but true knowing and being in this soul consciousness is something very wonderful and something you have not known in your life to any great degree. This is coming. With His Love, this great gift, it comes. With your prayers, you continue to give the impetus so that the struggle may be over. You will shed the shell that encapsulates your soul and be free, beloveds. 
+
+We continue to be with you in this birthing of your soul. This very process has far greater importance than the development of a single gift. In this process, comes the unfolding of many gifts. The rainbow hues upon the wings are indicative of the multiplicity of gifts that you will have and express in this world. May you continue, beloved souls, in your great effort to walk in the Light and Truth of God’s Love, to be His servants, His children, that your love and His Love may bring greater light to this world. 
+
+God bless you, beloveds. I am Seretta Kem and I have great love for all of you. I am with you. I witness the birthing of your soul. God bless you. 

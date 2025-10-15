@@ -1,0 +1,49 @@
+---
+title: "Encourages Us Through the Struggles of the World"
+menu_title: ""
+description: "Paul the Apostle Encourages Us Through the Struggles of the World"
+date: 2024-05-30 07:21:03+11:00
+draft: False
+hidden: True
+weight: 386
+---
+# Encourages Us Through the Struggles of the World  
+
+February 18<sup>th</sup>, 2024
+
+Sechelt, B.C., Canada
+
+Received by Al Fike 
+
+
+
+May the great gift of His Love be bestowed upon your souls, my beloved friends. I am Paul, Paul of Tarsus and I come to encourage you. This world has always been a world of struggle. It was that way from almost the very beginning, as the first parents chose independence from God. Thus the struggles began for humanity and continue to this day. So to accomplish anything in your life requires effort and focus, dedication and often struggle. 
+
+There are many barriers in the way for humanity to thrive. There are many elements in your world that are contrary, that cause great pain, suffering and disappointment. Much of what you do in your world does not bring great satisfaction. Rather, you do these things for fear of being without, fear of being alone, fear of many things. You set forth on a journey that is unpredictable and that you had many challenges that caused you serious doubt, pain and difficulties. Yet, here you stand, my beloved brothers and sisters. You stand in light. You have faith that God will bless you and guide you. You have faith that God will protect you and get you what you require in order to be in the light, in order to thrive in the light. 
+
+The power of your faith, the power of your standing forthright in the world in prayer beseeching God for His blessings, is contrary to the human condition, contrary to the thoughts and attitudes and beliefs of many. Yet you stand here with expectation and desire, seeking the great gift of God’s Love, because you have felt this gift within your hearts. You have known God’s Touch and the comfort that it brings. You have known God’s guidance and the harmony that ensues. You know many things that God has to give to you. Yet what you know, my beloved brothers and sisters, is merely a fraction, a tiny fraction of what God can give to you. Because you step forth in faith in a small measure. Enough to ensure that God may bless you, but not nearly enough to ensure that God will transform you quickly and effectively.
+
+I urge you to strengthen your faith. When you pray, pray with all earnestness, longing and desire that come from the soul so that you may know the true blessings of God. Not merely a faint breath of His Touch, but His full embrace, the knowledge and understanding of His Love and all its wonderment and glory. For in this, all these things that I say which are impediments to your happiness and delight will dissolve in the embrace of God. Not that the world will change, but you will change, my beloved brothers and sisters. You are changing now. 
+
+The incremental blessings that have come to many of you are having its effects. You have a measure of freedom from the darkness and you are longing for more. I urge you on, beloved souls, seekers of truth and light. I urge you to continue forging your relationship with your Creator. To stand firm upon the rock of truth. Do not allow the conditions of this world and the opinions of many who may be around you to shake your faith or to move you from that rock of truth. 
+
+Be steadfast, for the rewards that you will bring to yourself as a result of your efforts and struggles will be great. When that time comes for you to pass into the world of spirit and you look back upon your life, it will be with deep satisfaction and gratitude for what you have accomplished. Not necessarily in the material sense, for these things are not permanent, but in the sense of your soul’s awakening, cleansing, development and closeness to God. 
+
+These things are permanent and eternal, so you will know them not just for the moment, but for all eternity. My beloved and beautiful friends, all eternity you will walk in the light. You will not regress back into darkness, but walk into the light, greater light. Light so bright and beautiful that you cannot imagine. Knowledge so deep and clear that your minds would reel in its understanding with joy so expansive and wondrous, that what you feel today is merely a shadow of what is to come.
+
+Love, love, your capacity and ability to love, to have great compassion for others and yourself, to come to know God through love will be the greatest blessing of all given to you. Your soul knows what it is that you are seeking. Your mind may doubt. Your ideas may not be clear. The joy may not be great at this time, but indeed, these blessings of which I speak will be yours. For it is the fulfilment of the law and it is the blessing that comes with your efforts to seek God’s Love in ever greater quantities within. 
+
+If you but focus upon this in your life, my beloved friends, you will know the joys that I speak of in the earthly plane. You will see the truth that I speak of with the awakening of the faculties of your soul. You will be powerful lights, beautiful instruments in the world. Not because you have formulated ideas and approaches to bringing the Truth of God’s Love into the world. Though these things are necessary and important, they lack potency without the Love growing within your soul to such an extent that it adds the veracity and the power of truth to your presence. 
+
+Though Jesus was born with a purified soul, it took him thirty years to be prepared to walk the Earth as a truly powerful agent for God and for the truth. So, you must prepare yourselves, beloved souls. I know it is difficult to wait. It is difficult to be patient. It is difficult to have faith in the future, in God’s plan. But these things you must believe and have faith toward, because that time comes when you will be utilised as God’s instruments in the world. The power of that instrumentality will be determined by the power of the Love within your soul and your capacities to be in alignment with God. To hear God’s guidance, to act upon it, to have the strength and the wisdom and the light to truly be God’s instruments, pure, powerful and beautiful. 
+
+Each of you can accomplish this. Each of you has a soul that God has gifted you with, brimming with wondrous gifts, wondrous capacities. All of these things are being ignited by the gift of God’s Love. Seek it everyday with fervency and desire. Seek it as often as you can, for this great gift of Love is the key to all that I speak of. You have known this. Many of you have heard this message over many years. Yet, we come again to speak of this truth, to speak of this future, to speak of your involvement in God’s great plan for the salvation of humanity.
+
+Contemplate what you may do to serve God in this great effort and in so doing, serve humanity in love. There is an answer within. That answer will come clearly with the fervency of your prayers and the desire to know. For God will call each and every one of you to service. Some have already been called. Others are waiting, yet in the end, all of you will have your opportunity to serve God and to bring greater light to this world. 
+The world has never needed light to such a degree as it is today. The world is in shambles. Though humanity lives within the illusion of orderliness and the idea of prosperity and security, unfortunately these things are built upon sand that shifts constantly. But the minds of men will not look, instead, they prefer to be ignorant and to continue on in the illusions that bring a sense of security. Indeed, all that is untrue in God’s universe must fall away in time. It shall, my friends, it shall.
+
+You will come to know the nakedness of truth. For some this will be harsh. For others who are striving to know truth, it will be a comfort. How long will you entertain these illusions? How long will you grasp onto your mindful illusions rather than know the soulful truth that God wishes for you to know? Only you can determine this, beloved souls. Only you are in charge of your life and how it may unfold. You may ask for blessings and guidance and, indeed, these things come. Yet, in the end, your choice determines so much. How you conduct yourself day by day, the thoughts that you entertain, the desires that you have, the ambitions that you carry forth in your life, do you feel that they are in harmony with God’s Laws of Love? Or are they merely the act of entertaining the predominant illusions of humanity? 
+
+It is for you to know the truth, and the truth will set you free. But often it brings the pain of acknowledgement of knowing how you stand within the truth, how you are within that truth. Consider these things, beloved friends. For I do not mince my words, but merely come to reinforce the truth and to remind you of the truth so that you may truly know these great blessings that are possible and given by God abundantly. For as you walk in truth, as you seek the light, so you are blessed in accordance to the intensity and expansiveness of what you carry within yourself.
+
+May you be blessed abundantly, beloved souls. I am Paul and I come to speak of things that are important, that you must consider and take within with all earnestness. May you be blessed by the great gift of God’s Love, that you may be strengthened and true to all that which is of love. That you may be a light and in alignment with God’s Will. That His plan for the salvation of humanity may be partly realised by each and every one of you, beautiful souls, souls of light, souls seeking truth. May you be blessed. My love is with you all. God bless you.
