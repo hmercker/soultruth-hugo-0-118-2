@@ -28,6 +28,10 @@ Topics on this site include :
 
 Take this link for a report of <A HREF="https://search.freefind.com/find.html?id=85948985&amp;w=0&amp;p=0">what new</a>  messages were added in the last few weeks.
  
+### [Subscribe here](http://eepurl.com/gaGfPD)
+
+...to our mailing list.
+
 <p style="text-align: center;">
-<script type="text/javascript" src="//counter.websiteout.net/js/5/6/2845/1"></script>
+<script type="text/javascript" src="//counter.websiteout.net/js/5/6/2852/1"></script>
 </p>
