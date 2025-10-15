@@ -1,0 +1,32 @@
+---
+title: "More Development is Required for Physical Manifestation"
+menu_title: ""
+description: "More Development is Required for Physical Manifestation"
+date: 2025-04-16 07:21:03+11:00
+draft: False
+hidden: True
+weight:
+---
+# More Development is Required for Physical Manifestation
+
+February 14<sup>th</sup>, 2023
+
+Sechelt, BC, Canada
+
+Seretta Kem received by Al Fike
+
+May God bless you my friends, I am Seretta Kem. There is much that we are still engaged within and require your connection and efforts in order to accomplish those things of development, honing your blessings, skills, and abilities in the world. We require much of you, for how many are willing to sit as you do to receive the ministrations of your angel friends and your stellar friends and have a clear understanding of the Truth of God’s Love? Indeed, you are precious, very precious in the world and very much needed in the world. So, we devote our time as do you so that you may awaken to your gifts and abilities, that you may come to know the true spiritual self that resides within you that needs more coaxing and encouraging to emerge.
+
+We come together in a great effort using prayer as our foundation, utilizing your faith and your desires to manifest gifts and capacities to be used as God’s instruments in the world. As you pray for God’s Love and grow in the blessing of His Love, we are able to make a closer rapport and be with you more intimately, shall we say, so that the development and the coming together of what we carry and wish to share with you and what you might receive and be open to will open the door to many developments that are yet to be realized. Preparation, my beloved friends, is the focus and the theme that we have and we carry with you as we pray together in this way, beautiful children of God.
+
+It is one thing to have the skills, the material blessings, the spiritual gifts, and the capacity to exercise these things and another to have them expressed in the highest way and for the greatest good so that the level of the manifestations and blessings that flow through you may be of this calibre. It requires your commitment that is deep and broad, filled with focus and true desire. It is not easy for you and for us to accomplish this upon the earthly plane which is clearly not ideal for such gifts to be developed to such a high calibre and standard. Yet, you persist as do we to carry the light, to come together in prayer and supplication to God and to honour one another, your friends from the Celestial Kingdom and your friends on Earth. As you honour all that is happening here in this Circle of Light, as you desire more to be accomplished and for the level of rapport and effort to reach an ever higher plane, more refined energies as you call it, more subtle yet more powerful, these things come with your consistent efforts.
+
+As you grow in God’s Love, the doors continue to open. You continue to climb up a steep incline toward greater light, truth, and power of Love manifest with the Will of God carried through each of you into the world. Yes, we may do much and we can do much, but you must retain what is given. It cannot be squandered. It is given in love. It is given with our dedication. Although many of you are somewhat unaware of the process and what is happening to you and through you, so it is easy for you to take for granted the efforts that are being made. It is easy for you to have a casual attitude toward these efforts because you are human.
+
+We wish to encourage you to be more serious in relation to your commitment to this work and also more joyful in your recognition of what a wonderful gift and blessing it is to have your angel friends assist you in this development and to have God bless you in the process of soul awakening and development. Much can be given, beloved friends, but are you truly prepared and ready for the gifts that are offered? Can you truly embrace these things and let go of all biases and attitudes that are not truly in alignment with them? We wait patiently as does God. We come consistently as does God who blesses you with each prayer. The laws are obeyed. Yet, if you wish to see, know and feel the manifestations that are intended, that whichyou desire to have realized, then more commitment is required, more prayer, more focus, for as I say, we will not bring forth something that will be squandered or inconsistent or not in alignment with the Truth and blessing of God’s Love and His Laws that pertain to His Love. This is reaching for the highest. This is an expression of a true desire to be God’s instrument.
+
+Indeed, the Direct Voice is merely one manifestation of many blessings and the manifestations that can take place amongst you and through you, both collectively and individually. It is for you to continue to raise your light, desire and expression of love and closeness to God. These are the things that will bring about what it is that you so desire. This is what will open the door to many other things. Be prepared, beloved souls. Be ready for what is to come. Be ready for the next step. Be ready and willing when God invites you to be His instrument and guides you and carries you thus so that you may be an effective instrument in the world. All hinges upon your diligence, your commitment, the time that you take to be with God to receive His Love, to serve others in prayer and Circles of Light and many other things that you might do to demonstrate your gifts, your commitment to the truth, and to receive the great gift of His Love.
+
+Much awaits you, my friends, so very much. It is for you to discover how rich are the blessings from God, how beautiful His Touch upon you, and how powerful the alignment of your angel friends and others who are willing to invest much time and effort on your behalf in what can be given and what shall be given provided the conditions are right and the blessings come abundantly as a result of your earnest prayers. Pray from the heart, my beloved and beautiful friends. Pray earnestly. Be in alignment with God. Seek His blessings always and the rest will unfold in the timing and exquisite manifestation and power of His Love working through you and within you.
+
+God bless you, beloved friends. I am Seretta Kem. I am happy to speak to you today and to encourage you upon this path, this desire to serve in such an interesting and wondrous way. God bless you, beloved students, beautiful children of God. You are blessed and shall be blessed. My love is with you. God bless you.

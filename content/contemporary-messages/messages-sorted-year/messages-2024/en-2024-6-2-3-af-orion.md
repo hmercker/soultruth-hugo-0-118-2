@@ -1,0 +1,36 @@
+---
+title: "Prayer is an Activator in Every Part of the Universe"
+menu_title: ""
+description: "Prayer is an Activator in Every Part of the Universe"
+date: 2025-04-15 07:21:03+11:00
+draft: False
+hidden: True
+weight:
+---
+# Prayer is an Activator in Every Part of the Universe
+
+June 2<sup>nd</sup>, 2024
+
+Sechelt, BC, Canada
+
+Orion received by Al Fike
+
+Blessed children of Earth, I am Orion. I come to encourage you and pray with you, for throughout the universe, prayer is a powerful activator in every culture, every planet, every part of the universe. You have learned how to utilise this agent of activation for your benefit and for the benefit of your planet. Seeking a great gift from the Creator, seeking the Essence of the Soul of the Creator to enter your soul, this too, is a powerful activator. Combined, it creates the most powerful of forces in the universe. Prayer and receiving this great gift are what will cause great change in your world and cause great change within yourself.
+
+Each of you wishes, you have great desire, to be upheld and uplifted in light, peace and love, so to make a great antidote to the earthly conditions that are here and that it is difficult to escape from. Yet here, you gather, you huddle together in this light and as you do so, you draw your angel friends close, many bright spirits and stellar friends. A great collective of light that, indeed, can be utilised to neutralise dark conditions in your world, as well as upholding and uplifting you, my beloved friends. More, many more need to engage in this, such a simple process. Yet, within the minds of humanity, so many, there is a great obstruction, minds cluttered with concepts and precepts, ideas and inclinations that are contrary to this simple practice of reaching out to the Creator.
+
+What is shocking is that so many feel unworthy, even though each and every one of us are God’s creation. We have been given a great gift of possessing a soul, the highest gift in creation. With that soul, you may come to God and come to know God as you open yourself and embrace God’s Love. This concept is known throughout the universe, for God’s Love permeates the universe and is available to every created being who possesses a soul. I have received this great gift. On our planet, we are born into it, into an understanding of it. We seek it diligently. We understand the mechanisms of spiritual awakening, the nourishment of our souls and its transformation in love.
+
+You, brave and beautiful earthlings, understand this concept as well. This is a powerful activation of truth within each one of you. An affirmation of this truth that, even though many of you do not speak of it to others, you are transmitting the truth of it through your soul. For the great Creator utilises each soul that is receptive in this way. In this way, you have transmitted to others in the universe that a change is taking place, a great transformation is happening. Not just amongst you, my beloved friends, but in this world. Each of you will witness a great change that will take place in your world. Each of you, in your own way, will participate in this change. You do so now by seeking to awaken your soul in all that is of truth and love as God continues to pour His Love into you.
+
+This is the transformation. It starts with you and in time, it will encompass the planet. Think of yourself as the harbingers, those who venture forth navigating the conditions of your world and yet, finding your way to God and becoming that bright signal of truth to the world and to the universe. God has a great plan in store for this world, for if the world is to be transformed, then many things must happen. As you are to be transformed, you must engage in many ways to allow the transformation to be true and real and expressed consciously within you. In this process, God is providing the ways and means for you to do this.
+
+When you come together here in these Circles of Light, you are only expressing one step toward what must be many steps in the process of soul awakening and transformation. When you are activated as an instrument of God, a channel of light and love, then God will utilise you in many ways to touch many others, to inspire many souls, that they may feel the aching and longing within to be in at-onement, attunement with God. For as you become attuned to God, in alignment with God’s wonderful self and God’s Laws of Creation and Love, then you become an active participant in the great changes that God is initiating and activating upon your planet.
+
+Seek this great gift of love diligently, my friends. It is the key to everything. I speak of this from experience. I speak of this as a soul transformed in love. I speak of this as your friend. I encourage you, all of you upon the Earth, to walk in the ways of truth, love and light. How many times have you been told this from so many wise and beautiful souls who can affirm this truth and live this truth completely and in great light? We lead the way for you, my friends. We will always make this effort to connect and to be close, to be a part of this wondrous transformation of the world. We are privileged to witness and to participate. We do so in the greatest of love, respect and acknowledgement of our brothers and sisters upon this world.
+
+For you truly are a part of the great family of souls that inhabit the universe. In time, you will take your rightful place and know of your families spread out so far and wide, and know how you may communicate with them, and know how we may interact together in harmony and peace so as to uplift your world and bring it to that level of harmony with the universe and with all that is within your planet and all that is within you. These things will come and they are coming, the unfolding of this Divine plan is already having its effects and you are feeling these effects, beloved friends. You shall feel them more intensely as time goes on. Day by day the effects will increase. The benefits will multiply and you will begin to awaken to a new vision of life and in this, a new way of living.
+
+May you be blessed, my friends, with the awakened soul that comes as you diligently seek, drop by drop, this great blessing of love. We are with you in your seeking, your deliberations and efforts. We are with you in all that you aspire toward that is of light. We shall assist you. Just part of many, many who will assist you in accomplishing these goals, in awakening to a new world, a new life, a new way of being. May the blessings of the great Creator of the universe, one you call God, bring to you a soul so expansive in love that your eyes will open, your ears will open, all faculties within will open and bring to you the insights, perceptions, the knowing and revelations that come with this opening. I pray for you, my friends, that all on Earth will find peace, will be gratified in love, will know the truth and join in this great partnership of humanity throughout the universe.
+
+Blessings to you, my friends. I am Orion and my love for you is constant. My efforts to assist you are daily as you continue to strive toward your own soul’s awakening and gleaning of truth that comes from that awakening. God bless you, my beloved friends. God bless you. 

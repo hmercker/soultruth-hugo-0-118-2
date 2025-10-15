@@ -1,0 +1,36 @@
+---
+title: "Stand Up and Declare the Truth of God’s Love"
+menu_title: ""
+description: "Stand Up and Declare the Truth of God’s Love"
+date: 2025-04-08 07:21:03+00:00
+draft: False
+hidden: True
+weight:
+---
+# Stand Up and Declare the Truth of God’s Love
+
+June 29<sup>th</sup>, 2024
+
+Sechelt, BC, Canada
+
+James Tudor Snr received by Al Fike
+
+I am James Tudor, the one you know. Leadership, you must come to realise and express the gifts of leadership that reside within you. For our island is in great need of those who are willing to step forward and be counted in the Truth of God’s Love. I did not hesitate and indeed, I had many who resisted my words but I persisted and I continued to walk the path of the truth that I knew. So I encourage you, my beloved grandson (DAVID), to be strong with the truth, to speak it without hesitation. You have a gift. You have the capacity to teach many, provided you are in alignment with the truth, that you live the truth and express it. For without that authenticity, no one will listen. No one will see you as a leader or a teacher. But with it, God’s great Hand is expressed through you to others in the truth that is meant to be given, in the blessings that are meant to flow, in the gentleness and the firmness of God’s instruments on the Earth.
+
+This does not apply just to you, my son. It applies to all of you. Do not be weak. Do not allow your fears to overtake the strength that lies within your soul, the purpose that resides there within, the grandeur of a soul resplendent in the Love of God, and in that strength and expression of light, truth and love, you will persuade many. You will be an active agent of our Heavenly Father whose plan is that all souls may come to the redemptive love, the blessings of His Truth and Love that shall transform and awaken and bring forth the beauty of the soul.
+
+You’re all meant to be leaders and teachers. Some of you will express your gifts in mediumship, others in teaching, others in healing and many other things. Yet, if you ignore and dissuade yourselves from these gifts and this capacity to be God’s instruments, then you will have done yourself a great disservice as well as a great disservice to your loved ones and those whom you are meant to teach and minister upon.
+
+This is not a journey for the weak. It is a journey for those who are strong. You are not given all of these blessings, blessed and embraced in love so constantly, so powerfully to have you hide away in your private and safe places and not go forward with the truth with strength, clarity and insistence that your brothers and sisters may know of this truth. No one can force them to drink the waters of love, but indeed you must show them where to drink and you must be clear and drink yourself and say, “see? I benefit from this. I drink these waters and I am replenished. I am replenished and I walk further with the nurturance of God’s holy water, His beautiful Love within me.” Can you do this?
+
+Beautiful souls who are loved by God and loved by the angels, who are indeed gifted and able, but I see amongst you, some reluctance, confusion and difficulty to step forward. This is, of course, a human trait that is all too common. But how can the world change when you are passive, when you sit to receive but you do not see a way and means of going forth in the world to give, to dedicate yourself to this service, to dedicate yourself to the Truth of God’s Love.
+
+Be brave. Ask for God to help you to be brave. Ask for God to help you to be clear and of light, of truth in your life and to speak this truth wherever you might and to live this truth in every moment, every breath. In this way with this strength, this clarity and this love, then you will have many, many opportunities to serve God. Some of them will be quiet and humble and others at other times, you will be clear and concise in your speech and your message. You will speak up and step forward and be heard. In those times, God will be with you. The angels will surround you and uphold you and you will feel the authority given and you will be righteous in truth. You will be a light beaming forth.
+
+Yes, some will turn away from you. This is inevitable. Yet, some will turn toward you and ask to know more, to understand from whence you get this strength, from where you get this light, as you shine forth the beacon in a dark world. You must teach them how. You must show them the way. Our beloved Jesus did that for his ministry. He stepped forward and although there were naysayers, there were many who heard him. Their souls recognised the truth. They felt his sincerity, his beautiful light, his beautiful gift of love and they followed him. He has told you that you may also do this work and be his disciple. Are you willing to follow and to lead, to be graceful and powerful, to be joyful and full of wisdom? These things are offered to you by God and they shall continue to be offered until you take up the yoke of service and walk with great faith, understanding that with each day God will gift you with the opportunity to serve, to bring another soul to the great Truth of God’s Love, thereby putting another jewel in your crown.
+
+When you come to that time of passing into spirit, you will be well-satisfied with the service that you have done and you will be well-blessed by the efforts you have made. My beloved and beautiful friends of the truth, stand up and declare. Stand up and show and demonstrate the great Truth of God’s Love. I am James Tudor and I walk with the truth and I reside within the Celestial Kingdom and I honour our beloved master, Jesus of the Celestial Heavens. I honour him by coming to you to speak in words plain and forceful. I honour God with the light of truth that I have come to know and that truth and light has transformed me that I, too, have become an inhabitant of the Celestial Kingdom.
+
+Remember, my beloved friends, each individual soul has their personalities and their perspectives and this is honoured by God. For God has seeded the universe with unique souls, no one alike. So you see in your communications, the great variety of personalities and approaches. I demonstrate one of those approaches, one which some of you may find difficult to hear or accept but I am who I am, authentic and true to myself. I offer you who I am and what I represent, and I do so without mincing my words. I do so in love. I honour each one of you. You are each different. You each have a unique soul and you each have a unique approach. I do not wish to criticise or correct, I merely wish to point out that because you are a gentle soul does not mean you cannot be forceful and clear in your speech and in your teaching of truth. This is important. For when you stand up with confidence, grace and love, many will listen and afford you the respect you have earned by the effort you have made to grow within your soul.
+
+Be that beautiful, strong and faithful servant of God and all will flow in accordance to your dedications and your efforts. God bless you, my friends. God bless you. My love is with you all. I see the lights and I see and appreciate the differences and the beauty of those differences. May our Heavenly Father continue to bless you and open your souls wide for a mighty inflowing of His Love. God bless you, my friends.

@@ -7,9 +7,9 @@ draft: False
 hidden: False
 weight: 10
 ---
-# [Contemporary Messages From Spirit](/contemporary-messages/#a)
+# Contemporary Messages From Spirit
 
-<!--- This page is the page in Contemporary Messages to update annually as the menu item goes here and does not load Messages Sorted Year--->
+*[Proceed to Table of Messages by Year](/contemporary-messages/#a)*
 
 Messages have been received virtually continuously since James Padgett passed on in 1923. What we now refer to as contemporary messages from Celestials have been coming through a number of mediums since then. Since every medium will have a style and bias to their mediumistic communications which reflects their personality and mindset, these messages received are consistent in content but not necessarily in language and sentence structure. Some messages reflect very contemporary language and concepts while others seem a bit formal and stiff, making clear the biases of the medium who was used for the message. Similarly, those messages received through James Padgett reflect the formal culture and way of communication of his day.  Padgett’s communications, being a Lawyer by profession, are very different from what you may read here.  (None of James Padgett's messages are available on this site. If you would like to read those they can be found on the [New-Birth - A Spiritual Journey](https://new-birth.net) site.)
 
@@ -17,26 +17,14 @@ These messages have been received in a variety of different places and venues. O
 
 There is a lot of content here in need of some serious focus in order to take in what is offered. Hopefully the reader will find inspiration and instruction through these messages from the Celestial Angels. This body of work has many hidden gems and inspiration which may or may not strike the reader immediately.  We urge you to read slowly, absorbing the intended truth of each message and possibly reread them for greater insight. The Celestials are speaking to our souls in language and concepts that often reflect the ‘thinking’ of the soul. In the Padgett works, Jesus suggests that when one reads a truth, to allow it to sink deeply into the soul. A truth needs time to mature in our consciousness and for many there is a specific signal that the soul emits to our minds that what is being read is indeed truth. It is also important to open up our hearts and minds thereby developing a portal to the soul mind. Belief of the mind only will not bring the magic of soul resonance that can come with these messages and the more you read them, the more soul insights will come to you. 
 
-We are at this time sharing the new material from this site on an ad hoc basis, which we do not expect to exceed one message a week, on average.  If you would like to subscribe to this list, (Currently not active) 
+We are at this time sharing the new material from this site on an ad hoc basis: [Subscribe here](http://eepurl.com/gaGfPD).
 
 <!--[subscribe here.](https://new-birth.us6.list-manage.com/subscribe?u=7b572301eabd13f5075f1c9a0&id=894ad8557b)-->
 
-If you would like to avoid scrolling down this text every time you are needing to search a specific year, just click the main heading on this page.
-
-<!--- This way of trying to centre the table is pretty crap. But it sort of works--->
- &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a name="a">Year</a> |  |
----|---|---|
- | &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [2025](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2025/)
- | &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [2024](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2024/)
- |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [2023](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2023/)
- |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [2022](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2022/)
-  |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [2021](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2021/)
-  |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [2020](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2020/)
-  |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [2019](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2019/)
- |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[2018](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2018/)  
- |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[2017](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2017/) 
- |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[2016](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2016/)  
- |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[2015](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2015/) 
- |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[2014](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-spirit-year-2014/)  
- |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[1970](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-1970/) | 
- |&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[1969](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-1969/) | 
+ | | <a name="a"><div style="text-align: center;">Year</div></a> | | 
+---|---|---|---|---
+<div style="text-align: center;">[2025](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2025/)</div> | <div style="text-align: center;">[2024](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2024/)</div> | <div style="text-align: center;">[2023](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2023/)</div> | <div style="text-align: center;">[2022](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2022/)</div> | <div style="text-align: center;">[2021](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2021/)</div>
+<div style="text-align: center;">[2020](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2020/)</div> | <div style="text-align: center;">[2019](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2019/)</div> | <div style="text-align: center;">[2018](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2018/)</div> | <div style="text-align: center;">[2017](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2017/)</div> | <div style="text-align: center;">[2016](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2016/)</div>
+<div style="text-align: center;">[2015](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2015/)</div> | <div style="text-align: center;">[2014](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-spirit-year-2014/)</div> | <div style="text-align: center;">[1970](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-1970/)</div> | <div style="text-align: center;">[1969](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-1969/)</div> |
+ | | | |
+ 

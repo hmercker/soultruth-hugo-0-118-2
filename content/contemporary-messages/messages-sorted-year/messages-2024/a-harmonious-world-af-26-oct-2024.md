@@ -12,7 +12,7 @@ October 26<sup>th</sup>, 2024
 
 Sechelt, B.C. Canada
 
-Received by Al Fike 
+Josephus received by Al Fike 
 
 The world changes and so do you, beloved souls. I am Josephus and I come to speak to you about a changing world. More precisely, I come to speak to you about a world that can be, as a result of these changes. Think of a world where humanity has a sense of unity, a sense of love and respect for one another. A world where no secrets are kept, for in this world, each and every individual is aware of the true thoughts and nature of other individuals in their circles of connection. This will be made possible by the awakening of the soul. In this awakening comes the consciousness of true understanding and the perception of another individual and their consciousness. In this way the deceit and unloving expressions of individuals cannot be accepted nor tolerated, for their intentions will be made clear before they are even expressed. This is a world in which the choice to love, respect and honour one another must be the predominant condition and desire of all humanity. 
 

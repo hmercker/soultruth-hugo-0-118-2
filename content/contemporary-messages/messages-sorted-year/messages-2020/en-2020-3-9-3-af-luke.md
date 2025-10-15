@@ -1,0 +1,34 @@
+---
+title: "Thoughts Form a Powerful Influence In Your World"
+menu_title: ""
+description: "Thoughts Form a Powerful Influence In Your World"
+date: 2025-07-30 06:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+# Thoughts Form a Powerful Influence In Your World
+
+March 9<sup>th</sup>, 2020
+
+Soul Awakening Tour Eastern US, Monroeville, PA, USA
+
+Luke received by Al Fike
+
+Beloved souls, I am Luke. The currencies of the world are of the baser human condition and desires. In these exchanges of thought and energies amongst you, in the general conditions of the world, these conditions are reinforced. These thoughts continue to circulate, creating fear and unrest, mistrust and a lack of love. If only humanity understood that the power of their thoughts, the power of those thoughts circulating around your world continue to hold back humanity in a darkened condition. So allowing these feelings of fear and doubt, of the baser desires, to be proliferated continuously, creating a barrier to God, a barrier to light, a barrier to joy, so even the innocent children become infected with these conditions and grow up with attitudes and thoughts that continue to reinforce and bring unhappiness to all. Thus, the distractions of the world are more important than true expression and what you call authenticity of the human soul.
+
+The mind is constantly bombarded by such conditions. The mind seeks relief from these conditions. The consciousness of humanity continues to skim the surface of thought and feeling. This again is a barrier to God. For, it requires a deeper prayer and thought and feeling to go to God. The material world is only but a small part of your existence. Life in this world is fleeting before one graduates to the world of spirit where there are great opportunities to open to these deeper things of life, the more significant aspects of soul and spirit. But to have a desire at this time in your life for something deeper, to express this desire to be in harmony with God, brings great rewards to you when you graduate into these conditions of the spirit world. So many come carrying with them these baser conditions learned and experienced in your Earth and therefore are designated to places that are not wholly of light or of dark, but of grayness. It is difficult for these spirits to go beyond this condition. They become attached to this condition and find it difficult to progress, to seek for something higher.
+
+You beloved souls, who are seeking, who desire to be in the light, do yourself a great favor, a great blessing. At this time in your lives, it is important that you focus upon the spiritual for you have had your lives experiences of family and finding your way in life. Now it is time to nurture your souls, to put your thoughts and energies towards the awakening of your soul. For what is a greater task, what can you bring with you when you graduate into the life of spirit, but your own soul in a condition of Light?
+
+This is so important, your efforts, your prayers, your efforts together, your Circles of Light, your reaching out to the greater community in service and love. All of these things nurture the soul and pave the way for the life coming. It is important that the currency that you carry is the currency of love, that what you do reflects love, that who you are reflects love. For, it is love that carries one forward in the spiritual progression towards God and at-onement with God.
+
+Beloved souls, you are on the cusp of the great awakening. Some of you feel it more acutely than others. But, I tell you, each of you, within your souls there is a great expansion of Light, a transformational event that continues to grow within you and find greater power through the blessings of God's Love. It is important that you acknowledge what is within you, beloved souls. God is continuing to nurture you and carry you upwards towards greater enlightenment and joy, that the currency of Love may be a great component of your soul expressed in the world, a powerful Light that will bring others to you. That you may the God’s instruments to touch those souls who are seeking, who are in pain, who are yearning for something but know not what they yearn for.
+
+This strength of Light within your soul will manifest in your lives and bring changes, unexpected but beautiful. As you enrich yourselves in Love, so your whole world will reflect this and you will draw to you the lost souls. Each of you desire this, each of you have a great capacity to touch others. Though within your minds you may feel as if you are inadequate and not capable. This is only because you do not recognize the power of your own soul and how you are being empowered by God to awaken and be truly that part of you that is your true self. It is coming, beloved souls, and will continue to emerge with each day. You will find your way upon the path that God has designated for each one of you. You will find your way without confusion or reluctance, but a joyful embracing of the Will of God.
+
+You must express in the world the currency of love, to be this example, this testimony of Truth that God wishes for you, and for each soul who is willing, to walk in the world in this way, to bring this message of love to all those you meet, in ways of expression of the Light of your soul, in ways of giving in service, in ways of speaking Truth so that others may know and accept. These things will be guided. You will find your way. You will see how your life continues to open and expand and awaken in the great flow of God's plan for each one of you and the road which God has put you upon. Much is coming, much is coming, and will continue to unfold as you are ready and willing to accept and be a part of this plan for the salvation of humanity. The greatest efforts in your life must be in alignment with this plan and you will know this in your soul. There will be a sense of joy, fulfilment, as you find your way and express your way upon this path.
+
+May God bless you as you continue to find yourself, to awaken to this true self that is your soul, and be blessed by God's Holy Spirit who conveys His Love to your soul. You will find your way and know your true selves in all its wonderment and glory, beauty and love. This is meant for each one of you. Continue to consider what I have said. Continue to acknowledge the true beauty of your soul. Continue in your prayers to God to receive these gifts of love and blessings. Continue to pray for your families, your loved ones, all in your life. You will see how God answers your prayers and blesses you abundantly in the power and glory of His great Love for you.
+
+God bless you, beloved souls. I am Luke and I thank you for allowing me to speak today. My love is with you. My prayers are with you. The prayers of the Celestial Kingdom are with you. God bless you. God bless you, beloved souls.

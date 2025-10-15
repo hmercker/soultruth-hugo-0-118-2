@@ -13,7 +13,7 @@ December 24<sup>th</sup>, 2024
 
 Sechelt, BC, Canada
 
-Received by Al Fike 
+Mary received by Al Fike 
 
 I am Mary. The gift of a son to a mother is a beautiful gift from God. The gift of my beloved son was a gift to the world. I had the blessing and the privilege of raising the one who brought the great gift of Love and the Truth of Love to the world.
 

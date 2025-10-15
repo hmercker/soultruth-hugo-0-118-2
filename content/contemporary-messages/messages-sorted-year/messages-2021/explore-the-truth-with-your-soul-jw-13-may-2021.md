@@ -15,8 +15,6 @@ Punalu'u, Oahu, Hawaii, U.S.A.
 
 Received by Jimbeau Walsh   
 
-
-
 I am here your brother, friend and guide, James Padgett 
 
 Dear friends of my soul, I have been with you today in this study group listening, guiding, encouraging and influencing your souls to reach out in love. I am an inhabitant of the Celestial heavens with my soulmate, my dear Helen and I want to encourage you all to read the messages I received so that you may know these truths that are as true today as they were over 100 years ago when I began to receive them. As the love of God is eternal, so are His laws and His truths.  

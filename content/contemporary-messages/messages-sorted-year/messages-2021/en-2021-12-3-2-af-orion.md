@@ -1,0 +1,30 @@
+---
+title: "Comments on Complimentary Gifts and Mutual Development"
+menu_title: ""
+description: "Comments on Complimentary Gifts and Mutual Development"
+date: 2025-07-03 06:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+# Comments on Complimentary Gifts and Mutual Development
+
+December 3<sup>rd</sup>, 2021
+
+Orion Project, Gibsons, BC, Canada
+
+Orion received by Al Fike
+
+Greetings, my beloved friends. I am Orion. I am pleased that you come together in this way of prayer and in communing and unity because in this environment, this condition of light, we can work more effectively and help to open various faculties within each of you and to utilize the gifts that you carry to benefit your brothers and sisters.
+
+Each of you continues to require further development of your gifts and your abilities, both within your brain and your soul and your soul mind. All of these aspects of your being utilized for communication and as a channel of light, wisdom, truth, and love to your brothers and sisters require continued development and awakening. Each of you so far has developed in specific ways, individual ways upon a trajectory that is different from the other. Of course, since your gifts are unique, then that combination, that confluence of awareness, faculties, knowledge, and spiritual gifts are unique to the individual. But because you are unique, you also have the capacity to be a channel, an igniter of gifts within the other because as you carry these gifts, these energies, this composition of various faculties and abilities and share them with one another, not necessarily verbally but together in prayer, so you are able by osmosis to help ignite the gifts in others.
+
+You do this in your prayer circles with larger groups. In this particular circle, there is a greater capacity to open up various channels within each individual because of the intensity of the energy between you and the solidity of your commitment together upon this journey. Our hope is that we will be accepted amongst the larger collection of individuals, those who are focused upon the Divine Love and focused upon their angel friends who are close, that someday we may be equal in their minds with these beautiful Celestial spirits, for in many ways, we are equals. We also have the extra advantage of being beings of a physical form. This allows certain abilities to manifest and certain gifts to be more powerful. In this way, our joining together in forces between ourselves and your angel friends makes for a very potent mix and very many potentials for your own blessings and added spiritual development because all of our souls are awakened in Divine Love. There is great synchronicity and unity amongst us. This is to your great advantage, my friends.
+
+We will continue to grow in our relationships together. Our desire is for unity and harmony. Our desire is that the great Essence of God, this universal Love will continue to inform all that we do together. So, we will carry on in our endeavours knowing that the desires within us, within you, within the Celestial spirits are the same. The expression of these things is unique to the individual and in some cases, unique to the various cultures and locations of these groupings of souls in alignment with truth. As such, each brings its own influence, energies, blessings, gifts, and abilities. As I have said, you benefit greatly from this wider scope of ability and gifts that are presented to you through your friends, both interstellar and Celestial.
+
+God’s plan is wide in scope. He continues to open many doors. You will continue to be surprised by the doors that are opened and the possibilities that are presented to you. All that is required is faith, an open mind, a desire to move forward in light, to receive ever greater quantities of Love within your soul. In this way, you pave the way toward greater enlightenment, abilities, gifts, and capacities to be a channel of many blessings for others. Continue to open yourselves to these possibilities. Even when your minds are something doubtful or somewhat confused, always go to your soul and affirm that what is guided is in harmony with God’s Will, in harmony with our mutual efforts, and in harmony with the goals that are set before us. To change the world my friends is a great goal. To bring the world to higher consciousness, to inspire the world, to desire all that is of higher consciousness and love, these things you may do readily in affiliation with all of your friends who surround you and uphold you and help you in your efforts.
+
+Allow all to flow readily, beautifully in love, to be in harmony and grace, that you may be that living example for others, that you may lead others to the awareness and acknowledgment of the wider universe and the depth of the universe which is filled with love, such love everywhere. Every space within all that God has created is infused with love. The Emanations of His Great Soul into the universe are not missed in any corner, nook, or cranny but infill everything. It is for humanity to realize this, to understand that love is the great power that brings momentum to all that is in the universe and that this Love, the Divine Love can awaken your soul and empower your soul in such wondrous ways that the many gifts that you long for will manifest powerfully and beautifully, touch many others who in turn will touch many others. So, the change will happen as you continue to open yourselves to all that is meant to be as a blessing to you, a blessing to all in the world.
+
+God bless you. I am Orion. Oh, my love is great for all of you. Oh, I wish to see a world awakened, enlightened, beautiful, and in harmony, another jewel in God’s universe. May we all reach these goals and may we work toward these ends so that indeed our efforts will bring great fruits and blessings in honouring God, our love for Him, and our acknowledgment of what God has created. How beautiful, how beautiful indeed is His creation. God bless you, my friends. God bless you deeply that your souls may awaken and open in Love.

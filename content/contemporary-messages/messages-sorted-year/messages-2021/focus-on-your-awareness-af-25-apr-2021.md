@@ -15,7 +15,6 @@ Gibsons, B.C. Canada
 
 Received by Al Fike
 
-
 I am Jesus and I come to be with you in prayer. How God has opened many doors so that we may be together today in this prayerful communion, this gathering of souls, seeking the benediction of God's Love upon them.  For each of you, beloved souls, many doors will be opened as you continue to walk in the world in faith, as you continue to seek the Father's Love in prayer, as you continue to open yourselves to God's Will.  So God will open many doors to allow for your spiritual education, growth, enlightenment, and service in the world, for with the gift of His Love these doors open readily, and many opportunities flow forth within your life. 
 
 My prayer is that each of you will have the insight, the perception, the soul awareness to recognize these opportunities when they are presented before you, that you may focus your awareness upon what God may offer in the great bounty of blessings which He has to give to each one of you. God understands each one of you thoroughly and completely. God knows your needs. God knows the path that you will follow, that unique path which He has laid out for you.

@@ -15,7 +15,6 @@ Gibsons, B.C. Canada
 
 Received by Al Fike
 
-
 May the blessings of the Father’s Love continue to flow upon you, my beloved brothers and sisters. I come once again, your brother and your friend Jesus. I am here to be with you in prayer and to finish this chapter of our conversations together. Though this will not be the end of our communications, it is the end of a group of communications which it was my intention to give to the world. Now it is time to bring these communications together and publish them so that it may be available to those who wish to read the words which I have spoken through this instrument. 
 
 I would urge you to read and contemplate and pray. This small book is not a novel. It is a group of teachings which have a rhythm and a reason to it. I would urge all who are interested to take their time to absorb what is written and what has been spoken. I would also urge you not to jump to conclusions when reading certain passages but to think of the entirety of the flow of truth which has come. When there are sections or phrases which are confusing and do not fit into your understanding, bring these things to prayer and ask that God will clarify it’s meaning for you. Indeed God will utilize the capacities of your soul to bring forth clarity within your mind. 

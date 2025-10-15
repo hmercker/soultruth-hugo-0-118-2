@@ -15,8 +15,6 @@ Punalu'u, Oahu, Hawaii, U.S.A.
 
 Received by Jimbeau Walsh   
 
-
-
 I am here Care. I have been with you today and so much enjoyed the harmony that ensued between my family both biological and spiritual. 
 
 I am touched by your movement towards the fount of God’s Love, your willingness to receive, your openness to sharing your gifts, and allowing them to be revealed ever more so beautifully in the days ahead. For the world cannot have too much love and it so needs peace and wisdom, however you wish to share. For as every soul is unique, every souls’ gifts are unique. 

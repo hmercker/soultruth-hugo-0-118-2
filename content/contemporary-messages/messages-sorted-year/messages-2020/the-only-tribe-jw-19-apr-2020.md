@@ -15,8 +15,6 @@ Punalu'u, Oahu, Hawaii, U.S.A.
 
 Received by Jimbeau Walsh
 
-
-
 I am here, White Eagle.
 
 I come to you in the Grace of God as your brother and friend. My work as a healer answers the call of those who sincerely ask. My band has been working to heal those in this Circle whose friends and family have prayed and we never refuse any sincere request.
@@ -30,3 +28,6 @@ On our beloved Earth, many are waking up to realize how fragile and yet how powe
 So wherever you are, reaching to God, to the Light and Love of the Creator, you will receive and be at one for there is only one tribe and one God. May each one in this Circle, this medicine wheel, bang the drum of life that your spirits will be lifted, each soul blessed in oneness with the Creator. We are truly with you in this time of healing and transition as you are truly one as we are in the Creator’s Love.
 
 May God bless you, sustain you, protect you. I am your brother. I am White Eagle.
+<small>
+
+**Note:** More explanation on this message can be found [here](/contemporary-messages/messages-sorted-year/messages-2020/en-2020-4-21-2-jw-white-eagle/).

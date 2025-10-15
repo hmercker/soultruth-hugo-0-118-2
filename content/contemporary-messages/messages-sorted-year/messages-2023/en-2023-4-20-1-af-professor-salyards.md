@@ -1,0 +1,32 @@
+---
+title: "Opportunity for Growth"
+menu_title: ""
+description: "Opportunity for Growth"
+date: 2025-06-30 07:21:03+11:00
+draft: False
+hidden: True
+weight:
+---
+# Opportunity for Growth
+
+April 20<sup>th</sup>, 2023
+
+Sechelt, BC, Canada
+
+Professor Salyards received by Al Fike
+
+Yes, the world is a difficult place to navigate, is it not, my friends? I am Professor Salyards and I come to assure you that indeed you are navigating well, that you continue to check with your soul and those promptings of the soul before you act and respond to those who may challenge you. This is absolutely necessary as you continue with your work and to have confidence in your abilities to know, to feel, to understand through the avenues of soul perception and wisdom available to you.
+
+It is not that you are completely in alignment with the will of God or all that which is of God's Laws of Love for you are still human and you still have judgments within you and reactions, but you do not fling those reactions back to others in ways that would cause more conflict. Rather, you keep your own counsel and this is wise. You are considerate of what may be of light and what may be positive and constructive. When you are placed in a role of leadership, you will always be challenged. This is the way of the world. but as you continue to grow in God's Love you will find yourselves in a place of wisdom, perception and deep knowing. As you continue to align yourself with God and grow in the Father's Love, your souls expanding and those perceptions and faculties of the soul responding and growing in love, then the wisdom will come more readily. and those peccadilloes that are hurled towards you will glance off you like water off a duck's back, my friends.
+
+Do not allow anyone to insist and to redirect when you know yourself the path that you must follow, when you are sure of your steps. Of course, every comment that is given has some truth and some wisdom to it but also remember that many individuals are governed by their own needs and their own biases and you must be able to discern between what they see as truth or their own particular guidance and what is in alignment with your guidance and truth. Often there is an overlap and that is important to acknowledge but at times there is a contradiction and that, too, is important to acknowledge. The true strength comes when you are able to communicate with those who would challenge you in ways that are loving, firm and wise allowing your beloved brothers and sisters the opportunity to save face, if you will, to not feel as if they are being criticized and under your thumb with an intention to be more powerful, more challenging towards them. This is not the way of God. Rather, when you are clear with your intentions and loving in your response, you will know what to say, how to be with others in a way that will bring positive resolutions. Of course, there are times when others will not hear you nor respond favorably with what you have to say. Yet, you have stepped forward in light, you have done the best you can to resolve a situation in such a way that there is positivity and that it is in harmony with God's Will.
+
+It is not an error to be firm or to speak the truth, it is how you express yourself in that resolute perception and in loving acknowledgement of your brothers and sisters. Every time these challenges come to the fore, they are both a test and a gift for it allows you to be true to your soul and be true to God's Will as best that you are able to. Often in the interchange and exchange of ideas, and sometimes conflictual ideas, there is always the opportunity to learn, to grow, to understand, and to exercise compassion.
+
+The world is a difficult place to navigate. There are many times when you feel satisfied, filled up with the sense of rightness, love and light. Those are the easy situations and they are the situations where you most often wish to be within, but those times of conflict and challenges are equally important. I urge you to consider them well, with discernment, with wisdom, with love, and you will find that when you come to resolution with those who are in conflict with you, that it is equally gratifying and uplifting as you find your way toward harmony, peace and love to the situation. It does not always come readily or easily or quickly, but indeed as you continue to act with integrity, with love, and with wisdom, the solutions will come. God will guide you forward. You will find your way through the maze of the human condition and this will be a beautiful journey, a journey filled with opportunities to learn, to grow, to serve, to love.
+
+And so, as you commit yourself to serve in the truth of God's Love, to serve your fellow man, indeed it will be a checkerboard of both easy, gratifying opportunities and those that are more challenging. As I've said, it is the way of the world, but indeed you grow stronger, love grows brighter within you, your soul continues to awaken, and wisdom continues to flow along with love and light. I applaud you all for your efforts and your abilities to confront error and not withdraw from error but to truly be in the light of God's truth and wisdom and all that is in alignment with God's Will.
+
+So you are blessed, my beloved friends, in many ways and so you shall be blessed in many ways. As you grow as an organization, as you strengthen as an individual, so you will be confronted many times for there are many who watch, who judge, who observe your efforts and your work and sometimes those judgments and those intentions of others will rise up and come in the form of confrontation. But you are ready for this, my beloved and beautiful friends, and you will surely overcome those things that are difficult. At times you will be in error and you will come to see this and learn in this way. There are many opportunities in life and so you will find your way in such conditions so that you may grow stronger and wiser and grow greater in love and wisdom.
+
+May God bless you, my friends, I am Professor Salyards. I watch you and I'm with you often and I am pleased to see the growth. It gives me great joy to see you grow in light and know that my commitment is complete, to assist you and to uphold you. My love is with you, my friends, God's Love is with you, the love of the angels is with you, the love of the bright spirits is with you. And so you will find your way in light and be a light. God bless you, God bless you all, beloved friends.

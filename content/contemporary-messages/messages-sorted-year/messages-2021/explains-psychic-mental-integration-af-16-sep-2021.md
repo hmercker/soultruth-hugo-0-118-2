@@ -15,7 +15,6 @@ Gibsons, B.C. Canada
 
 Received by Al Fike
 
-
 God bless you my friends, I am Seretta Kem.
 
 We continue on this journey of awakening, and each of you are having those experiences and awakenings that are unique to you and some are conferring with others and seeing similarities in these experiences. Other experiences are unique, and reflect the way in which your material mind interprets those things which are unusual aspects of your psychic, mental and spiritual undertakings together.

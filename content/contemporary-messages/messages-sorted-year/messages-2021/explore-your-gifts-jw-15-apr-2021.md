@@ -15,8 +15,6 @@ Punalu'u, Oahu, Hawaii, U.S.A.
 
 Received by Jimbeau Walsh   
 
-
-
 It is your brother James Padgett and I come in the Love and the Grace of God. First of all, let me express my deep gratitude for this coming together, so to speak, on my behalf, for honouring my life, and my work. May it bless you all. 
 
 There is one thing that becomes obvious when discussing the gifts of any one person especially those who can write profound books, beautiful songs of love, and poems that touch your heart. These individuals who bring their gifts are often very flawed from the point of the view of the world, as one that may have a great gift but maybe is not such a great person. I don’t mean to say or suggest that those who bring gifts who inspire people are evil, no, we see that they, as I was, are just human. 

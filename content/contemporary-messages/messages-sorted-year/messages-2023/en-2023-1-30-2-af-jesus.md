@@ -1,0 +1,26 @@
+---
+title: "Closing Message Barbados Retreat"
+menu_title: ""
+description: "Closing Message Barbados Retreat"
+date: 2025-04-16 07:21:03+11:00
+draft: False
+hidden: True
+weight:
+---
+# Closing Message Barbados Retreat
+
+January 30<sup>th</sup>, 2023
+
+Barbados
+
+Jesus received by Al Fike
+
+God bless you, beloved souls, I am Jesus. I come to bless you and uphold you. I come to bless this beloved couple on their journey. I come to encourage you, my beloved friends, as you continue to seek the Father’s Love and grow within this gift. Do not lose the momentum of what has been built but build upon it. For greater momentum shall come in prayer as you work together, brothers all for one purpose, one beautiful purpose: to bring the Truth of God’s Love wherever you go, to whoever you may speak to, to be that light, to be that blessing for those you love, for all those in your life. Know the peace, beloveds, know the peace of God’s Touch upon you. Open yourselves to the great river of His Love. For it is a thirst that cannot be quenched, as you sip and drink at the fountainhead of His Love. Bathe in His Love. Frolic in His Love. Know the joy of His Touch that shall open the door to many things. We are together in this blessing, this Light, and we are purposeful in our efforts to awaken ever further to the truth, to be truly God’s clear and bright channels of love in the world.
+
+Much has been given to you, my beloveds. We have brought many angels into your midst so that you may carry the banner high and be assured that the truth that you carry is the truth that God wishes to give to His children, that they are loved, truly and purely loved, and that you may be a conduit of blessings for many, beloveds, that you may also be blessed and grow in this great gift that transforms, that brings great truth, peace and joy into you. Continue to seek out the light within your soul, for it is there that all things may grow and gestate and emerge from you as gifts and abilities, faculties of the soul. For it is the gifts of the soul that shall contribute to God’s plan for the salvation of humanity. It is not so much those things of your mind and those things that you perceive in mindful ways. It is the gifts of the soul and perception of knowing, of being a channel of love. For much awaits each of you in this journey of awakening to all that which is of God. Are you able to step forward, my beloved, beautiful disciples? Are you able to truly understand that which God has given so freely and abundantly.
+
+My beloveds, I shall not forsake you. Never shall I do so. Know that I am with you, that you are truly my disciples, that we shall walk together upon sacred ground, upon troubled ground, upon this life that is both beautiful and horrific. Such duality in the world and this, God comes to heal and to integrate into one light where harmony abounds and all is in compliance with God’s Laws of Creation. You must be the harbingers of such a thing, and you must know within yourself that which I speak of. You must see with the eyes of your soul and know with the knowing of your soul, for these things are capable to be known and seen within you. Given faith, given trust, given your continued efforts and consistency in prayer, these things shall be given, for they are poised at your fingertips. Take your time, beloveds, to be with God and to know that all shall come in prayer and dedication to your Heavenly Father.
+
+Angels are with you. You are in light, have been given many blessings and a great dispensation upon your journey. Thus, God has invested much in each of you, has given generously to each of you, has sent His angels to be with you. May you come to realize the gifts and blessings that have been given and know great joy in this, applying truths as you continue to step forward in your life, walking the path of light, the Path Divine, so that you may indeed demonstrate the truth to others. This is the role of my disciples: to demonstrate the truth that I gave so long ago and continue to speak of to this day and shall continue to do so until that day when the gates of heaven are closed. Until then, we are engaged in the mighty service and effort to awaken the souls of many. May you come to be powerful and clear instruments for God and for the truth to be told and expressed and experienced. Beloveds, I charge you with these responsibilities. I call you forward to be a light for God, and I shall walk with you always, my beloveds, my beloveds. I shall walk with you always. For my love for you is great and you are truly my brothers and sisters all upon the path.
+
+May the power of His Love change you and heal you. May the power of His Love protect you and guide you. May the power of His Love be demonstrated through you and all about you. It is His blessings that shall indeed change your life and with this, you will contribute to changing the world. May God bless you, beloveds, and keep you in the grace and light of His Love, the peace that passes all understanding is yours. We are together in the grace of God. God bless you. I am your brother and friend Jesus, and I love you. God bless you, beloved souls, children of God, disciples of truth. God bless you.

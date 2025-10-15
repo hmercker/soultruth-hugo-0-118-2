@@ -5,17 +5,15 @@ description: "Augustine gives A Lesson About Living a Life in Alignment with God
 date: 2023-05-19 07:21:03+11:00
 draft: False
 hidden: True
-weight: 386
+weight:
 ---
 # A Lesson About Living a Life in Alignment with God’s Will
 
 April 29<sup>th</sup>, 2023
 
-Sechelt, B.C. Canada
+Sechelt, BC, Canada
 
-Received by Al Fike  
-
-
+Augustine received by Al Fike  
 
 God bless you, beloved friends, students. I am your teacher, Augustine. Each day that God gives you upon this Earthly plane is a precious gift. How many times have you heard this little epitaph of acknowledgment, cajoling you to sound the depths and breadths of a day? And yet, this is very true that because you have the day as a  gift of free will, you may make of your day as you will. Who is controlling you? Who is forcing you? Who is within your mind but yourself? And with this, you are left with your own thoughts and desires, seeking to do in your day what you must as a reflection of what you desire to do. Yet, often it is the mind that determines the actions of the day. It is not often your soul and the intuition of your soul that does so, but it is your mind. Because, as you are engaging with the world in a day, then you are listening and well aware of the cues and expectations that are all around you. For one reason or another whether that be fear or desire to please or some other perspective, you will act accordingly. So direct control does not exist, at least for most of you. 
 

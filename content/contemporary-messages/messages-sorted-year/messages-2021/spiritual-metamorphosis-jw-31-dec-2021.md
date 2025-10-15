@@ -5,16 +5,15 @@ description: "John the Baptist talks of Spiritual Metamorphosis"
 date: 2022-06-27 07:21:03+11:00
 draft: False
 hidden: True
-weight: 386
+weight:
 ---
 # Spiritual Metamorphosis 
 
 December 31<sup>st</sup>, 2021
 
-Punaluu, Hawaii, Oahu, U.S.A.
+Punalu'u, Hawaii, Oahu, U.S.A.
 
-Received by Jimbeau Walsh   
-
+John the Baptist received by Jimbeau Walsh   
 
 I come in the love of God. I am the one they call the Baptist, the cousin of the Master, and the forerunner to those who became baptized in the New Birth. For the water I baptized with became through the Master the “living waters” imbued with the Spirit of God.
  

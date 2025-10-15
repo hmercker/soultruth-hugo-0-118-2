@@ -5,15 +5,15 @@ description: "John the Beloved talks of A matter of the Heart"
 date: 2024-06-09 07:21:03+11:00
 draft: False
 hidden: True
-weight: 386
+weight:
 ---
 # A matter of the Heart 
 
 September 18<sup>th</sup>, 2023
 
-Nashville, Tennessee, U.S.A.
+Nashville, Tennessee, USA
 
-Received by Jimbeau Walsh  
+John the Beloved received by Jimbeau Walsh  
 
 I come, I am John. Yes, I am the apostle, also called the Beloved for my closeness to the master that was always a matter of heart. When you speak of feeling, when you speak of intuition, when you allow your heart, in whatever condition it may be, perhaps lonely, joyful, troubled, in love, when you allow it to be broken open, God touches your soul. For the love of God is indeed something that can be felt. 
 

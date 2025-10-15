@@ -2,7 +2,7 @@
 title: "Accolades to All for the Spiritual Meeting with Orion"
 menu_title: ""
 description: "Accolades to All for the Spiritual Meeting with Orion"
-date: 2025-06-18 07:21:03+0:00
+date: 2025-06-18 07:21:03+00:00
 draft: False
 hidden: True
 weight:

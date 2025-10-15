@@ -1,0 +1,40 @@
+---
+title: "Find the Balance"
+menu_title: ""
+description: "Find the Balance"
+date: 2025-04-17 07:21:03+11:00
+draft: False
+hidden: True
+weight:
+---
+# Find the Balance
+
+March 21<sup>st</sup>, 2023
+
+Sechelt, BC, Canada
+
+Seretta Kem received by Al Fike
+
+God bless you, beloved souls. I am Seretta Kem. Being in a state of harmony and balance in this material world of yours is a difficult thing indeed. Yet, both are equally important and one is often not possible without the other, for when one is in harmony with the Laws of Love and the universe of God’s creation then more readily balance is achieved. When I speak of balance, I speak of those things that are neither extreme nor lacking but a place in between where for example, your needs are met but you do not take your desires or cravings to an extreme so that the pendulum may swing toward the middle rather than either extreme. This requires discipline, consideration, and desire to be in that middle ground where you are not expressing yourself to such an extreme that there are consequences that come, not only to you spiritually but physically.
+
+Yet, each of you in some capacity struggles with the imbalance within you. It may be in regard to what you consume. It may be in regard to what you think. It may be in regard to what you feel. But these things all can be carried to the extreme or brought back into balance in response to your effort and desire to do so. Certainly, you must be conscious of the imbalance. You must come to see yourself as an individual who is subject to these extremes as are all that are in the Earth plane of yours. But mostly these extremes go unchecked upon your Earth creating intense conditions, chaotic conditions. Yet, when you go to God in prayer and you ask for the peace, the blessings, the Love of God, then you bring blessings to you that help you to come into balance and harmony.
+
+Thus, your efforts in prayer, moderation in action and thought help to create the conditions that are most conducive toward making a strong rapport with us so that we may work with you in many different ways. This is accomplished over time. As you continue to recognize those things that are out of balance within yourself and create more harmony with your efforts to right those conditions bringing balance and harmony, then we have a stronger rapport with you. It is easier for us, for often extremes reflect the human condition rather than a state of bliss, love and harmony. Though, this too is possible. We do not suggest that in an intense condition of love, harmony and peace that this is out of balance for it is not. These things are always welcome within the individual.
+
+Of course, for you to function in the material world, to be in such an extreme state would make it difficult to do so. Thus, you are not often in that state. But at times, you may come to that place with such closeness with the Creator, such bliss that comes with His Love, such extreme light and harmony that comes from His Touch upon you that you are in that state of true joy and openness and rapport with your Heavenly Father, a deep communion between your soul and His.
+
+So, these things are not discouraged but encouraged. But I speak of your daily life and what we observe as you go about your daily life. That pendulum often gains momentum and swings quite drastically, an indication of your choices and how you respond to those things in your material world and your relationships therein. Awareness is key, my beloved and beautiful friends, to be aware of your condition every moment. Do not go blindly into those conditions and forces that are drawing you away from harmony but walk with consciousness and awareness of what is your next step and how that may be expressed.
+
+This is not second-guessing yourself. Rather, it is utilizing the wisdom and awareness of your soul to make those responses and actions more deliberate and less spontaneous toward that which is negative or dark. Indeed, you carry much responsibility as you desire to be in the light and to be in greater harmony, to live within and respect the Laws of God’s Love. It requires effort, consciousness, dedication, sensitivity, and consideration. All of these things make for greater likelihood that you will be in balance and in harmony if you make those choices that bring you to that place. As you grow in the Father’s Love, as your soul brightens, as the wisdom of your soul emerges into your consciousness so this makes it easier for you to walk in harmony in the world for the world is always challenging you.
+
+The conditions of the world, more likely than not, draw you into disharmony and imbalance. But you have elected to walk a different path than most in the world. You desire harmony. You desire balance. You desire joy. You desire light.
+
+So these things must come, not only from the desires and promptings of your soul but also from the discipline and harmony that must exist within your material mind. It takes effort. It takes awareness. It takes asserting one’s choice in every thought and deed. Yet indeed, you are well ahead of the game. You have greater discernment and wisdom than most. I urge you to continue to hone these faculties within you so that when you come to that daily momentary choice, you may choose light, harmony, and all that which is in harmony with God’s Laws of Love. In this way, you prepare yourselves for what is coming, that time when you will be greatly needed, that time of turmoil and greater chaos in the world. In this time, provided you are able to discipline yourself and grow in the Father’s Love, attuned to your guidance, with your friends from the Celestial Heavens, then you will be a rock in a place that is in chaos. Many will turn to you in need of your solid light, comfort, love, wisdom, all of these aspects of the soul shining forth uninhibited by the impetuousness of the mind.
+
+Your soul and mind will work in concert and harmony together. You will find your actions deliberate and informed as you walk upon the Earth. Much will come from guidance, inspiration and direction that will inform your soul and the mind of your soul which then, in turn, will inform your material mind which will then inform your actions. This clear channel of deliberate desire and effort is growing within you. You will come to know and discern that which is coming from your soul. Your soul will readily absorb that which is coming from the forces of light, from God, from the angels, from your stellar friends and bright spirits.
+
+So many are arrayed before you that are all too eager to assist you in every thought and action, to uplift you so that you may see from that higher perspective, to guide you so that you may be informed with the highest wisdom and truth. That you, in the strength of your own reckonings internally and adjustments that come as the Love of God continues to change you and transform you so what you decide in thought and action will be in greater harmony with all that which is of harmony and of God’s Love. There will be peace within you, a true acknowledgment of the light that you carry, a great joy as you are not burdened by those things of the material plane that are so burdensome and difficult.
+
+You will be above these conditions, my friends, not in the way that you may think is arrogant or contrived or self-conceited but rather, with humility and grace. You will walk above these temptations and conditions of the earthly plane and truly walk as a child of God and be His instrument, clear, beautiful, and powerful in the world. You continue to progress forward in this way. I acknowledge your efforts. I acknowledge your light. I acknowledge the consistency and commitment that you make each and every day. I am honoured to serve you and to be your friend and your partner in this great work.
+
+I am Seretta Kem. My love is with you, my friends, as we venture forward into greater light, greater truth, and greater love. God bless you. My love is with you all. God bless you.

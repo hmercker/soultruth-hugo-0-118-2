@@ -1,0 +1,40 @@
+---
+title: "More Divine Love Circles of Light are Needed in the World"
+menu_title: ""
+description: "More Divine Love Circles of Light are Needed in the World"
+date: 2025-06-29 07:21:03+00:00
+draft: False
+hidden: True
+weight:
+---
+# More Divine Love Circles of Light are Needed in the World
+
+August 27<sup>th</sup>, 2022
+
+Direct Voice, Gibsons, BC, Canada
+
+Seretta Kem received by Al Fike
+
+Blessings to you my friends, I am Seretta Kem. How important it is to be in a Circle of Light such as this, and how important it is for those of you who are bringing together souls seeking Divine Love into such circles, creating the environment for them to grow in love, creating the environment for the angels to come close. Our vision is that Circles of Light will form around the world, many such circles so that many places in the world will be seeded with this Truth of Divine Love and there will be those who are dedicated to this truth and practice this truth around the world.
+
+This is part of God's plan and you are a part of God’s plan by being here today and seeking to grow in your soul and awaken in the faculties and gifts of your soul through the great gift of Divine Love. You are a beacon of light amongst a sea of lost souls, souls who are asleep, souls which need awakening. How can this happen except for those who are present in the light, awakened in the light, those who are willing to give of themselves for the benefit of their brothers and sisters so that all may at least come to know the truth that God loves them and that within their souls is a great capacity to know this truth fully and wondrously?
+
+You cannot keep this light and truth to yourselves, my friends. I know that each one of you has a deep desire to share this truth with others. Often you find that you are walking in a desert, that none are willing to listen to you, and when you speak, they turn away. And those who listen, listen with curiosity primarily and are not often inspired to act. But indeed you have sown the seeds and have given the truth. All that we do together my beloved friends, is to fulfill this purpose of sowing the seeds of truth to humanity. None of us, nor can God, circumvent the free will of any individual soul. It is for them to choose, for them to seek, for them to find answers for themselves. But where will they go, my beautiful friends? Often they go to sources that are of error, or they are drawn to that which empowers them within the mind rather than the soul.
+
+You hold the key to empowering the soul and yet so few understand what this means and how this may be. They have such a vague understanding of what a soul is and cannot see that it is something that needs their attention and nurturing because the mind is so predominant, and there is little focus or consciousness upon the soul, for that is indeed a foreign land within them. For most, they meander along their life’s path unguided, unfocused, and without any inkling of what the purpose of what this life would be. Hence, you have the sad state of affairs that is your Earth at this time. Hence, you have many who believe that they are doing well. There is a sense of contentment within their minds and yet if they were to search deeper within their soul, they would know something very different.
+
+As the world continues to react to the great influence humanity has upon it, in negative ways, in destructive ways, the mind does not accept the reality of the need for change and shifting of consciousness. You must sound the alarms my beloved friends. You must help to awaken humanity. If you do not, who will? If you cannot, who can? My beloved friends, each of you are highly gifted. You have come together because you are drawn together, recognizing in one another the desire to bring change to the world, the desire to be used as God’s instruments in the world, and each of you in your own way, are active in expressing this desire, though often your efforts are humble and your reach to many is not possible at this time. This is fully understandable because indeed the world continues to sleep and it’s not ready, but God will awaken humanity from their slumbers whether they wish to be awakened or not, so it shall be because of what God is bringing to the world.
+
+But indeed, each time you go out venturing forth into the world, is this not an opportunity to practice and to express yourself as God’s instruments reaching out to those around you? In this way, you hone your skills and your abilities to communicate and to be God’s channels. In this way, you become more aware of your capacity and level of understanding of the truth. I am not suggesting that you would know through these experiences, the level of light within your soul, for that is an altogether different thing. But indeed, that light must shine through your mind, your being, as a channel of truth and love.
+
+So as you attempt to be that channel, clear and beautiful in its own unique ways, you will find that God will guide you forward, that you will indeed have many opportunities to do so. You are stepping more fully upon the path of truth and love and as you do so, God will ask more of you. God will bring to you a great variety of opportunities to be that channel in the world. For some, it will be a very intense way of communicating when being with others, reaching out to many. For others, it will be a way of walking in the world quietly and humbly, yet the flow of love will be intense and you will reach many souls with this beautiful flow of love.
+
+None of you will be spared from the call from God to act and to be that channel. God needs all His children who are in alignment, to act in light and to be in the flow of His Will and Love, to help bolster the world that is indeed changing and will continue to change. You will see as time progresses, surprising changes within yourself and major shifts in your ways and means of living in the world. Your priorities will definitely be different. Your perceptions of the world will change in accordance with the growth of your soul. How this will overshadow the mind and imprint upon the mind a very different view of what reality is.
+
+You will walk as a beacon of light, my friends, and in so doing, it is our hope that you will initiate and support many Circles of Light in the world. It is important that you do so. These islands of light will grow as you work to bring them together, to work together in reaching out to many others. This is the way that God works, one soul to another soul, a group of souls that are bringing light to a community, even a country. But indeed, He must seed the world with truth and those who carry the truth are His instruments.
+
+Along with you, we also work and help to influence many others. But you have the advantage of the physical being. A material body can move in the world at will and be that overt instrument which can speak, which can embrace, which can bring love in a way that we cannot at this time. Though most certainly we are working towards our manifestations upon the Earth in a more material form, but until that time, it is you that carries the torch of truth in this way. May you come to realize what is possible, what you might do as you traverse the Earth. May you be guided thusly, my friends. May you come to know the wonderful gifts that are in each of you. May you see that path forward clearly and be in greater alignment with the Creator.
+
+God bless you my friends, I am Seretta Kem. I come to encourage you, for you are such lights, you carry such truth. May you express it with each day and bring the truth forward to this earthly plane. We are with you in this, always. God is with you in your efforts and shall always bless those efforts. Light abounds around you, beloved souls. Be God’s instruments, be God’s channels of love, and your lives will be filled to the brim with opportunity and with a deep sense of the soul in joy and gratitude and expansion.
+
+My love is with you my friends. I am Seretta Kem, always at your service. Blessings to you. Blessings deep, blessings pure, blessings powerful, to awaken your soul. God bless you.

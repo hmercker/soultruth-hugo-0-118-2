@@ -1,0 +1,38 @@
+---
+title: "Let the Barriers that Hold You Back Fall Away"
+menu_title: ""
+description: "Let the Barriers that Hold You Back Fall Away"
+date: 2025-04-17 07:21:03+11:00
+draft: False
+hidden: True
+weight:
+---
+# Let the Barriers that Hold You Back Fall Away
+
+March 25<sup>th</sup>, 2023
+
+Sechelt, BC, Canada
+
+Orion received by Al Fike
+
+Changes are taking place within you, my beloved friends. I am Orion. Can you see the difference in attitudes, perspectives, and the way in which you prioritize and direct your efforts in the world that have changed from those times past? Is a new life emerging within you, something that reflects more fully the Truth of Love, the expression of Love that is growing within your soul? Are you walking in the light rather than reacting to the forces of negativity and the human condition that so impinges upon you? Are you strong in the light? Can you consciously choose that which is of light rather than react and respond in a way that reflects the human condition?
+
+My beloved friends, you must mark your progress. It is important that you consciously realize that you are engaged in a process that is transformative, that you are walking upon a world as a different being than that which you were some time ago, and that that being that is emerging within you, through you, and around you is the hope for a changing world. It is a reflection of the efforts that you have made in prayer when you have decided and elected to be a being that is in harmony with all that which is of light.
+
+You are the one who can make those decisions and act upon them. This is the law, the Law of Free Will. With many in this world of yours, it is easier to allow the light, the great Love of God to accumulate within your soul and to brighten your soul. But to continue to foster that shell of protectiveness, of human response, of defensiveness around you so that you are not vulnerable, this is a common way in which humanity operates and interacts in the world. That vulnerability is hidden deep within. There is fear, caution and a lack of confidence in that place within that is fostered by love. Can you overcome this reflexive response, this shell of immunity from the human condition that is a reflection of your material mind?
+
+It is something that you have learned from a very early age. It is understandable that you have grown such a protective shell around you. But now you are becoming more mature spiritually. Many of you have lived a number of years in this world. You have come to realize that the world is only as threatening as you make it. Rather than looking to others for approval, walking in the world in such a way that you are acceptable by many, being that image of the individual that is more likely to be acceptable in the world, now it is time for your authentic self to shine through. Putting aside this old and worn fabric of thought and deed which reflects that part of you that is fearful, that longs for acceptance and love from a world that is so distorted and lacks the ability to love.
+
+You have gone to God to receive a great blessing of Love, the Source of All Love, a Source that will sustain you for eternity. Is it not time to say, *“I have elected to be a child of God rather than a child of man? I have decided to be in that light that is so pure and sustaining and powerful. I will reflect that light in my life no matter the judgments, no matter the response from others who they themselves feel confronted by my openness, my vulnerability, and my light.”* It is a confrontation, my friends, to be this way in the world, to be open and loving and reflect goodness and generosity, to put aside the judgments, to put aside the fears, and to be free of all those things that so shackle your brothers and sisters.
+
+Who will be the first to step forward and claim a new world? Will it be you? Can it be you? Are you strong enough? Do you see within yourself those impediments and vestiges of fear that dictate your behaviour? Are you willing to change, for that change has already taken place deep within you? It resides beautifully and powerfully, a light so pure and so not of the human condition that its pressure, a desire out of the soul to emerge into your consciousness and your being in all and every way is continually pressing upon you, continually pleading with you for true expression. How long can you ignore this? How long are you willing to sustain that charade which is that which all upon your world sustain, this reality of humanity which is so contrary to God, so contrary to His Laws of Love?
+
+If you are to truly be His servants, His channels of love, then you cannot sustain this other condition for long. All of you, to some degree, continue to be challenged by this dichotomy of perspective. All of you are given the challenge of overcoming your humanness, this condition that is a contradiction to the way in which you wish to be and to live. This brings great conflict to you. It, at times, compels you to doubt, to be confused, to be frustrated, to wonder why the human condition continues to impinge upon you so that you are not free.
+
+Well, in some ways, you are free, my friends. In some ways, you have found your freedom but it is within you. Yet indeed, for you to fully realize this freedom, to honour it, it must be all of you engaged within this way of light, truth and love. It is not an easy task or journey. You are confronted at every turn. You live a life that is integrated with your families and your friends and this world. It would be far easier to be that individual that you have constructed, to defend yourself from the pain and darkness of the world. But I say to you, my friends, the time for you is now to step forward, to release those conditions that are not of love, to be that being that exists readily within you and is shining through various cracks and fissures of this shell. Indeed, the pressure mounts and in time that shell must break, shatter into a million pieces.
+
+In this time of vulnerability, freshness and softness that comes with light shining through, know that we will be there. We will be with you surrounding you, protecting you. You will discover a new way of protection and security in what is, in truth, a dangerous world. We will guard you. We will guide you. We will continue to educate you and inspire you. We are there with you always. We will guard with all our efforts to ensure that your light and your being will be safe and will be a powerful example for others to follow.
+
+Yes, the world is a challenging place. Yet indeed, you have found the antidote to the darkness of the world. You must exhibit, be an expression, an example of it for if you cannot be this and if you continue to dance that dance of the human condition, then your effectiveness as a channel of truth, of God’s Love is compromised by that choice. My beloved friends, you are the hope of the world and you are not the only ones but indeed, you have the capacity to be a true and powerful channel of light expressed through you. This is a profound gift, a profound avenue of great possibilities because you understand the truth in its clarity and simplicity. You endeavour to live it.
+
+My beloved friends, we are with you. We understand your trials and tribulations, the roadblocks to true expression but know that we are with you. Have faith that God will guide you and will strengthen you and will ensure that you emerge in all your glory, wonderment, and beauty, that soul divine infused with God’s Love. May it be so, my beloved friends. I am Orion. My love is with you all. I am close to you as are many. God bless you. God bless you.

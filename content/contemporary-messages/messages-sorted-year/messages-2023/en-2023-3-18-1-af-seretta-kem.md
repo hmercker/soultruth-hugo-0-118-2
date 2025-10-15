@@ -1,0 +1,36 @@
+---
+title: "Growing Soul Consciousness"
+menu_title: ""
+description: "Growing Soul Consciousness"
+date: 2025-04-17 07:21:03+11:00
+draft: False
+hidden: True
+weight:
+---
+# Growing Soul Consciousness
+
+March 18<sup>th</sup>, 2023
+
+Sechelt, BC, Canada
+
+Seretta Kem received by Al Fike
+
+God bless you, beloved souls. It is Seretta Kem. It is good that you come together in this way. But our plan and effort are to fine-tune your sensitivities and gifts to the point where you may be aware of one another without these mechanisms, that you will carry the consciousness of this bond, this lattice of light that is between you to an extent where you may communicate together without the use of material means. To be able to do so in times to come will be a great boon to your efforts and a great comfort to one another, for when the bonds are so strong and the capacities to love one another are so great then we may utilize you in so many different ways, in powerful and profound ways that it would be hard to describe how this may be accomplished and what we may do.
+
+But love is the most potent force in the universe. With the utilization of the Essence of God, His Love, then many, many things are possible. You must avail yourselves of receiving more of this great gift so that you may indeed open up doorways, passageways, channels, and portals so that communication and connection may be achieved readily. It is dependent upon your soul progression, my beloved and beautiful friends. It is dependent upon your faith for it is faith that will carry you forward. When you are open and in the profound belief of what is possible then the barriers do not exist. You are not restricted by your mindful considerations and biases. Rather, you are willing to open yourself completely to God and the Will of God and the ministrations of God so that all may be accomplished readily and that these accomplishments are accepted because they go far beyond your material perceptions and ideas of the mechanics of the universe.
+
+This is of the highest calibre and level of development.  You have indeed gathered together and in a desire to be of this highest calibre and development of gifts, for the blessing of God’s Love is of the highest and results of these blessings of these gifts are of the highest outcomes. So, you have subscribed to something far greater and deeper and more expansive than any other program that may exist upon your earthly plane. I applaud you for this, my friends, that you continue to persist. Indeed, faith grows within you. Desire grows within you. Experiences continue to unfold in your life that affirms that what you are doing is of the highest and utmost importance.
+
+So, we come together as we do. We will continue to come together provided you wish for this to be. We will develop many gifts and many capacities within you utilizing the foundation of the Divine Love within your soul, awakening the many faculties and gifts that are within. Thereby, the infrastructure has been created. We as the builders use what has been created to connect, open, inform, inspire, to help you to see and visualize the truth for the passageways of the soul, the conduits of the soul, and the ability to perceive and understand that comes from the soul are all growing exponentially as you grow in the Father’s Love.
+
+Though I use these metaphors, these physical comparisons, in truth, all things of the soul are not of physical qualities whatsoever. But that which manifests from the soul has a physicality to it. Thus, it is difficult for you to understand that what is within the soul has no form, yet what manifests from the soul does has form which I am sure, to your mindful considerations, this is somewhat confusing. Yet indeed, as you grow and understand from those soul perceptions, you will come to know these things. In time, they will become second nature to you for you are growing and transforming in Love. In this way, many ideas and benchmarks of perception are changing, radically changing, and transforming in accordance with these blessings and gifts. Therefore, you will find understandings that would seem foreign to you at this time but will come to you in times to come when your soul’s perception has grown and your capacity to absorb and accept these experiences and perceptions will come to you.
+
+As in all things with God, these things must come in harmony, not in some rapid, jarring effect and change within you. Rather, it comes slowly and gradually so that you may adjust and come to understand these things more fully. Yes, your perceptions will widen. Your capacity to connect and be in harmony with another will be powerful and beautiful. Love will reign supreme within your consciousness, my friends. You will see yourself as a reflection of God. In this reflection, the substance of His Love will empower many things, many beautiful gifts and abilities. You will be astounded by the progress that you make. You are all on the cusp of great progress. It is happening to you now within your spirit. In time, it will come to your material consciousness.
+
+These things grow from the soul toward the material mind in a gradual way. Often, it is determined by your own self setting the pace for your own growth, things that you allow and things that you disallow in your consciousness. This is where faith is so important, my friends, to have that faith within the soul that allows the expansion of the soul without inhibition, without curtailing this expansion by the biases of the mind for when there is deep faith within, then these obstacles are removed and dissipate and you walk a journey that is with God, a journey that is in alignment with God, a journey that allows the ministrations of God to be fully put upon you in all its glory and light.
+
+Continue to grow in your faith, your trust in God, your trust in one another and your trust in the process in which you are engaged. Each of you collectively is engaged in this growing awakening process. So, the gifts flow, the blessings flow, the understanding expands, and the truth becomes evident. As you grow in the Father’s Love so you begin to love yourself more readily, love one another more readily, accept the differences, to cherish the unique creations of God. All of these things build the passageways of understanding and communication and connection, not only amongst yourselves but with us in the Celestial Kingdom, with God, with the bright spirits, and with your stellar friends.
+
+A great lattice of connection, of awareness, of light, continues to grow amongst you. This thing will be important. This blessing will be powerful and effective in supporting each of you in your work, in that which you are destined to do in the world. It grows, my friends. It expands. It becomes permanent and steadfast in your consciousness. These things will come. These things are established but they must grow into your conscious self. They must manifest in that place where you are aware and can absorb the implications and the blessings that come with it.
+
+May you be blessed, my friends, with true and clear knowledge, awareness, openings, and blessings of our dear and beloved Creator’s Love for you, our Creator’s Love for all things in the universe. God bless you, beloved souls. I am Seretta Kem. My love is with you always. God bless you.
