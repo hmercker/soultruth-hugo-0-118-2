@@ -1,0 +1,42 @@
+---
+title: "Describes Increasing Darkness of Energetic Thought Conditions of Humanity Circulating in Our World"
+menu_title: ""
+description: "Describes Increasing Darkness of Energetic Thought Conditions of Humanity Circulating in Our World"
+date: 2025-03-11 07:21:03+11:00
+draft: False
+hidden: True
+weight:
+---
+# Describes Increasing Darkness of Energetic Thought Conditions of Humanity Circulating in Our World
+
+January 24<sup>th</sup>, 2025
+
+St Michael, Barbados
+
+Orion received by Al Fike
+
+I am Orion. Your world's energetic condition is often like seeing weather flowing around your planet. The thought conditions of humanity vary to a great degree, from one day to the next, one moment to the next. They flow, for each thought creates its own condition and adds to the general condition of the world. Therefore, there are days when you may feel a heaviness, a blanket of darkness invading your spiritual well-being. There are other days when the sun is shining, and you feel uplifted and good. But it is ever-changing. Generally, the conditions of your world are darkening and have become heavier.
+
+This is the forerunner to the changes that are coming on your Earth plane. For these conditions affect the well-being of your Earth, the well-being of the elements of the Earth and the way that this organisation of elements works together. When God created the Earth and brought it to that place of light and harmony, humanity came to be. Humanity has had the power to change the world. Since you are of great numbers, that power is exerted with great force on your material plane. This creates a great challenge for you and for us.
+
+We construct aspects of communication, such as portals, to help negate these disruptive conditions. But we do require your fervent prayers, your faith, your desire and your uplifting thoughts to help complete the picture. Though we do a great deal to benefit you in terms of communication and presence, all those efforts are lost if you are not in harmony and alignment with what we are attempting to accomplish.
+
+Each carries their responsibility. Each continues to grow in light. Each must prepare and be receptive to circles such as this and be in harmony with one another, a unity of desire and purpose. That way, we can work in a seamless environment of light. Indeed, if one is having difficulties and feeling darkness enshrouding them, when the others are in light, then that one individual may benefit greatly from the overall condition of the circle. When there are several in that condition, then this pollutes the environment and brings down the conditions severely.
+
+It is important to understand the dynamics of how we communicate in a circle such as this. The most sensitive individual in the circle is the medium. They will take on disharmonious conditions of that circle if those conditions are brought in and not neutralised. We are diligent to protect the medium. Yet, because of the dynamics of communication, that individual will feel the differences if it is of a dark condition. This makes for a great struggle for the medium. Thus, your opening prayers are important, your thoughts are crucial and your intentions, if in alignment together, are powerful. Indeed, as you are given the blessing of a portal and the blessing of our presence and the angels, bright spirits surround you, then, generally, the conditions are good and favourable and a blessing for each one of you.
+
+I would say to you do not underestimate your own power, your own responsibility, whether it be in the circle or in your daily life. For you determine the conditions that surround you. At times, the conditions are challenging and intense, so your response to this must be intense and prayerful so that you may neutralise these conditions, and, if possible, help to neutralise the conditions that are in the atmosphere generally. Humanity is more sensitive to these things than you might realise. Even though they walk in the world, closed in dark form and thought, they are reflecting the human condition, the conditions that are there upon your Earth, the thoughts that surround, the thoughts they generate, the intentions they have and the worries, cares and fears that they project, feel and think.
+
+It is important for you to educate as many as you can on this. For it is a powerful truth that we create the conditions around us and, in creating these conditions through the Law of Attraction, we draw the reinforcement of these conditions. This may be done in several ways. Certainly, the dark conditions that are generally present on your planet are reinforced and come closer if you’re thinking, doing and intentions are dark. Dark spirits are drawn, especially to those who are mediumistic and sensitive, for they sense that they have a greater possibility of rapport and connection. When that is accomplished, then they may wreak havoc upon that individual in subtle ways and, sometimes, very direct ways.
+
+When you interact with others who are projecting this darkness and these dreadful conditions and they have a conversation with you that may ignite and trigger a dark reaction within you, there may be several reasons for this. The individual may be influenced by dark spirits who are using them to connect and disrupt you. They themselves sense your light and your happiness, your joyfulness and they want to disrupt that. They are either jealous or angry about that.
+
+You see, the conditions of the world are very complex and very harsh. You have a great many challenges before you. You must be vigilant, dear and beloved souls of light. You are a flower blooming in the storm, blown about by harsh conditions. Yet, with your prayers and efforts, God will put protection around you. You may bend, but you will not break. You may feel those conditions, but if you understand the Laws of Rapport, Communication and Attraction, you will not take on these conditions, even though the awareness may be acute.
+
+Prayer is your friend. You must utilise prayer to bring the blessings and light to you. Positive thoughts, thoughts generated by love, thoughts reflecting the depth of your faith and the depth of your knowledge and wisdom, that which come from the soul, these things are important and must be exercised constantly. Joy and laughter are important. Being loving to your brothers and sisters is important. Acts of service are important. But, most important of all, is receiving the great gift of God's Love. That reinforces, refines and enhances all these other elements in your life.
+
+You are walking a different road, my friends. It is important that you do so. It is important that you are consistent in doing so. Walk upon the road that is of light, love and truth. That road will bring greater love, light and truth as you walk upon it. Of course, the walking is a metaphor for prayer. You continue to pray, so you progress forward. As you continue to seek guidance, blessings and transformation of soul, so you walk forward. As you contemplate and exercise the knowledge that you know and have and test the waters, so you walk forward. As you seek out the blessings of God and the presence of your angel friends, stellar friends and bright spirits, so you walk forward. As you forgive yourself and forgive others for their transgressions, so you walk forward. As you, in that forgiveness, replace your regrets with love and infill fill your mind with thoughts of compassion, so you walk forward.
+
+My beloved friends, progress forward is the key. I have given you the ways in which that might be done. Seek for the highest, acknowledge that you are able and that within your soul is a willingness to walk this road of love. Be true to that. When those negative thoughts and conditions infiltrate, stop. Pray. Stop what is happening with the utilisation of prayer and your own will. Is this so difficult, my beloved friends? Although there are times when you are challenged, generally in your life, which is a good life, I do not see anyone here suffering or very distracted from their spiritual life. So, it must be easy for you. As you continue and are strengthened by your efforts and actions, you will be a formidable example for others to see how this is accomplished and how the journey is engaged and expressed.
+
+May you be blessed, my beloved friends. I am Orion. I am happy to come to speak to you today. God bless you all in light and love as you walk upon the road of truth. God bless you. My love is with you always.

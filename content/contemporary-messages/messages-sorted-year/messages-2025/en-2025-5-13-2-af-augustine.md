@@ -1,0 +1,42 @@
+---
+title: "Replace Judgement with Compassion"
+menu_title: ""
+description: "Replace Judgement with Compassion"
+date: 2025-05-18 07:21:03+11:00
+draft: False
+hidden: True
+weight:
+---
+# Replace Judgement with Compassion
+
+May 13<sup>th</sup>, 2025
+
+Sechelt, BC, Canada
+
+Augustine received by Al Fike
+
+It is your teacher, Augustine. The human condition is a very complex thing. It is infused in every individual and manifests in unique ways with each individual. It is easy to see the overt patterns that emerge from this condition, but each individual has a set of patterns and conditions within them that are contrary to the soul's awakening and emerging in love. It is easy to judge another whose behaviour, in your mind, is unacceptable or brings you a feeling of discomfort. Yet, these conditions persist in every soul. Often they are suppressed or hidden, but they exist. You judge yourself often when you are aware of your own failings and conditions that keep you out of harmony.
+
+It is the condition of judgement that needs to be reconciled and erased from human consciousness and replaced by love. There are those who challenge you greatly and those who do not. There are those you are compatible with in terms of your psychological makeup and perspective, and those who aggravate and cause you distress. This is the human condition. It is something we are well aware of, dear daughter, in everyone whom we encounter. We have compassion, tolerance and love for each soul upon this planet. We have spent much time explaining and detailing why these conditions exist and how they are reinforced in this world. No one escapes from these conditions. Each individual has a responsibility to change the patterns of behaviour that are not in harmony with God's Love and Truth.
+
+You must be patient, dear daughter, for those who you see are not making the efforts you would like to see. You must be patient with yourself as you continue to see unwanted behaviours repeated over and over again. Compassion, dear daughter, compassion is necessary in order to do the work, the spiritual work, that you have taken on, in order to be tolerant of the wayward children who are in their souls seeking the truth and desiring to be in harmony with God's Laws of Love and Creation. Yet, each individual faces the impediments alone as they continue to struggle and find their way. When they make a step forward in the right direction, the direction of harmony, then we are there to assist and to help, to reinforce and to ensure that they are not a victim of dark forces that are ever eager to reinstate these behaviours and these patterns.
+
+Yes, it is a complex world, one that lacks strength, resilience, perception and discernment. Indeed, through your limited perceptions, you see things that are unpleasant. Can you imagine what we perceive? For we see all of you in every moment, the many layers of behaviour, the many layers of feeling, of thought and of action. It is a difficult world, a dark world. Even though you sit here in this beautiful place, the darkness persists within you and within all of you. As the Love continues to have its effects, it will in time open the opportunities and the doors toward correction and greater harmony.
+
+Yet, the individual must choose, consciously choose, to enter through that door and to persist in the corrected behaviour, so that in time it no longer exists, expunged from the consciousness of the individual. This takes time, dedication, prayer and faith, a willingness to love oneself and to love others and to accept that every individual carries deep flaws, deep pain and deep conditions of darkness that they are attempting to address. Through their prayers, they desire relief, healing and the recalibration of thought and feelings toward that which is of greater harmony.
+
+It is easier to look upon another and judge them. Often those feelings of judgement, of disdain, of repulsion, whatever they are, are because you carry the same flaw, the same condition, and to see it reflected to you in such an obvious way is difficult to perceive it also as a part of you. Judgement blocks the feelings of inner guilt and repulsion. As I have said, it is a complex world and a complex world within each of you. Yet, you are each day given the opportunity to navigate through it. When you feel judgement toward another, it is a gift, a gift of seeing, perceiving and acknowledging that which is within yourself and that which requires healing and a recalibration, so that you are indeed in greater light and that the purity of thought and condition within you continues to grow and become established within your being.
+
+I ask you, dear daughter, and all, not to judge, but to be compassionate and to understand that every soul on this world is in pain. In order to cope with that pain, certain behaviours that are not truly desirable are expressed. Often, these behaviours are unconsciously expressed. The individual does not even know them as being defence mechanisms, as you would call them, or ways of numbing the pain or conditions that are so habitual that they are unknown in a conscious way.
+
+There are many, many aspects to human behaviour. There are scientists who study this and continue to speculate about them. You have chosen the route of reinforcing and growing your soul so that that wisdom and that part of you may dominate and eliminate the negativity, the darkness, the fear and the behaviours. I urge you to persist in this, to be consciously aware that there is much work still to do within yourself and within all. You have the luxury and the blessings of angels close by, of God infilling your soul with His Love, of all those good things, all those blessings offered by God.
+
+The struggle continues, the tug of war between good and evil, light and darkness, harmony and disharmony. These things persist, but if you look back upon your life, I am sure that you can see that you have changed and behaviours have changed. There are certain issues that continue to cause you consternation and pain, but they are weakening day by day, prayer by prayer. In time, they too will disappear and you will be free from the dark conditions that humanity has inherited, is born into and acts within in so many ways, on so many different levels.
+
+You are being blessed, dear daughter. You are being blessed. Continue to acknowledge the blessings. Continue to express those blessings in your daily life with your interactions with others. Put aside what you may perceive as dark behaviour from thoughts and others. For are you much different from them? Certainly, the expression of these conditions is different. It is unique. Yet, all struggle in your world and shall continue to do so.
+
+Yet, you are being proactive to counteract those struggles, to heal them and to bring all into harmony. Focus on that, dear daughter, rather than looking around you to surmise that which is in disarray or disheartening. Rather, give love. Give a prayer. Accept that each individual's journey is their own and they must find their way. God will help them. We will help them, given their decision to correct and to heal. We must be patient and wait for those moments and that condition where the decision has been made to stop those behaviours that are dark and cause more pain.
+
+Can you join us in this patience, dear daughter? Can you be a loving instrument of God? Can you be of light and discipline your mind so that those dark and judgmental thoughts may disappear, like a puff of smoke in the air as the light flows in and dissipates these things? Use the power of your soul. It has many gifts, many abilities to dispel the darkness within and around you. God has touched your soul deeply. Your soul shines forth. Allow it to shine and be in the grace of God. The mind will follow suit as the soul is strengthened and dominates in light and love.  You are God's child. As such, you are given many blessings and many dispensations because of the choice you have made to nourish your soul and to seek at-onement with God. When you see a brother or sister falter, have compassion, patience and say a prayer.
+
+May you be blessed, beloved daughter, in the Father's Love. Continue on your journey toward peace and the reconciliation of your soul with God's Soul. If you focus upon these things, then the temptation to judge will not be yours. God bless you. I am your teacher, Augustine. I love you so. God bless you. God bless you.
