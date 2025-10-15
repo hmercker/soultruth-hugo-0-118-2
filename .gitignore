@@ -1,0 +1,6 @@
+public/
+*.log
+node_modules/
+.DS_Storepublic/
+*.log
+node_modules/
