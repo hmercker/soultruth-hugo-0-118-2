@@ -33,5 +33,5 @@ Take this link for a report of <A HREF="https://search.freefind.com/find.html?id
 ...to our mailing list.
 
 <p style="text-align: center;">
-<script type="text/javascript" src="//counter.websiteout.net/js/5/6/2852/1"></script>
+<script type="text/javascript" src="//counter.websiteout.net/js/5/6/0000/1"></script>
 </p>
