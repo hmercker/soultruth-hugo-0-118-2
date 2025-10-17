@@ -10,11 +10,10 @@
 {{ with .sect }}
 {{ if and (not .Params.hidden) .IsSection }}
 <li class="section{{ if .IsAncestor $currentNode }} active-trail{{ end }}">
-  <a href="{{ .URL }}"><span>{{ .Title | truncate 50 }}</span></a>
+  <a href="{{ .RelPermalink }}"><span>{{ .Title | truncate 50 }}</span></a>
 
   <div class="dropdown">
     <ul>
-
       {{- .Scratch.Set "pages" .Pages -}}
       {{- if .Sections -}}
       {{- .Scratch.Set "pages" (.Pages | union .Sections) -}}
@@ -23,23 +22,20 @@
       {{- $pages := (.Scratch.Get "pages") -}}
 
       {{- range $pages.ByWeight -}}
-      {{- if and .Params.hidden (not $.showhidden) -}}
-      {{- else -}}
-      {{template "menu" dict "sect" . "currentnode" $currentNode}}
+        {{- if and .Params.hidden (not $.showhidden) -}}
+        {{- else -}}
+          {{template "menu" dict "sect" . "currentnode" $currentNode}}
+        {{- end -}}
       {{- end -}}
-      {{- end -}}
-
     </ul>
   </div>
 </li>
 
 {{- else if and .Params.hidden (not $.showhidden) -}}
 {{- else -}}
-<li class="{{ if eq .UniqueID $currentNode.UniqueID }}active{{ end }}">
-  <a href="{{ .URL }}"><span>{{ .Title | truncate 45 }}</span></a>
+<li class="{{ with .File }}{{ if and $currentNode.File (eq .Path $currentNode.File.Path) }}active{{ end }}{{ end }}">
+  <a href="{{ .RelPermalink }}"><span>{{ .Title | truncate 45 }}</span></a>
 </li>
 {{ end -}}
-
-
 {{ end }}
 {{ end }}
