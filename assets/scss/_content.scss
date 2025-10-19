@@ -1,0 +1,183 @@
+.content {
+  -webkit-font-smoothing: antialiased;
+  pre {
+    font-family: $font-family-mono;
+    font-size: 0.9em;
+    line-height: 1.4;
+    margin: 0;
+    background: #f5f5f5;
+    padding: 10px;
+    border-radius: 1px;
+    color: lighten($black, 10%);
+    code {
+      font-family: $font-family-mono;
+      font-size: 0.9em;
+      line-height: 1.4;
+      border-radius: none;
+      padding: 0;
+      margin: 0;
+    }
+  }
+  code {
+    background: #f5f5f5;
+    padding: 3px 6px;
+    border-radius: 3px;
+    color: lighten($black, 10%);
+    font-family: $font-family-mono;
+    font-size: 0.9em;
+    line-height: 1.4;
+  }
+  strong {
+    font-weight: bold;
+  }
+  em {
+    font-style: italic;
+    font-weight: normal;
+  }
+  ol {
+    margin-top: 10px;
+    margin-bottom: 20px;
+    list-style-type: decimal;
+    li {
+      margin-bottom: 5px;
+      margin-left: 20px;
+    }
+  }
+  ul {
+    margin-top: 10px;
+    margin-bottom: 20px;
+    list-style-type: disc;
+    li {
+      margin-bottom: 5px;
+      margin-left: 20px;
+    }
+  }
+  a {
+    text-decoration: underline;
+    &:hover {
+      color: lighten($primary,20%);
+    }
+  }
+  p {
+    font-family: $font-family-base;
+    font-size: 1em;
+    line-height: 26px;
+    color: lighten($black, 10%);
+    font-weight: 400;
+    margin-bottom: 20px;
+    text-indent: 0px;
+  }
+  h1:first-of-type {
+    font-family: $font-family-serif;
+    font-family: "Cinzel";
+    font-size: 2.4em;
+    line-height: 1.2;
+    font-weight: 400;
+    margin-bottom: 20px;
+    color: #383f45;
+  }
+  h1 {
+    font-family: $font-family-serif;
+    font-size: 2em;
+    line-height: 1.2;
+    font-weight: 300;
+    margin-bottom: 20px;
+    color: lighten($black, 10%);
+  }
+  h2 {
+    font-size: 2.2em;
+    line-height: 1.4;
+    font-weight: 300;
+    letter-spacing: -0.01em;
+    font-family: $font-family-serif;
+    margin-bottom: 20px;
+  }
+  h3 {
+    font-size: 1.6em;
+    line-height: 1.4;
+    font-weight: 400;
+    font-family: $font-family-serif;
+    margin-bottom: 20px;
+  }
+  h4 {
+    font-size: 1.5em;
+    line-height: 1.4;
+    font-weight: 500;
+    font-family: $font-family-serif;
+    margin-bottom: 20px;
+  }
+  h5 {
+    font-size: 1em;
+    line-height: 1.4;
+    font-family: $font-family-serif;
+    margin-bottom: 20px;
+  }
+  h6 {
+    font-size: 1.2em;
+    line-height: 1.4;
+    font-weight: 700;
+    font-family: $font-family-base;
+    margin-bottom: 20px;
+  }
+  h5.h-decorate {
+    text-align: center;
+    color: $primary;
+    font-size: 1em;
+    line-height: 1.4;
+    margin-bottom: 20px;
+    font-family: $font-family-base;
+  }
+  blockquote {
+    margin: 20px;
+    padding: 30px 10px;
+    quotes: '\201C''\201D''\2018''\2019';
+    box-shadow: none;
+    border: #dcdcdc 1px solid;
+    border-left: 10px solid #ccc;
+    background-color: #fff;
+  }
+  blockquote:before {
+    color: #ccc;
+    content: open-quote;
+    font-size: 5em;
+    width: 20px;
+    line-height: 0.1em;
+    margin-right: 15px;
+    vertical-align: -0.4em;
+  }
+  blockquote p {
+    display: inline;
+  }
+  table {
+    margin: 20px 0;
+    width: 100%;
+    border-color: #d7d7d7 #fff #fff #d7d7d7;
+    border-width: 1px;
+    border-style: solid;
+    border-spacing: 2px;
+    border-collapse: separate;
+  }
+  table th,
+  table td {
+    padding: 8px;
+    vertical-align: middle;
+    border-color: #fff #d7d7d7 #d7d7d7 #fff;
+    border-width: 1px;
+    border-style: solid;
+  }
+
+  table th {
+  }
+
+  table .author {
+    width: 130px;
+  }
+
+  table .date {
+    width: 150px;
+  }
+  img {
+    max-width: 100%;
+    height: auto;
+  }
+}

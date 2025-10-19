@@ -13,6 +13,13 @@
 	3. 	Miscellaneous
 
 ***********************************************************************************************/
+@import "bootstrap/bootstrap";
+@import "_bootstrap-variables";
+@import "_content";
+@import "_print";
+@import "style";
+
+$primary: #047634; /* Bootstrap primary for layout buttons, etc. */
 
 /* 2. LAYOUT
 -----------------------------------------------------------------------------------------------
@@ -100,6 +107,48 @@
     margin: 10px 0;
     width: 100%;
     box-shadow: rgba(0, 0, 0, .15) 0 0 10px;
+}
+/* ----- Layout centering and banner alignment ----- */
+.container {
+  max-width: 940px;
+  margin: 0 auto;
+  padding: 0;
+  text-align: left;
+}
+
+/* Banner image should be centered within the container */
+#banner {
+  display: block;
+  text-align: center;
+  margin: 20px auto;
+}
+
+#banner img {
+  display: inline-block;
+  max-width: 100%;
+  height: auto;
+}
+/* ----- Banner layout ----- */
+#banner {
+  width: 100%;
+  text-align: center;
+  margin: 0 auto 20px;
+}
+
+/* Full-width home banner */
+#banner img {
+  display: block;
+  width: 100%;
+  height: auto;
+  max-width: none;
+}
+
+/* For inner pages, constrain banner to content width */
+body:not(.home) #banner img {
+  width: 940px;      /* match your container width */
+  margin: 0 auto;
+  max-width: 100%;
+  display: block;
 }
 
 /* 2.3 CONTENT

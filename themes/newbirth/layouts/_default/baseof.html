@@ -1,24 +1,37 @@
 <!DOCTYPE html>
 <html lang="en">
-
 <head>
+  
+  <link href="https://fonts.googleapis.com/css2?family=PT+Serif:wght@400;700&display=swap" rel="stylesheet">
+
   <meta charset="utf-8">
   <meta http-equiv="x-ua-compatible" content="ie=edge">
   <title>{{ block "title" . }}{{ .Title }}{{ end }}</title>
   <meta name="viewport" content="width=device-width, initial-scale=1">
   <link rel="icon" href="/favicon.ico">
 
-  {{ $styles := resources.Get "scss/newbirth.scss" | toCSS (dict "targetPath" "css/style.css" "enableSourceMap" true) }}
+  {{/* ---------- Styles: Hugo Pipes SCSS ---------- */}}
+  {{ $options := dict "targetPath" "css/style.css" "outputStyle" "compressed" }}
+  {{ $styles := resources.Get "scss/newbirth.scss" | toCSS $options }}
 
   {{ if .Site.IsServer }}
-  <link rel="stylesheet" href="{{ $styles.Permalink }}">
+    <link rel="stylesheet" href="{{ $styles.RelPermalink }}">
   {{ else }}
-  <link rel="stylesheet" href="{{ ($styles | minify | fingerprint).Permalink }}">
+    {{ $styles = $styles | minify | fingerprint }}
+    <link rel="stylesheet" href="{{ $styles.RelPermalink }}" integrity="{{ $styles.Data.Integrity }}">
   {{ end }}
+  {{/* ---------- End Styles ---------- */}}
 
   {{ block "header_css" . }}{{ end }}
   {{ block "meta_tags" . }}{{ end }}
   {{ template "_internal/google_analytics.html" . }}
+
+  <!-- Load other stylesheets first -->
+  <link rel="stylesheet" href="{{ .Site.BaseURL }}css/other-styles.css">
+
+  <!-- Ensure newbirth.css is loaded last to avoid being overridden -->
+  <link rel="stylesheet" href="{{ .Site.BaseURL }}css/newbirth.css">
+
 </head>
 
 <body class='page {{ block "body_classes" . }}{{ end }}'>
@@ -28,7 +41,6 @@
     <header id="header">
       <!-- Search -->
       <div id="search">
-
         <form action="https://search.freefind.com/find.html" method="GET">
           <input type="hidden" name="id" value="85948985">
           <input type="hidden" name="id2" value="85948985">
@@ -38,22 +50,28 @@
           <input name="" type="submit" value="">
           <label>Search:<input name="query" type="text"></label>
         </form>
-
       </div>
       <!-- /Search -->
     </header>
     <!-- /Header -->
 
-    <!-- Banner -->
-    {{ block "banner" . }}
-    <div id="banner">
+<!-- Banner -->
+{{ block "banner" . }}
+  <div id="banner">
+    {{ if .IsHome }}
       <a href="/" title="Home | {{ .Site.Title }}">
-        <!-- <img class="img-fluid" src="{{ .Site.BaseURL }}images/logo-banner-inner.jpg" width="940" height="80" alt="A Spiritual Journey" /> -->
-        <img class="img-fluid" src="/images/logo-banner-inner.jpg" width="940" height="80" alt="A Spiritual Journey" />
+        <img class="img-fluid" src="/images/logo-banner.jpg" alt="{{ .Site.Title }}" />
       </a>
-    </div>
+    {{ else }}
+      <a href="/" title="Home | {{ .Site.Title }}">
+        <img class="img-fluid" src="/images/logo-banner-inner.jpg" alt="{{ .Site.Title }}" />
+      </a>
     {{ end }}
-    <!-- /Banner -->
+  </div>
+{{ end }}
+<!-- /Banner -->
+
+
 
     <!-- Content -->
     <div id="content" class="row-fluid">
@@ -61,11 +79,13 @@
       {{ else }}
       {{ partial "toolbox.html" . }}
       {{ end }}
+
       <!-- Primary navigation -->
       <nav id="nav-primary">
         {{ partial "docs-menu.html" . }}
       </nav>
       <!-- /Primary navigation -->
+
       <!-- Article -->
       <article>
         <div class="wrapper content">
@@ -73,11 +93,10 @@
         </div>
       </article>
       <!-- /Article -->
-      <div class="clearfix">
-      </div>
+
+      <div class="clearfix"></div>
     </div>
     <!-- /Content -->
-
   </div>
 
   <!-- Footer -->
@@ -85,20 +104,22 @@
     &copy; {{ .Site.Title }}, {{ now.Format "2006"}}
   </footer>
 
+  <!-- Scripts -->
   <script src="//ajax.googleapis.com/ajax/libs/jquery/1.9.1/jquery.min.js"></script>
 
+  {{/* ---------- JS Pipeline ---------- */}}
   {{ $scripts := resources.Get "js/scripts.js" }}
   {{ $js := slice $scripts | resources.Concat "js/bundle.js" }}
 
   {{ if .Site.IsServer }}
-  <script type="text/javascript" src="{{ $js.Permalink }}"></script>
+    <script type="text/javascript" src="{{ $js.RelPermalink }}"></script>
   {{ else }}
-  <script type="text/javascript" src="{{ ($js | minify | fingerprint).Permalink }}"></script>
+    {{ $js = $js | minify | fingerprint }}
+    <script type="text/javascript" src="{{ $js.RelPermalink }}" integrity="{{ $js.Data.Integrity }}"></script>
   {{ end }}
+  {{/* ---------- End JS ---------- */}}
 
-  {{ block "footer_js" . }}
-  {{ end }}
-
+  {{ block "footer_js" . }}{{ end }}
 </body>
-
 </html>
+
