@@ -45,7 +45,7 @@ body, html {
 
 /* ----- Apply PT Serif to All Clickable Elements ----- */
 a, button, input[type="submit"], .button, #nav-primary ul li a {
-    font-family: 'PT Serif', serif !important;  /* Force PT Serif font on all clickable elements */
+    font-family: 'PT Serif' !important;  /* Force PT Serif font on all clickable elements */
     font-size: inherit !important;              /* Ensure font size matches body text */
     color: green !important;                    /* Optional: links will appear green */
     text-decoration: none !important;           /* Optional: removes underlines from links */
@@ -58,7 +58,7 @@ a:hover, a:focus {
 
 /* Optional: Apply PT Serif font to buttons */
 button, input[type="submit"], .button {
-    font-family: 'PT Serif', serif !important;  /* Apply PT Serif font to buttons */
+    font-family: 'PT Serif' !important;  /* Apply PT Serif font to buttons */
     font-size: inherit !important;              /* Ensure font size matches body text */
 }
 
@@ -192,6 +192,24 @@ body:not(.home) #banner img {
   max-width: 100%;
   display: block;
 }
+
+/* ----- Apply Cinzel font to h1 headings ----- */
+h1:first-of-type {
+    font-family: "Cinzel", serif !important; /* Apply Cinzel to the first h1 */
+    font-size: 2.4em; /* Ensure the font size is set */
+    line-height: 1.2;
+    font-weight: 400;
+    margin-bottom: 20px;
+    color: #383f45; /* Set the color as defined */
+}
+
+/* Apply Cinzel to all h1 headings across the site */
+h1 {
+    font-family: "Cinzel", serif !important; /* Ensure Cinzel is applied */
+    font-weight: 700; /* You can adjust the weight if needed */
+    line-height: 1.2;
+}
+
 
 /* 2.3 CONTENT
 ------------------------------------------------------------------------------------------------ */
@@ -333,7 +351,7 @@ article li {
     -moz-transition: all .1s ease-out;
     -o-transition: all .1s ease-out;
     transition: all .1s ease-out; 
-    font-family: sans-serif !important;  /* Forces sans-serif on the menu links */
+    font-family: PT serif !important;  /* Forces sans-serif on the menu links */
     font-size: inherit;                 /* Ensures the size matches body text */
 }
  
@@ -866,7 +884,7 @@ body {
     margin: 0;
     padding: 0;
     background-size: cover;
-    font-family: sans-serif;
+    font-family: PT serif;
   }
 
   .box {
