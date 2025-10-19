@@ -11,7 +11,10 @@ lg: 960px,
 
 $grid-gutter-width: 20px;
 
-$primary: #047634;
+// Bootstrap's $primary is for layout, SoulTruth green for links
+$primary: #047634; /* Bootstrap primary for layout buttons, etc. */
+$link-color: #5b8b3b; /* SoulTruth green for links */
+$link-hover-color: lighten(#5b8b3b, 20%); /* Hover color for links */
 $secondary: #ffca28;
 $black: #212529;
 

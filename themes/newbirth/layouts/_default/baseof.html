@@ -8,7 +8,7 @@
   <meta name="viewport" content="width=device-width, initial-scale=1">
   <link rel="icon" href="/favicon.ico">
 
-  {{ $styles := resources.Get "scss/style.scss" | toCSS (dict "targetPath" "css/style.css" "enableSourceMap" true) }}
+  {{ $styles := resources.Get "scss/newbirth.scss" | toCSS (dict "targetPath" "css/style.css" "enableSourceMap" true) }}
 
   {{ if .Site.IsServer }}
   <link rel="stylesheet" href="{{ $styles.Permalink }}">

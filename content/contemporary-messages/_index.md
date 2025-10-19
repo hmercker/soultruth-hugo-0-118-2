@@ -21,10 +21,35 @@ We are at this time sharing the new material from this site on an ad hoc basis: 
 
 <!--[subscribe here.](https://new-birth.us6.list-manage.com/subscribe?u=7b572301eabd13f5075f1c9a0&id=894ad8557b)-->
 
- | | <a name="a"><div style="text-align: center;">Year</div></a> | | 
----|---|---|---|---
-<div style="text-align: center;">[2025](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2025/)</div> | <div style="text-align: center;">[2024](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2024/)</div> | <div style="text-align: center;">[2023](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2023/)</div> | <div style="text-align: center;">[2022](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2022/)</div> | <div style="text-align: center;">[2021](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2021/)</div>
-<div style="text-align: center;">[2020](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2020/)</div> | <div style="text-align: center;">[2019](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2019/)</div> | <div style="text-align: center;">[2018](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2018/)</div> | <div style="text-align: center;">[2017](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2017/)</div> | <div style="text-align: center;">[2016](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2016/)</div>
-<div style="text-align: center;">[2015](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2015/)</div> | <div style="text-align: center;">[2014](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-spirit-year-2014/)</div> | <div style="text-align: center;">[1970](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-1970/)</div> | <div style="text-align: center;">[1969](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-1969/)</div> |
- | | | |
+<table style="width:100%; text-align:center; border-collapse:collapse;">
+  <thead>
+    <tr>
+      <th colspan="5" style="padding:8px; border-bottom:1px solid #ccc;">Year</th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2025/">2025</a></td>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2024/">2024</a></td>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2023/">2023</a></td>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2022/">2022</a></td>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2021/">2021</a></td>
+    </tr>
+    <tr>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2020/">2020</a></td>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2019/">2019</a></td>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2018/">2018</a></td>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2017/">2017</a></td>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2016/">2016</a></td>
+    </tr>
+    <tr>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2015/">2015</a></td>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-spirit-year-2014/">2014</a></td>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-1970/">1970</a></td>
+      <td><a href="/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-1969/">1969</a></td>
+      <td>&nbsp;</td>
+    </tr>
+  </tbody>
+</table>
+
  
