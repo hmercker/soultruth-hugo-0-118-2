@@ -1,14 +1,13 @@
 [build]
   publish = "public"
-  command = "hugo --gc --minify"
+  command = "HUGO_VERSION=0.118.2 HUGO_EXTENDED=true hugo --gc --minify"
 
 [build.environment]
   HUGO_VERSION = "0.118.2"
   HUGO_EXTENDED = "true"
   HUGO_ENV = "production"
   TZ = "UTC"
-  NETLIFY_IMAGE  = "ubuntu-24.04"
-  HUGO_ENABLEGITINFO = "true"
+
 
 [context.production.environment]
   HUGO_VERSION = "0.118.2"
