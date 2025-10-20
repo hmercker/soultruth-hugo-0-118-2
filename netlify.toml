@@ -22,14 +22,20 @@
 [context.branch-deploy.environment]
   HUGO_VERSION = "0.118.2"
 
-[functions]
-# default build settings
-node_bundler = "esbuild"
+[build]
+  publish = "public"
+  command = "hugo"
 
-# 👇 tell Netlify to use Deno for this function
-[[functions]]
-path = "netlify/functions/counter.js"
-runtime = "deno"
-deno_import_map = "import_map.json"
+# Optional: keep node_bundler line if you have other Node functions
+[functions]
+  node_bundler = "esbuild"
+
+# 👇 Deno/Edge runtime for your counter
+[[edge_functions]]
+function = "counter"
+path = "/.netlify/functions/counter"
+
+[[kv_namespaces]]
+binding = "KV"
 
 
