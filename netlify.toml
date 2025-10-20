@@ -1,13 +1,10 @@
 [build]
   publish = "public"
-  command = "HUGO_VERSION=0.118.2 HUGO_EXTENDED=true hugo --gc --minify"
+  command = "npx hugo-extended@0.118.2 --gc --minify"
 
 [build.environment]
-  HUGO_VERSION = "0.118.2"
-  HUGO_EXTENDED = "true"
   HUGO_ENV = "production"
   TZ = "UTC"
-
 
 [context.production.environment]
   HUGO_VERSION = "0.118.2"
