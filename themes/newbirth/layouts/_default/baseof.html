@@ -10,7 +10,7 @@
   <title>{{ block "title" . }}{{ .Title }}{{ end }}</title>
   <meta name="viewport" content="width=device-width, initial-scale=1">
   <link rel="icon" href="/favicon.ico">
-
+  
 {{/* ---------- Styles: Hugo Pipes SCSS ---------- */}}
 {{ $options := dict "targetPath" "css/style.css" "outputStyle" "compressed" }}
 {{ $styles := resources.Get "scss/newbirth.scss" | toCSS $options }}
@@ -22,6 +22,7 @@
   <link rel="stylesheet" href="{{ $styles.RelPermalink }}" integrity="{{ $styles.Data.Integrity }}">
 {{ end }}
 {{/* ---------- End Styles ---------- */}}
+
 
   {{ block "header_css" . }}{{ end }}
   {{ block "meta_tags" . }}{{ end }}
