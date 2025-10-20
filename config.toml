@@ -39,7 +39,5 @@ delimiter = ""
     meta_og_description = ""
     meta_og_site_name = "Soul Truth"
 
-[markup]
-  [markup.goldmark]
-    [markup.goldmark.renderer]
-      unsafe = true
+[markup.goldmark.renderer]
+unsafe = true

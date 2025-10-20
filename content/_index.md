@@ -35,5 +35,3 @@ Take this link for a report of <A HREF="https://search.freefind.com/find.html?id
 <div style="text-align:center; margin:20px 0;">
     <script type="text/javascript" src="https://counter.websiteout.com/js/5/0/0/0"></script>
 </div>
-
-counter for visitors
