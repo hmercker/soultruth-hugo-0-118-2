@@ -33,6 +33,23 @@ body, html {
 * {
     font-family: inherit !important;  /* Ensure all elements inherit PT Serif */
 }
+/* ----- Page background: tile the grain texture ----- */
+html, body {
+  height: 100%;
+  margin: 0;
+  padding: 0;
+}
+
+/* Force a tiled background image (do not scale) */
+body {
+  background-image: url("/images/bg.jpg") !important;
+  background-repeat: repeat !important;        /* tile both horizontally & vertically */
+  background-position: top center !important;  /* alignment */
+  background-size: auto !important;            /* IMPORTANT: prevents scaling/stretching */
+  background-attachment: scroll !important;
+  background-color: #f0f0f0 !important;        /* fallback background color */
+  font-family: 'PT Serif', serif;
+}
 
 /* ----- Apply font to the navigation menu ----- */
 #nav-primary {
@@ -62,7 +79,6 @@ button, input[type="submit"], .button {
     font-size: inherit !important;              /* Ensure font size matches body text */
 }
 
-
 /* 2. LAYOUT
 -----------------------------------------------------------------------------------------------
 ===============================================================================================*/
@@ -75,7 +91,7 @@ button, input[type="submit"], .button {
     position: relative;
     height: 37px;
     box-shadow: rgba(0, 0, 0, .15) 0 0 10px;
-    background: url(../images/bg-content.jpg) 0 0 repeat;
+    background: url(/images/bg-content.jpg) 0 0 repeat;
 }
 
 /* Bookmarks */
@@ -86,7 +102,7 @@ button, input[type="submit"], .button {
     padding-left: 40px;
     height: 67px;
     line-height: 24px;
-    background: url(../images/ico-bookmark.png) 0 0 no-repeat;
+    background: url(/images/ico-bookmark.png) 0 0 no-repeat;
 }
 
 #bookmarks a {
@@ -193,6 +209,25 @@ body:not(.home) #banner img {
   display: block;
 }
 
+/* --- Header and Banner Vertical Alignment --- */
+#header {
+  padding-top: 0;
+  padding-bottom: 0;
+  margin-bottom: 16px;   /* creates consistent gap between header and banner */
+}
+
+#banner {
+  margin-top: 0;
+  padding-top: 0;
+  padding-bottom: 0;
+}
+
+@media (max-width: 767px) {
+  #header {
+    margin-bottom: 15px;  /* tighter space on mobile like the original site */
+  }
+}
+
 /* ----- Apply Cinzel font to h1 headings ----- */
 h1:first-of-type {
     font-family: "Cinzel", serif !important; /* Apply Cinzel to the first h1 */
@@ -226,7 +261,7 @@ article {
     /* 700 (originally 700) / 940 */
     padding: 1px 0;
     box-shadow: rgba(0, 0, 0, .15) 0 0 10px;
-    background: url(../images/bg-content.jpg) 0 0 repeat;
+    background: url(/images/bg-content.jpg) 0 0 repeat;
     z-index: 2;
 }
 
@@ -377,8 +412,8 @@ article li {
     -ms-transform: scale(1.2);
 }
 
-#nav-primary ul li.active a,
-#nav-primary ul li a:hover {}
+/* #nav-primary ul li.active a,
+#nav-primary ul li a:hover {} */
 
 #nav-primary .dropdown {
     position: absolute;
@@ -393,7 +428,7 @@ article li {
     display: block;
 }
 
-#nav-primary .dropdown ul {}
+/* #nav-primary .dropdown ul {} */
 
 #nav-primary .dropdown ul li {
     margin-bottom: -5px;
