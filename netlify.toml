@@ -21,12 +21,3 @@
 
 [context.branch-deploy.environment]
   HUGO_VERSION = "0.118.2"
-
-[[edge_functions]]
-  function = "counter"
-  path = "/.netlify/functions/counter"
-
-[[kv_namespaces]]
-  binding = "KV"
-
-

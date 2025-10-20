@@ -31,14 +31,3 @@ Take this link for a report of <A HREF="https://search.freefind.com/find.html?id
 ### [Subscribe here](http://eepurl.com/gaGfPD)
 
 ...to our mailing list.
-
-<div style="text-align:center; margin:20px 0;">
-  Visitors: <span id="vc">…</span>
-  <script>
-    fetch('/.netlify/functions/counter')
-      .then(r => r.json())
-      .then(j => document.getElementById('vc').textContent = j.count)
-      .catch(()=>document.getElementById('vc').textContent='N/A');
-  </script>
-</div>
-
