@@ -13,7 +13,7 @@
 
 {{/* ---------- Styles: Hugo Pipes SCSS ---------- */}}
 {{ $options := dict "targetPath" "css/style.css" "outputStyle" "compressed" }}
-{{ $styles := resources.Get "themes/newbirth/assets/scss/newbirth.scss" | toCSS $options }}
+{{ $styles := resources.Get "scss/newbirth.scss" | toCSS $options }}
 
 {{ if .Site.IsServer }}
   <link rel="stylesheet" href="{{ $styles.RelPermalink }}">
@@ -22,7 +22,6 @@
   <link rel="stylesheet" href="{{ $styles.RelPermalink }}" integrity="{{ $styles.Data.Integrity }}">
 {{ end }}
 {{/* ---------- End Styles ---------- */}}
-
 
   {{ block "header_css" . }}{{ end }}
   {{ block "meta_tags" . }}{{ end }}
