@@ -32,7 +32,6 @@ Take this link for a report of <A HREF="https://search.freefind.com/find.html?id
 
 ...to our mailing list.
 
-<!-- Visitor Counter -->
-<div style="text-align: center; margin-top: 20px; margin-bottom: 10px;">
-  <script async type="text/javascript" src="https://counter.websiteout.net/js/5/6/0000/1"></script>
+<div style="text-align:center; margin-top:20px; margin-bottom:10px;">
+  <script type="text/javascript" src="https://counter.websiteout.com/js/5/8/2950/0"></script>
 </div>
