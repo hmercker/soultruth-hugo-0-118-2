@@ -129,7 +129,10 @@ button, input[type="submit"], .button {
     border: none;
     cursor: pointer;
     background: url(../images/ico-search.png) 0 0 no-repeat;
+    text-indent: -9999px;   /* hides text */
+    overflow: hidden;       /* ensures hidden text doesn’t break layout */
 }
+
 
 #search label {
     float: right;

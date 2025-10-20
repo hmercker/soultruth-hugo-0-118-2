@@ -15,4 +15,4 @@ We have now received a reasonable number of communications from Space Brothers a
 |---
 [Messages received from Orion](/various/space-people/orion-messages/)
 [Messages received from other Outer Space Friends](/various/space-people/other-outer-space-friends/)
-
+ |
