@@ -1,7 +1,6 @@
 <!DOCTYPE html>
 <html lang="en">
 <head>
-  
   <link href="https://fonts.googleapis.com/css2?family=PT+Serif:wght@400;700&display=swap" rel="stylesheet">
   <link href="https://fonts.googleapis.com/css2?family=Cinzel:wght@400;700&display=swap" rel="stylesheet">
 
@@ -11,29 +10,23 @@
   <meta name="viewport" content="width=device-width, initial-scale=1">
   <link rel="icon" href="/favicon.ico">
 
-{{/* ---------- Styles: Hugo Pipes SCSS ---------- */}}
-{{ $options := dict "targetPath" "css/style.css" "outputStyle" "compressed" }}
-{{ $styles := resources.Get "scss/newbirth.scss" | toCSS $options }}
+  {{/* ---------- Styles: Hugo Pipes SCSS ---------- */}}
+  {{ $options := dict "targetPath" "css/style.css" "outputStyle" "compressed" }}
+  {{ $styles := resources.Get "scss/newbirth.scss" | toCSS $options }}
 
-{{ if .Site.IsServer }}
-  <link rel="stylesheet" href="{{ $styles.RelPermalink }}">
-{{ else }}
-  {{ $styles = $styles | minify | fingerprint }}
-  <link rel="stylesheet" href="{{ $styles.RelPermalink }}" integrity="{{ $styles.Data.Integrity }}">
-{{ end }}
-{{/* ---------- End Styles ---------- */}}
+  {{ if .Site.IsServer }}
+    <link rel="stylesheet" href="{{ $styles.RelPermalink }}">
+  {{ else }}
+    {{ $styles = $styles | minify | fingerprint }}
+    <link rel="stylesheet" href="{{ $styles.RelPermalink }}" integrity="{{ $styles.Data.Integrity }}">
+  {{ end }}
+  {{/* ---------- End Styles ---------- */}}
 
   {{ block "header_css" . }}{{ end }}
   {{ block "meta_tags" . }}{{ end }}
   {{ template "_internal/google_analytics.html" . }}
-
-  <!-- Load other stylesheets first -->
-  <link rel="stylesheet" href="{{ .Site.BaseURL }}css/other-styles.css">
-
-  <!-- Ensure newbirth.css is loaded last to avoid being overridden -->
-  <link rel="stylesheet" href="{{ .Site.BaseURL }}css/newbirth.css">
-
 </head>
+
 
 <body class='page {{ block "body_classes" . }}{{ end }}'>
   <div class="container">
