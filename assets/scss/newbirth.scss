@@ -1026,3 +1026,12 @@ a:hover, a:focus {
   color: darkgreen;  /* Changes the link color to dark green when hovered/focused */
   text-decoration: underline;  /* Optional: adds an underline effect when hovered/focused */
 }
+/* ----- Center all table content globally ----- */
+table, th, td {
+  text-align: center;       /* Centers text horizontally */
+  vertical-align: middle;   /* Centers content vertically */
+}
+td * {
+  display: inline-block;
+  vertical-align: middle;
+}

@@ -27,7 +27,6 @@
   {{ template "_internal/google_analytics.html" . }}
 </head>
 
-
 <body class='page {{ block "body_classes" . }}{{ end }}'>
   <div class="container">
 
@@ -85,6 +84,7 @@
         <div class="wrapper content">
           {{ block "main" . }}{{ end }}
         </div>
+                    {{ partial "visitor-counter.html" . }}
       </article>
       <!-- /Article -->
 
@@ -114,6 +114,7 @@
   {{/* ---------- End JS ---------- */}}
 
   {{ block "footer_js" . }}{{ end }}
+
 </body>
 </html>
 
