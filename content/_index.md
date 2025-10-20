@@ -32,7 +32,6 @@ Take this link for a report of <A HREF="https://search.freefind.com/find.html?id
 
 ...to our mailing list.
 
-<div style="text-align:center; margin:20px 0;">
-  <img src="https://counter.websiteout.com/count/5/8/2950/0.png" alt="Visitor Counter">
-</div>
-
+<p style="text-align: center;">
+<script type="text/javascript" src="//counter.websiteout.net/js/5/6/0/1"></script>
+</p>
