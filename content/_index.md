@@ -33,8 +33,12 @@ Take this link for a report of <A HREF="https://search.freefind.com/find.html?id
 ...to our mailing list.
 
 <div style="text-align:center; margin:20px 0;">
-    <script type="text/javascript" src="https://counter.websiteout.com/js/5/0/0/0"></script>
+  Visitors: <span id="vc">...</span>
+  <script>
+    fetch('/.netlify/functions/counter')
+      .then(r => r.json())
+      .then(j => document.getElementById('vc').textContent = j.count)
+      .catch(()=>document.getElementById('vc').textContent='N/A');
+  </script>
 </div>
-<script>
-  console.log("✅ Test script reached the browser");
-</script>
+
