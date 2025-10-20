@@ -64,34 +64,31 @@
 {{ end }}
 <!-- /Banner -->
 
-
-
-    <!-- Content -->
-    <div id="content" class="row-fluid">
+  <!-- Content -->
+  <div id="content" class="row-fluid">
       {{ if .IsHome }}
       {{ else }}
-      {{ partial "toolbox.html" . }}
-      {{ end }}
+     {{ partial "toolbox.html" . }}
+     {{ end }}
 
       <!-- Primary navigation -->
       <nav id="nav-primary">
-        {{ partial "docs-menu.html" . }}
+       {{ partial "docs-menu.html" . }}
       </nav>
-      <!-- /Primary navigation -->
+     <!-- /Primary navigation -->
 
-      <!-- Article -->
+     <!-- Article -->
       <article>
-        <div class="wrapper content">
-          {{ block "main" . }}{{ end }}
+       <div class="wrapper content">
+         {{ block "main" . }}{{ end }}
         </div>
 
-      {{ partial "visitor-counter.html" . }}
       </article>
       <!-- /Article -->
 
       <div class="clearfix"></div>
     </div>
-    <!-- /Content -->
+  <!-- /Content -->
   </div>
 
   <!-- Footer -->
