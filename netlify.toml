@@ -1,11 +1,17 @@
 [build]
   publish = "public"
-  command = "hugo"
+  command = "hugo --gc --minify"
 
 [build.environment]
   HUGO_VERSION = "0.118.2"
+  HUGO_EXTENDED = "true"
   HUGO_ENV = "production"
   TZ = "UTC"
+  NETLIFY_IMAGE  = "ubuntu-24.04"
+
+[context.production.environment]
+  HUGO_VERSION = "0.118.2"
+  HUGO_EXTENDED = "true"
 
 [context.deploy-preview]
   command = "hugo -b $DEPLOY_URL"
@@ -17,7 +23,4 @@
   command = "hugo -b $DEPLOY_PRIME_URL"
 
 [context.branch-deploy.environment]
-  HUGO_VERSION = "0.118.2"
-
-[context.production.environment]
   HUGO_VERSION = "0.118.2"
