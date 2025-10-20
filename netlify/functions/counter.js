@@ -1,19 +1,21 @@
 // netlify/functions/counter.js
-import fs from "fs";
-const path = "./counter.json";
+export default async () => {
+  const kv = await Deno.openKv();          // open Netlify's persistent KV store
+  const KEY = ["visitor_count"];           // a unique key for this counter
 
-export async function handler() {
-  let data = { count: 0 };
-  try {
-    if (fs.existsSync(path)) data = JSON.parse(fs.readFileSync(path));
-  } catch (e) {}
+  // read current value (or default to 2950)
+  let { value } = await kv.get(KEY);
+  if (typeof value !== "number") value = 2950;
 
-  data.count++;
-  fs.writeFileSync(path, JSON.stringify(data));
+  // increment and write back
+  value++;
+  await kv.set(KEY, value);
 
-  return {
-    statusCode: 200,
-    headers: { "Content-Type": "application/json" },
-    body: JSON.stringify(data),
-  };
-}
+  return new Response(
+    JSON.stringify({ count: value }),
+    {
+      headers: { "Content-Type": "application/json" },
+      status: 200,
+    },
+  );
+};

@@ -33,7 +33,7 @@ Take this link for a report of <A HREF="https://search.freefind.com/find.html?id
 ...to our mailing list.
 
 <div style="text-align:center; margin:20px 0;">
-  Visitors: <span id="vc">...</span>
+  Visitors: <span id="vc">…</span>
   <script>
     fetch('/.netlify/functions/counter')
       .then(r => r.json())
