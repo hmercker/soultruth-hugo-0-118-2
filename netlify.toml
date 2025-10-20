@@ -22,20 +22,11 @@
 [context.branch-deploy.environment]
   HUGO_VERSION = "0.118.2"
 
-[build]
-  publish = "public"
-  command = "hugo"
-
-# Optional: keep node_bundler line if you have other Node functions
-[functions]
-  node_bundler = "esbuild"
-
-# 👇 Deno/Edge runtime for your counter
 [[edge_functions]]
-function = "counter"
-path = "/.netlify/functions/counter"
+  function = "counter"
+  path = "/.netlify/functions/counter"
 
 [[kv_namespaces]]
-binding = "KV"
+  binding = "KV"
 
 
