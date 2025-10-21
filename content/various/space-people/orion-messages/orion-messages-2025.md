@@ -61,3 +61,5 @@ Orion | [Are You Ready to Serve? The Time to Choose is Now](/contemporary-messag
 Orion | [Seek Guidance from God First and Foremost](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-8-16-1-af-orion/) | August 16<sup>th</sup>, 2025
 Orion | [God’s Love is the Greatest Gift in the Universe](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-8-23-1-af-orion/) | August 23<sup>rd</sup>, 2025
 Orion | [Ascend Beyond the Consciousness of the Material Mind](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-8-26-1-af-orion/) | August 26<sup>th</sup>, 2025
+
+*Go to [top of table](/various/space-people/orion-messages/orion-messages-2025/), or to [Orion's messages by year](/various/space-people/orion-messages/#a).*
