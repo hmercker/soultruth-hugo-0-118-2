@@ -1043,18 +1043,30 @@ td * {
 
 /* Container for the visitor counter */
 .counter-container {
-    text-align: center;  /* Center-align the content inside the container */
-    display: block;      /* Ensure it's a block-level element */
-    margin: 0 auto;      /* Center the container horizontally */
+    text-align: center;    /* Center-align the content inside the container */
+    display: block;        /* Make it a block-level element */
+    margin: 0 auto;        /* Center the container horizontally */
     position: relative;
-    bottom: 10px;        /* Adjust position as needed */
+    bottom: 10px;          /* Adjust position as needed */
+    background-color: transparent;  /* Make the counter background transparent */
 }
 
 /* Style for the "free hits" text */
 .counter-text {
     font-size: 9px;
-    color: green;        /* Customize color here */
-    text-align: center;  /* Center-align the text */
-    display: block;      /* Ensure the text is centered */
-    margin-top: 5px;     /* Optional: space between the counter and text */
+    color: green;          /* Customize text color */
+    text-align: center;    /* Center-align the text */
+    display: block;        /* Ensure the text is treated as a block-level element */
+    margin-top: 5px;       /* Optional: space between the counter and text */
+    background-color: transparent;  /* Make the text background transparent */
 }
+
+/* Optional: Apply the page's background color to the counter */
+body {
+    background-color: #f0f0f0;  /* Example: light gray background for the page */
+}
+
+.counter-container {
+    background-color: #f0f0f0; /* Same background color as the page */
+}
+
