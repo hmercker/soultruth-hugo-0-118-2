@@ -1039,12 +1039,16 @@ td * {
   vertical-align: middle;
 }
 
- /* #visitor-counter {
-  text-align: center;
-  margin: 1.5rem auto;
-  padding: 0.75rem 1rem;
-  border: 1px solid #ddd;
-  border-radius: 6px;
-  background-color: #faf9f7;
-  font-family: 'PT Serif', serif;
-} */
+#visitor-counter-wrapper {
+  position: fixed; /* This fixes it to the bottom of the screen */
+  bottom: 0;       /* Aligns it at the bottom of the screen */
+  left: 0;         /* Ensures it's aligned to the left */
+  width: 100%;     /* Ensures it spans the full width of the screen */
+  text-align: center; /* Centers the content */
+  background-color: rgba(0, 0, 0, 0.5); /* Optional: gives a background color */
+  color: white;     /* Optional: changes text color */
+  padding: 10px;    /* Adds space around the counter */
+
+}
+
+
