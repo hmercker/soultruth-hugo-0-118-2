@@ -1,8 +1,3 @@
-<!-- HTTPS-safe visitor counter using hits.sh -->
-<div id="visitor-counter" style="text-align:center; margin-top:20px;">
-  <img
-    src="https://hits.sh/grand-mermaid-cad0ff.netlify.app.svg?style=flat-square"
-    alt="Visitor Count"
-    loading="lazy"
-  >
-</div>
+{{- "<div id='visitor-counter' style='text-align:center; margin-top:20px;'>" | safeHTML }}
+{{- "<img src='https://hits.sh/grand-mermaid-cad0ff.netlify.app.svg?style=flat-square' alt='Visitor Count' loading='lazy'>" | safeHTML }}
+{{- "</div>" | safeHTML }}
