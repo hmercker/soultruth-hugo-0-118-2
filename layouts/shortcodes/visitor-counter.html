@@ -1,3 +1,11 @@
-{{- "<div id='visitor-counter'>" | safeHTML }}
-{{- "<script type='text/javascript' src='https://counter.websiteout.com/js/5/0/2951/0'></script>" | safeHTML }}
-{{- "</div>" | safeHTML }}
+<!-- Reliable dynamic HTTPS WebsiteOut counter -->
+<div id="visitor-counter" style="text-align:center; margin-top:20px;">
+  <script type="text/javascript">
+    document.addEventListener("DOMContentLoaded", function() {
+      var counter = document.createElement("script");
+      counter.type = "text/javascript";
+      counter.src = "https://counter.websiteout.com/js/5/0/2951/0";
+      document.getElementById("visitor-counter").appendChild(counter);
+    });
+  </script>
+</div>
