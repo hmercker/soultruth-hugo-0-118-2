@@ -31,3 +31,5 @@ Take this link for a report of <A HREF="https://search.freefind.com/find.html?id
 ### [Subscribe here](http://eepurl.com/gaGfPD)
 
 ...to our mailing list.
+
+{{< visitor-counter >}}
