@@ -1,13 +1,13 @@
-{{- $html := `
-<div id="visitor-counter" style="text-align:center; margin:1.5rem auto; font-family:'PT Serif', serif;">
-  <script>
-    document.addEventListener('DOMContentLoaded', function() {
-      var s = document.createElement('script');
-      s.src = 'https://counter.websiteout.com/js/5/0/2951/0';
-      s.async = true;
-      document.getElementById('visitor-counter').appendChild(s);
-    });
-  </script>
-</div>
-` -}}
-{{- $html | safeHTML -}}
+{{- "<div id='visitor-counter' style='text-align:center; margin:1.5rem auto; font-family:PT Serif, serif;'>" | safeHTML }}
+{{- "<script type='text/javascript' src='https://counter.websiteout.com/js/5/0/2951/0'></script>" | safeHTML }}
+{{- "</div>" | safeHTML }}
+
+<!-- this worked - without styles added in newbirth.scss-->
+<!-- {{- "<div id='visitor-counter' style='text-align:center; margin:1.5rem auto; font-family:PT Serif, serif;'>" | safeHTML }}
+{{- "<img src='https://hits.sh/grand-mermaid-cad0ff.netlify.app.svg?style=flat-square' alt='Visitor Count' loading='lazy'>" | safeHTML }}
+{{- "</div>" | safeHTML }} -->
+
+<!-- this worked - with styles added in newbirth.scss-->
+<!-- {{- "<div id='visitor-counter' style='text-align:center; margin-top:20px;'>" | safeHTML }}
+{{- "<img src='https://hits.sh/grand-mermaid-cad0ff.netlify.app.svg?style=flat-square' alt='Visitor Count' loading='lazy'>" | safeHTML }}
+{{- "</div>" | safeHTML }} -->

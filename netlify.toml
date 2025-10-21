@@ -21,8 +21,8 @@
 
 [context.branch-deploy.environment]
   HUGO_VERSION = "0.118.2"
-  
+
 [[headers]]
 for = "/*"
 [headers.values]
-  Content-Security-Policy = "default-src 'self' https: 'unsafe-inline' 'unsafe-eval' data:"
+  Content-Security-Policy = "default-src 'self' https: data: 'unsafe-inline' 'unsafe-eval'; img-src * data: https:;"
