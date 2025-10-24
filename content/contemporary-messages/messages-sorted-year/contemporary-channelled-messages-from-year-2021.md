@@ -85,7 +85,7 @@ Jesus | [Question and Answer Session #2: The Soul](/contemporary-messages/messag
 Care Darby Walsh | [Choose Wisely, Choose Love](/contemporary-messages/messages-sorted-year/messages-2021/choose-wisely-choose-love-jw-26-feb-2021/) | February 26<sup>th</sup>, 2021
 Matthew | [What You Are Creating Together is Nourishing This Great Oak](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-2-27-1-af-matthew/) | February 27<sup>th</sup>, 2021
 James Padgett | [A Little Drama Goes A Long Way](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-2-28-1-jw-james-padgett/) | February 28<sup>th</sup>, 2021
-Andrew | [We are all needed as part of God's plan](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-2-28-2-af-andrew/) | February 28<sup>th</sup>, 2021
+Andrew | [We are all needed as part of God’s plan](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-2-28-2-af-andrew/) | February 28<sup>th</sup>, 2021
 Augustine | [Discerning Guidance](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-3-2-1-af-augustine/) | March 2<sup>nd</sup>, 2021
 James | [Know Your Purpose](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-3-2-2-af-james/) | March 2<sup>nd</sup>, 2021
 Michael Collier | [Pray to be Used as Channels of Love and Light](/contemporary-messages/messages-sorted-year/messages-2021/pray-to-be-used-as-channels-af-3-mar-2021/) | March 3<sup>rd</sup>, 2021
@@ -123,7 +123,7 @@ Jesus | [Jesus will Visit the Earth Plane at Easter](/contemporary-messages/mess
 Seretta Kem | [God's River of Love](/contemporary-messages/messages-sorted-year/messages-2021/gods-river-of-love-af-30-mar-2021/) | March 30<sup>th</sup>, 2021
 Mary | [We Are With You Always on This Journey](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-3-31-1-af-mary/) | March 31<sup>st</sup>, 2021
 Andrew | [Praying for the World](/contemporary-messages/messages-sorted-year/messages-2021/praying-for-the-world-af-2-apr-2021/) | April 2<sup>nd</sup>, 2021
-Professor Salyards | [Be Channels of God's Love Always](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-4-3-1-af-professor-salyards/) | April 3<sup>rd</sup>, 2021
+Professor Salyards | [Be Channels of God’s Love Always](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-4-3-1-af-professor-salyards/) | April 3<sup>rd</sup>, 2021
 Jesus | [Easter Sunday - This Flame of Love will Cleanse all Worlds](/contemporary-messages/messages-sorted-year/messages-2021/this-flame-of-love-will-cleanse-all-worlds-af-4-apr-2021/) | April 4<sup>th</sup>, 2021
 Barbara Davies | [2020 D.L.S.F. Annual General Meeting](/contemporary-messages/messages-sorted-year/messages-2021/dlsf-annual-general-meeting-af-6-apr-2021/) | April 6<sup>th</sup>, 2021
 Mary | [Dedicate Yourself to God, Beloveds](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-4-6-2-af-mary/) | April 6<sup>th</sup>, 2021
@@ -148,14 +148,14 @@ Jesus | [The Power of Love to Heal the Human Condition - Vol 2 msg 4](/contempor
 Francis of Assisi | [I have Your Back](/contemporary-messages/messages-sorted-year/messages-2021/I-have-your-back-jw-20-apr-2021/) | April 20<sup>th</sup>, 2021
 Eileen Caddy | [Go Within and allow God to Open your Soul](/contemporary-messages/messages-sorted-year/messages-2021/go-within-and-allow-god-to-open-your-soul-jw-20-apr-2021/) | April 20<sup>th</sup>, 2021
 Andrew | [The Blessings of God](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-4-20-4-af-andrew/) | April 20<sup>th</sup>, 2021
-Jesus | [The power of God's love](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-4-23-1-af-jesus/) | April 23<sup>rd</sup>, 2021
+Jesus | [The power of God’s love](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-4-23-1-af-jesus/) | April 23<sup>rd</sup>, 2021
 Jesus | [Focus On Your Awareness](/contemporary-messages/messages-sorted-year/messages-2021/focus-on-your-awareness-af-25-apr-2021/) | April 25<sup>th</sup>, 2021
 Luke | [Love of God opens the Heart and Transforms the Soul](/contemporary-messages/messages-sorted-year/messages-2021/the-love-of-god-opens-the-heart-and-transforms-the-soul-jw-26-apr-2021/) | April 26<sup>th</sup>, 2021
 Jesus | [The Power of the Soul to Bring One to God - Vol 2 msg 5](/contemporary-messages/messages-sorted-year/messages-2021/the-power-of-the-soul-af-27-apr-2021/) | April 27<sup>th</sup>, 2021
 Matthew | [Blessing](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-4-27-2-af-matthew/) | April 27<sup>th</sup>, 2021
 Keea-atta Kem |[Our Prayers are Important for God's Service](/contemporary-messages/messages-sorted-year/messages-2021/our-prayers-are-important-af-28-apr-2021/) | April 28<sup>th</sup>, 2021
 James Padgett | [A Lightbulb in a Dark Room](/contemporary-messages/messages-sorted-year/messages-2021/a-lightbulb-in-a-dark-room-jw-29-apr-2021/) | April 29<sup>th</sup>, 2021
-Professor Salyards | [Recognize that God's Hand is Truly within This Work](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-5-1-1-af-professor-salyards/) | May 1<sup>st</sup>, 2021
+Professor Salyards | [Recognize that God’s Hand is Truly within This Work](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-5-1-1-af-professor-salyards/) | May 1<sup>st</sup>, 2021
 Jesus & Augustine | [Special Blessings for Our Families, Loved Ones, All We are Connected To](/contemporary-messages/messages-sorted-year/messages-2021/special-blessings-for-all-af-2-may-2021/) | May 2<sup>nd</sup>, 2021
 Mark | [The Truth of Divine Love](/contemporary-messages/messages-sorted-year/messages-2021/the-truth-of-divine-love-af-2-may-2021/) | May 2<sup>nd</sup>, 2021
 Yogananda | [This Love will Carry you to the Fountainhead of Grace](/contemporary-messages/messages-sorted-year/messages-2021/this-love-will-carry-you-jw-3-may-2012/) | May 3<sup>rd</sup>, 2021
@@ -216,7 +216,7 @@ Augustine | [The Power of Prayer to Invoke Light in the World](/contemporary-mes
 Seretta Kem | [Guidance and Instruction for Direct Voice](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-6-12-1-af-seretta-kem/) | June 12<sup>th</sup>, 2021
 Jesus, Moses and Elijah | [Blessings of Light to the World](/contemporary-messages/messages-sorted-year/messages-2021/blessings-of-light-to-the-world-af-13-jun-2021/) | June 13<sup>th</sup>, 2021
 George Gurdjieff | [Continue to Bring this Light into the World](/contemporary-messages/messages-sorted-year/messages-2021/continue-to-bring-this-light-into-the-world-jw-14-jun-2021/) | June 14<sup>th</sup>, 2021
-Seretta Kem | [Earth Conditions and Each Individual's Free Will will Determine Who will Attend Retreat](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-6-15-1-af-seretta-kem/) | June 15<sup>th</sup>, 2021
+Seretta Kem | [Earth Conditions and Each Individual’s Free Will will Determine Who will Attend Retreat](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-6-15-1-af-seretta-kem/) | June 15<sup>th</sup>, 2021
 Matthew | [Continue to Seek Soul Consciousness](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-6-15-2-af-matthew/) | June 15<sup>th</sup>, 2021
 Jesus | [The Description of the Three Minds – Vol 2 msg 12](/contemporary-messages/messages-sorted-year/messages-2021/the-description-of-the-three-minds-af-16-jun-2021/) | June 16<sup>th</sup>, 2021
 James | [Your Journey to the Celestial Heavens is Shortened by Prayer for Divine Love](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-6-18-1-af-james/) | June 18<sup>th</sup>, 2021
@@ -248,8 +248,8 @@ Confucius | [May you feel this blessing infuse your soul](/contemporary-messages
 Robert James Lees | [Do not Overthink my Books](/contemporary-messages/messages-sorted-year/messages-2021/do-not-overthink-my-books-jw-9-july-2021/) | July 9<sup>th</sup>, 2021
 Seretta Kem | [Within the Recesses of Your Soul is the Capacity to be in Unity Together](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-7-10-1-af-seretta-kem/) | July 10<sup>th</sup>, 2021
 Aaron | [The Greatest Impediment to Light in Your World is Ignorance and Apathy](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-7-11-1-af-aaron/) | July 11<sup>th</sup>, 2021
-Francis of Assisi | [Go in Peace, Be not Troubled](/contemporary-messages/messages-sorted-year/messages-2021/go-in-peace-be-not-troubled-jw-13-jul-2021/) | July 13<sup>th</sup>, 2021
 Jesus | [Your Innocence Resides within Your Soul](/contemporary-messages/messages-sorted-year/messages-2021/your-innocence-resides-within-your-soul-af-13-jul-2021/) | July 13<sup>th</sup>, 2021
+Francis of Assisi | [Go in Peace, Be not Troubled](/contemporary-messages/messages-sorted-year/messages-2021/go-in-peace-be-not-troubled-jw-13-jul-2021/) | July 13<sup>th</sup>, 2021
 James | [The Only Way to Light and Protection is to Align with God](/contemporary-messages/messages-sorted-year/messages-2021/the-only-way-to-light-and-protection-is-to-align-with-god-af-16-jul-2021/) | July 16<sup>th</sup>, 2021
 Professor Salyards | [God’s Gift is to Open that Door for You](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-7-17-1-af-professor-salyards/) | July 17<sup>th</sup>, 2021
 Seretta Kem | [You Will Know When to Step Forward](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-7-17-2-af-seretta-kem/) | July 17<sup>th</sup>, 2021
@@ -263,16 +263,16 @@ Luke | [Seek ye First the Kingdom, and all Else will be Given to You](/contempor
 Matthew | [The power of prayer is the great lever that opens the door to God](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-7-27-2-af-matthew/) | July 27<sup>th</sup>, 2021
 Jesus | [A Soul Changed with the Blessing of Divine Love will Change the World - Vol 2 msg 14](/contemporary-messages/messages-sorted-year/messages-2021/a-soul-changed-with-the-blessing-of-divine-love-will-chnage-the-world-af-29-jul-2021/) | July 29<sup>th</sup>, 2021
 Eileen Caddy | [Calls Us All to Serve God](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-7-30-1-af-eileen-caddy/) | July 30<sup>th</sup>, 2021
-Confucius | [Together we are a Family of God's Creation](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-7-30-2-af-confucius/) | July 30<sup>th</sup>, 2021
+Confucius | [Together we are a Family of God’s Creation](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-7-30-2-af-confucius/) | July 30<sup>th</sup>, 2021
 Seretta Kem | [Pleased with Our Progress](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-7-31-1-af-seretta-kem/) | July 31<sup>st</sup>, 2021
 Jesus | [You Have Chosen to be Lights in the World](/contemporary-messages/messages-sorted-year/messages-2021/you-have-chosen-to-be-lights-in-the-world-af-1-aug-2021/) | August 1<sup>st</sup>, 2021
 Yogananda | [Your Heart will Lead You to God](/contemporary-messages/messages-sorted-year/messages-2021/your-heart-will-lead-you-to-god-jw-2-aug-2021/) | August 2<sup>nd</sup>, 2021
-Augustine | [Encouragement to Tell Friends and Family about God's Love](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-8-3-1-af-augustine/) | August 3<sup>rd</sup>, 2021
+Augustine | [Encouragement to Tell Friends and Family about God’s Love](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-8-3-1-af-augustine/) | August 3<sup>rd</sup>, 2021
 Robert James Lees | [My Books are Truly Sanctioned](/contemporary-messages/messages-sorted-year/messages-2021/my-books-are-truly-sanctioned-jw-5-aug-2021/) | August 5<sup>th</sup>, 2021
 Jesus | [Lesson 15: Effecting Change in the World](/contemporary-messages/messages-sorted-year/messages-2021/effecting-change-in-the-world-af-6-aug-2021/) | August 6<sup>th</sup>, 2021
 Keea-atta Kem | [Lattice of Light Brings Light to the World](/contemporary-messages/messages-sorted-year/messages-2021/lattice-of-light-brings-light-to-the-world-af-6-aug-2021/) | August 6<sup>th</sup>, 2021
-John the Beloved | [Dwell in Grace](/contemporary-messages/messages-sorted-year/messages-2021/dwell-in-grace-jw-7-aug-2021/) | August 7<sup>th</sup>, 2021
 Elijah | [You Must Truly Know Your Own Soul](/contemporary-messages/messages-sorted-year/messages-2021/you-must-truly-know-your-own-soul-af-8-aug-2021/) | August 8<sup>th</sup>, 2021
+John the Beloved | [Dwell in Grace](/contemporary-messages/messages-sorted-year/messages-2021/dwell-in-grace-jw-7-aug-2021/) | August 7<sup>th</sup>, 2021
 Jesus | [Be a light in the world](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-8-8-1-af-jesus/) | August 8<sup>th</sup>, 2021
 Yogananda | [Have Courage if you Wish to create Sanctuaries](/contemporary-messages/messages-sorted-year/messages-2021/have-courage-if-you-wish-to-create-sanctuaries-jw-9-aug-2021/) | August 9<sup>th</sup>, 2021
 Faith Nyquist | [Praying for the World, Especially the World Healing Center](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-8-10-1-af-faith-nyquist/) | August 10<sup>th</sup>, 2021
@@ -299,7 +299,7 @@ Augustine | [We are Needed to Spread Light in the World](/contemporary-messages/
 Judas of Kerioth | [Our Souls Stand Naked before God](/contemporary-messages/messages-sorted-year/messages-2021/our-souls-stand-naked-before-god-jw-30-aug-2021/) | August 30<sup>th</sup>, 2021
 Mylora | [Pray for Your Loved Ones](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-8-31-1-af-mylora/) | August 31<sup>st</sup>, 2021
 Seretta Kem | [Loving Reminder for the Importance of Our Preparations](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-3-1-af-seretta-kem/) | September 3<sup>rd</sup>, 2021
-Jesus | [Blessings on Our Journeys...A Door is Opening](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-4-1-af-jesus/) | September 4<sup>th</sup>, 2021
+Jesus | [Blessings on Our Journeys…A Door is Opening](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-4-1-af-jesus/) | September 4<sup>th</sup>, 2021
 Aramaeus | [Divine Love Does Not Circumvent Your Lessons](/contemporary-messages/messages-sorted-year/messages-2021/divine-love-does-not-circumvent-your-lessons-af-5-sep-2021/) | September 5<sup>th</sup>, 2021
 Professor Salyards | [Welcome Address, Purpose and Commitment](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-6-1-af-professor-salyards/) | September 6<sup>th</sup>, 2021
 Seretta Kem | [Welcome Address and Purpose](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-6-2-af-seretta-kem/) | September 6<sup>th</sup>, 2021
@@ -314,13 +314,13 @@ Andrew | [We Are Awakening!](/contemporary-messages/messages-sorted-year/message
 Care Darby Walsh | [True Happiness](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-9-5-jw-care-darby-walsh/) | September 9<sup>th</sup>, 2021
 Faith Nyquist | [Talk on Service](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-12-1-af-faith-nyquist/) | September 12<sup>th</sup>, 2021
 Orion & Augustine | [Describes More about Their Work with This DV Project](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-13-1-af-orion-augustine/) | September 13<sup>th</sup>, 2021
-Seretta Kem | [Adjustments to the Opening of Our Spiritual Gifts](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-14-1-af-seretta-kem/) | September 14<sup>th</sup>, 2021
 John the Beloved | [Trust in God](/contemporary-messages/messages-sorted-year/messages-2021/trust-in-god-jw-13-sep-2021/) | September 13<sup>th</sup>, 2021
+Seretta Kem | [Adjustments to the Opening of Our Spiritual Gifts](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-14-1-af-seretta-kem/) | September 14<sup>th</sup>, 2021
 Mylora | [Welcomes Lorraine to DV retreat](/contemporary-messages/messages-sorted-year/messages-2021/welcomes-lorraine-to-dv-retreat-af-15-sep-2021/) | September 15<sup>th</sup>, 2021
 Orion | [Affirms Working with Seretta Kem](/contemporary-messages/messages-sorted-year/messages-2021/affirms-working-with-seretta-kem-af-16-sep-2021/) | September 16<sup>th</sup>, 2021
 Seretta Kem | [Explains Psychic/Mental Integration](/contemporary-messages/messages-sorted-year/messages-2021/explains-psychic-mental-integration-af-16-sep-2021/) | September 16<sup>th</sup>, 2021
 Mylora | [The Law of Give and Receive](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-16-4-mc-mylora/) | September 16<sup>th</sup>, 2021
-Salome | [Our Soul's Desires in Alignment with God's Will](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-17-1-af-salome/) | September 17<sup>th</sup>, 2021
+Salome | [Our Soul’s Desires in Alignment with God’s Will](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-17-1-af-salome/) | September 17<sup>th</sup>, 2021
 Seretta Kem | [The Depth of Healing ministrations is a great blessing to our efforts](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-17-2-af-seretta-kem/) | September 17<sup>th</sup>, 2021
 Jesus | [Blesses us and prays with us](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-18-1-af-jesus/) | September 18<sup>th</sup>, 2021
 Seretta Kem | [Groups world-wide are being brought together to pray](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-9-19-1-af-seretta-kem/) | September 19<sup>th</sup>, 2021
@@ -345,29 +345,29 @@ Orion & Jesus | [Orion Describes Himself and His Planet – Jesus Affirms Orion 
 Orion | [Prayer for our World](/contemporary-messages/messages-sorted-year/messages-2021/prayer-for-our-world-af-8-oct-2021/) | October 8<sup>th</sup>, 2021
 Aaron | [Reminds Us of Our Commitments and What is Required to Break Through Our Struggles](/contemporary-messages/messages-sorted-year/messages-2021/reminds-us-of-our-commitments-af-9-oct-2021/) | October 9<sup>th</sup>, 2021
 Jesus | [The Power of Prayer](/contemporary-messages/messages-sorted-year/messages-2021/the-power-of-prayer-af-10-oct-2021/) | October 10<sup>th</sup>, 2021
-Therese, The Little Flower | [Every Prayer Creates an Invisible Sanctuary](/contemporary-messages/messages-sorted-year/messages-2021/every-prayer-creates-an-invisible-sanctuary-jw-11-oct-2021/) | October 11<sup>th</sup>, 2021
 Simon Peter | [Consider What it is to be Transformed in Divine Love](/contemporary-messages/messages-sorted-year/messages-2021/consider-what-it-is-to-be-transformed-in-love-jw-11-oct-2021/) | October 11<sup>th</sup>, 2021
+Therese, The Little Flower | [Every Prayer Creates an Invisible Sanctuary](/contemporary-messages/messages-sorted-year/messages-2021/every-prayer-creates-an-invisible-sanctuary-jw-11-oct-2021/) | October 11<sup>th</sup>, 2021
 Fred Rodgers | [Working with the little children](/contemporary-messages/messages-sorted-year/messages-2021/working-with-the-little-children-jw-12-oct-2021/) | October 12<sup>th</sup>, 2021
-Faith | [Live the Joy](/contemporary-messages/messages-sorted-year/messages-2021/live-the-joy-af-12-oct-2021/) | October 12<sup>th</sup>, 2021
+Faith Nyquist | [Live the Joy](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-10-12-2-af-faith-nyquist/) | October 12<sup>th</sup>, 2021
 Jesus  | [The Law of Attraction and Soul Progression - Vol 2 msg 18](/contemporary-messages/messages-sorted-year/messages-2021/the-law-of-attraction-and-soul-progression-af-13-oct-2021/) | October 13<sup>th</sup>, 2021
 John the Beloved | [A story with no end](/contemporary-messages/messages-sorted-year/messages-2021/a-story-with-no-end-jw-14-oct-2021/) | October 14<sup>th</sup>, 2021
 Francis of Assisi | [Implores us to bring greater light into the world](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-10-17-1-af-francis-of-assisi/) | October 17<sup>th</sup>, 2021
-Yogananda | [Creating a Sanctuary](/contemporary-messages/messages-sorted-year/messages-2021/creating-a-sanctuary-jw-18-oct-2021/) | October 18<sup>th</sup>, 2021
 Judas of Kerioth | [Celestial Energy](/contemporary-messages/messages-sorted-year/messages-2021/celestial-energy-jw-18-oct-2021/) | October 18<sup>th</sup>, 2021
+Yogananda | [Creating a Sanctuary](/contemporary-messages/messages-sorted-year/messages-2021/creating-a-sanctuary-jw-18-oct-2021/) | October 18<sup>th</sup>, 2021
 Orion | [Our Stellar Friends are continuing their ministrations](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-10-19-1-af-orion/) | October 19<sup>th</sup>, 2021
 Robert James Lees | [The World would Benefit from what I Received](/contemporary-messages/messages-sorted-year/messages-2021/the-world-would-benefit-from-what-i-received-jw-19-oct-2021/) | October 19<sup>th</sup>, 2021
 Andrew | [Describes Free Will - Angels Will Not Interfere](/contemporary-messages/messages-sorted-year/messages-2021/describes-free-will-af-21-oct-2021/) | October 21<sup>st</sup>, 2021
 Arthur Conan Doyle | [There is much Work to be Done](/contemporary-messages/messages-sorted-year/messages-2021/there-is-much-work-to-be-done-jw-22-oct-2021/) | October 22<sup>nd</sup>, 2021
 Care Darby Walsh | [Encouragement to Finish Projects](/contemporary-messages/messages-sorted-year/messages-2021/encouragement-to-finish-projects-jw-22-oct-2021/) | October 22<sup>nd</sup>, 2021
-Matthew | [The world needs God's Love to survive coming changes](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-10-22-3-af-matthew/) | October 22<sup>nd</sup>, 2021
+Matthew | [The world needs God’s Love to survive coming changes](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-10-22-3-af-matthew/) | October 22<sup>nd</sup>, 2021
 Orion & Jesus | [Describes the Tenderness of their Approach to Working with Us](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-10-23-1-af-orion-jesus/) | October 23<sup>rd</sup>, 2021
 Jesus | [Angels by your side](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-10-24-1-af-jesus/) | October 24<sup>th</sup>, 2021
 Hafiz | [Be the Real Deal](/contemporary-messages/messages-sorted-year/messages-2021/be-the-real-deal-jw-25-oct-2021/) | October 25<sup>th</sup>, 2021
 Yogananda | [Responds to Conversation re: a Man Claiming to be Jesus](/contemporary-messages/messages-sorted-year/messages-2021/a-man-claiming-to-be-jesus-af-25-oct-2021/) | October 25<sup>th</sup>, 2021
 Seretta Kem | [Manifestation will not come until you are prepared](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-10-26-1-af-seretta-kem/) | October 26<sup>th</sup>, 2021
 Stephen | [You Will Find Your Refuge in God](/contemporary-messages/messages-sorted-year/messages-2021/you-will-find-your-refuge-in-god-af-26-oct-2021/) | October 26<sup>th</sup>, 2021
-Clare of Assisi | [Love of God leads to a Life of Service](/contemporary-messages/messages-sorted-year/messages-2021/love-of-god-leads-to-a-life-of-service-jw-29-oct-2021/) | October 29<sup>th</sup>, 2021
 Jesus & Orion | [Orion and Jesus ancourage efforts for future publications](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-10-27-1-af-jesus-orion/) | October 27<sup>th</sup>, 2021
+Clare of Assisi | [Love of God leads to a Life of Service](/contemporary-messages/messages-sorted-year/messages-2021/love-of-god-leads-to-a-life-of-service-jw-29-oct-2021/) | October 29<sup>th</sup>, 2021
 Mylora | [Love Ignites the Power of Spiritual Gifts](/contemporary-messages/messages-sorted-year/messages-2021/love-ignites-the-power-of-spiritual-gifts-af-29-oct-2021/) | October 29<sup>th</sup>, 2021
 Jesus | [Awaken to God’s Blessings of Love](/contemporary-messages/messages-sorted-year/messages-2021/awaken-to-gods-blessings-of-love-af-29-oct-2021/) | October 29<sup>th</sup>, 2021
 Orion | [Responds to Some Questions Submitted](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-10-30-1-af-orion/) | October 30<sup>th</sup>, 2021
@@ -381,11 +381,11 @@ Jesus | [God’s Love is the Only Way for the Salvation of Humanity - Vol 2 msg 
 John the Beloved | [God’s Love is the Answer](/contemporary-messages/messages-sorted-year/messages-2021/gods-love-is-the-answer-jw-4-nov-2021/) | November 4<sup>th</sup>, 2021
 Orion | [Orion responds to questions asked](/contemporary-messages/messages-sorted-year/messages-2021/orion-responds-to-questions-asked-af-5-nov-2021/) | November 5<sup>th</sup>, 2021
 Seretta Kem | [Continue to Build on the Foundation of God’s Love](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-11-5-2-af-seretta-kem/) | November 5<sup>th</sup>, 2021
-Mylora | [I urge you to pray for God's plan](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-11-5-3-af-mylora/) | November 5<sup>th</sup>, 2021
+Mylora | [I urge you to pray for God’s plan](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-11-5-3-af-mylora/) | November 5<sup>th</sup>, 2021
 Francis of Assisi | [God’s Friends and Family Plan](/contemporary-messages/messages-sorted-year/messages-2021/gods-friends-and-family-plan-jw-6-nov-2021/)| November 6<sup>th</sup>, 2021
 Orion | [Talk on Inter-Planetary Communication](/contemporary-messages/messages-sorted-year/messages-2021/talk-on-interplanetary-communication-af-7-nov-2021/) | November 7<sup>th</sup>, 2021
 Hazrat Iniyat Khan | [Keep a Song in Your Heart](/contemporary-messages/messages-sorted-year/messages-2021/keep-a-song-in-your-heart-jw-9-nov-2021/) | November 9<sup>th</sup>, 2021
-Orion | [Our Development Continues in God's Love](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-11-9-2-af-orion/) | November 9<sup>th</sup>, 2021
+Orion | [Our Development Continues in God’s Love](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-11-9-2-af-orion/) | November 9<sup>th</sup>, 2021
 Augustine | [Service in Love is the Highest Road](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-11-9-3-af-augustine/) | November 9<sup>th</sup>, 2021
 Robert J Lees | [One thing at a Time](/contemporary-messages/messages-sorted-year/messages-2021/one-thing-at-a-time-jw-10-nov-2021/) | November 10<sup>th</sup>, 2021
 Orion | [Sequel to Questions and Answers](/contemporary-messages/messages-sorted-year/messages-2021/sequel-to-q-and-a-af-11-nov-2021/) | November 11<sup>th</sup>, 2021
@@ -403,10 +403,10 @@ John the Beloved | [God’s Time](/contemporary-messages/messages-sorted-year/me
 Seretta Kem | [Opportunities to Serve are Coming to Us All](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-11-21-2-af-seretta-kem/) | November 21<sup>st</sup>, 2021
 Orion | [We Stand Beside You](/contemporary-messages/messages-sorted-year/messages-2021/we-stand-beside-you-af-23-nov-2021/) | November 23<sup>rd</sup>, 2021
 Jesus | [The Laws that Govern the Progression of the Soul - Vol 2 msg 21](/contemporary-messages/messages-sorted-year/messages-2021/the-laws-that-govern-the-progression-of-the-soul-af-25-nov-2021/) | November 25<sup>th</sup>, 2021
-Jesus | [I urge you to ask God to open your souls ](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-11-26-1-af-jesus/) | November 26<sup>th</sup>, 2021
+Jesus | [I urge you to ask God to open your souls](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-11-26-1-af-jesus/) | November 26<sup>th</sup>, 2021
 Orion | [More Information about the Crystal Gift](/contemporary-messages/messages-sorted-year/messages-2021/more-information-about-the-crystal-gift-af-27-nov-2021/) | November 27<sup>th</sup>, 2021
 Jesus | [God is Healing Us - God is Healing the World](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-11-30-1-af-jesus/) | November 30<sup>th</sup>, 2021
-Seretta Kem | [It is Important to Remain Unified ](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-11-30-1-af-seretta-kem/) | November 30<sup>th</sup>, 2021
+Seretta Kem | [It is Important to Remain Unified](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-11-30-1-af-seretta-kem/) | November 30<sup>th</sup>, 2021
 White Cloud | [Prays With Us for Greater Balance and Harmony](/contemporary-messages/messages-sorted-year/messages-2021/white-cloud-prays-with-us-af-3-dec-2021/) | December 3<sup>rd</sup>, 2021
 Orion | [Comments on Complimentary Gifts and Mutual Development](/contemporary-messages/messages-sorted-year/messages-2021/en-2021-12-3-2-af-orion/) | December 3<sup>rd</sup>, 2021
 Orion | [Call to Action! We are All Deeply Needed in God's Plan](/contemporary-messages/messages-sorted-year/messages-2021/call-to-action-af-4-dec-2021/) | December 4<sup>th</sup>, 2021
@@ -414,11 +414,11 @@ Orion | [Addresses Alliance of Light Panel Discussion of the Crystal Gift](/cont
 Samuel | [Changes Coming and Our Families](/contemporary-messages/messages-sorted-year/messages-2021/changes-coming-and-our-families-af-5-dec-2021/) | December 5<sup>th</sup>, 2021
 Jesus | [Comes to Uphold Us in Harmony in Our Individual Efforts](/contemporary-messages/messages-sorted-year/messages-2021/comes-to-uphold-us-af-7-dec-2021/) | December 7<sup>th</sup>, 2021
 Augustine | [Our Collaboration to bring Light to the World is Important](/contemporary-messages/messages-sorted-year/messages-2021/our-collaboration-af-10-dec-2021/) | December 10<sup>th</sup>, 2021
-Jesus | [Every Soul has a Choice](/contemporary-messages/messages-sorted-year/messages-2021/every-soul-has-a-choice-jw-14-dec-2021/) | December 14<sup>th</sup>, 2021
 Andrew | [You Walk the Road to Purity and Love](/contemporary-messages/messages-sorted-year/messages-2021/you-walk-the-road-to-purity-af-14-dec-2021/) | December 14<sup>th</sup>, 2021
+Jesus | [Every Soul has a Choice](/contemporary-messages/messages-sorted-year/messages-2021/every-soul-has-a-choice-jw-14-dec-2021/) | December 14<sup>th</sup>, 2021
 Jesus | [The Coming Darkness Before the Light - Vol 2 msg 22](/contemporary-messages/messages-sorted-year/messages-2021/the-coming-darkness-before-the-light-af-15-dec-2021/) | December 15<sup>th</sup>, 2021
-Orion | [Will Be with Us in Troubled Times Ahead](/contemporary-messages/messages-sorted-year/messages-2021/will-be-with-us-in-troubled-times-ahead-af-17-dec-2021/) | December 17<sup>th</sup>, 2021
 Jesus | [Trust in God's Plan](/contemporary-messages/messages-sorted-year/messages-2021/trust-in-gods-plan-af-17-dec-2021/) | December 17<sup>th</sup>, 2021
+Orion | [Will Be with Us in Troubled Times Ahead](/contemporary-messages/messages-sorted-year/messages-2021/will-be-with-us-in-troubled-times-ahead-af-17-dec-2021/) | December 17<sup>th</sup>, 2021
 Archangel Michael | [Declaration of the Beginning of the Transformation of Our World](/contemporary-messages/messages-sorted-year/messages-2021/declaration-of-the-beginning-of-the-transformation-of-our-world-af-17-dec-2021/) | December 17<sup>th</sup>, 2021
 Orion | [Orion Tells Us What We Might Expect Next Year](/contemporary-messages/messages-sorted-year/messages-2021/orion-tells-us-what-we-might-expect-next-year-af-18-dec-2021/) | December 18<sup>th</sup>, 2021
 Jesus | [Jesus Calls Us to be His Disciples](/contemporary-messages/messages-sorted-year/messages-2021/jesus-calls-us-to-be-his-disciples-af-19-dec-2021/) | December 19<sup>th</sup>, 2021
