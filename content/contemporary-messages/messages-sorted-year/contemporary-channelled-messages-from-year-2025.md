@@ -388,5 +388,9 @@ Judas | [May the Blessing of God’s Love be in this Place and touch every Soul 
 Care Darby Walsh | [Sanctuaries will flourish if their foundations are built on God’s Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-26-1-jw-care-darby-walsh/) | September 26<sup>th</sup>, 2025
 Eileen Caddy & Francis of Assisi | [Creating Sanctuary begins with one small Step](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-27-1-jw-eileen-caddy-francis-of-assisi/) | September 27<sup>th</sup>, 2025
 Paul | [Deep Prayer creates a Magnetism that draws every Soul to God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-28-1-jw-paul/) | September 28<sup>th</sup>, 2025
+Paul | [When the Soul is engaged with the Love of God, all Things are possible](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-6-1-jw-paul/) | October 6<sup>th</sup>, 2025
+Care Darby Walsh | [All efforts done in the Love of God are worthy](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-11-1-jw-care-darby-walsh/) | October 11<sup>th</sup>, 2025
+Charlie Chaplin | [God’s Love restores one’s Sense of Humor](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-13-1-jw-charlie-chaplin/) | October 13<sup>th</sup>, 2025
+Judas | [Navigating the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-20-1-jw-judas/) | October 20<sup>th</sup>, 2025
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2025/), or to [contemporary messages by year](/contemporary-messages/#a).*
