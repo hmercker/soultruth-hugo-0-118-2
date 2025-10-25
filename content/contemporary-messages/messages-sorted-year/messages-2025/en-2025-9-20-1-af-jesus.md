@@ -1,13 +1,13 @@
 ---
-title: "Carry the Flame of Love and Truth "
+title: "Carry the Flame of Love and Truth"
 menu_title: ""
-description: "Carry the Flame of Love and Truth "
+description: "Carry the Flame of Love and Truth"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True
 weight:
 ---
-# Carry the Flame of Love and Truth 
+# Carry the Flame of Love and Truth
 
 September 20<sup>th</sup>, 2025
 

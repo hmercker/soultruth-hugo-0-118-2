@@ -372,22 +372,35 @@ Michael Collier | [Welcomes Us to Harrow](/contemporary-messages/messages-sorted
 Estelle Roberts | [Opens Harrow Retreat: Sing Your Soulful Song of Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-5-3-af-estelle-roberts/) | September 5<sup>th</sup>, 2025
 Jesus | [We Are All Children of God and His Love is Available to All](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-6-1-af-jesus/) | September 6<sup>th</sup>, 2025
 Isaiah | [Come to Know the Truth, Power and Glory of Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-6-3-af-isaiah/) | September 6<sup>th</sup>, 2025
+Michael Collier | [Choose to be Part of a More Harmonious World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-7-1-af-michael-collier/) | September 7<sup>th</sup>, 2025
 James Padgett | [Humility is the Key](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-7-4-jw-james-padgett/) | September 7<sup>th</sup>, 2025
+Augustine | [The Angels and Those Who Have Come Before, Stand in Support of this Community](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-8-1-af-augustine/) | September 8<sup>th</sup>, 2025
 Arthur Conan Doyle | [Prayer, It’s elementary!](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-9-1-jw-arthur-conan-doyle/) | September 9<sup>th</sup>, 2025
+Copernicus | [The Truth of the Mind Will Only Bring You So Far](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-10-1-af-copernicus/) | September 10<sup>th</sup>, 2025
+Augustine | [God Intends for a Centre of Light to be Established Here](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-10-2-af-augustine/) | September 10<sup>th</sup>, 2025
 Jesus | [Opens Today’s Circle](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-11-1-af-jesus/) | September 11<sup>th</sup>, 2025
 Jesus | [A Special Dispensation of Healing](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-12-1-af-jesus/) | September 12<sup>th</sup>, 2025
 Care Darby Walsh | [Losing the Mind and being in the Heart](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-12-2-jw-care-darby-walsh/) | September 12<sup>th</sup>, 2025
+Matthew | [Those Who Truly Seek God Shall Find Him](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-12-3-af-matthew/) | September 12<sup>th</sup>, 2025
+Andrew | [The Power of Unity Can Change the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-12-4-af-andrew/) | September 12<sup>th</sup>, 2025
 Yogananda | [The Yogas of Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-13-1-jw-yogananda/) | September 13<sup>th</sup>, 2025
 Jesus | [I Come with Compassion, Upliftment, Healing and Peace](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-13-2-af-jesus/) | September 13<sup>th</sup>, 2025
+Augustine | [Plain and Direct Guidance for the Estonia Circle of Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-13-3-af-augustine/) | September 13<sup>th</sup>, 2025
 Jesus | [We Will Always Be with You](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-14-1-af-jesus/) | September 14<sup>th</sup>, 2025
+Goldie | [You Defy the Conditions of this World Through Laughter and Joy](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-14-2-af-goldie/) | September 14<sup>th</sup>, 2025
+Mary | [We Are as One in God’s Universe of Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-18-1-af-mary/) | September 18<sup>th</sup>, 2025
 Confucius | [Precious Birds of Earth, Sing Your Songs to God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-19-1-af-confucius/) | September 19<sup>th</sup>, 2025
-Jesus | [Carry the Flame of Love and Truth ](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-20-1-af-jesus/) | September 20<sup>th</sup>, 2025
+James | [God is Preparing You to be the Spokespeople for this Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-19-2-af-james/) | September 19<sup>th</sup>, 2025
+Jesus | [Carry the Flame of Love and Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-20-1-af-jesus/) | September 20<sup>th</sup>, 2025
 Yogananda & Care Darby Walsh | [May your Guidance by Celestial rather than Terrestrial](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-21-1-jw-yogananda-care-darby-walsh/) | September 21<sup>st</sup>, 2025
+Confucius | [You Have Heard the Tolling Bell](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-21-2-af-confucius/) | September 21<sup>st</sup>, 2025
 Care Darby Walsh | [Consider being busy in Prayer](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-22-1-jw-care-darby-walsh/) | September 22<sup>nd</sup>, 2025
+Seretta Kem | [Much Has Been Accomplished in these Days](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-22-2-af-seretta-kem/) | September 22<sup>nd</sup>, 2025
 Judas | [May the Blessing of God’s Love be in this Place and touch every Soul who enters](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-23-1-jw-judas/) | September 23<sup>rd</sup>, 2025
 Care Darby Walsh | [Sanctuaries will flourish if their foundations are built on God’s Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-26-1-jw-care-darby-walsh/) | September 26<sup>th</sup>, 2025
 Eileen Caddy & Francis of Assisi | [Creating Sanctuary begins with one small Step](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-27-1-jw-eileen-caddy-francis-of-assisi/) | September 27<sup>th</sup>, 2025
 Paul | [Deep Prayer creates a Magnetism that draws every Soul to God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-28-1-jw-paul/) | September 28<sup>th</sup>, 2025
+Jesus | [Drink of the Living Waters](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-30-1-af-jesus/) | September 30<sup>th</sup>, 2025
 Paul | [When the Soul is engaged with the Love of God, all Things are possible](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-6-1-jw-paul/) | October 6<sup>th</sup>, 2025
 Care Darby Walsh | [All efforts done in the Love of God are worthy](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-11-1-jw-care-darby-walsh/) | October 11<sup>th</sup>, 2025
 Charlie Chaplin | [God’s Love restores one’s Sense of Humor](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-13-1-jw-charlie-chaplin/) | October 13<sup>th</sup>, 2025
