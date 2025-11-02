@@ -314,6 +314,7 @@ Matthew | [Consider With Patience and Flexibility the Different Levels of Guidan
 Barbara Davies | [Live your Life With Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-6-20-1-af-barbara-davies/) | June 20<sup>th</sup>, 2025
 Orion | [Transformation of Your Souls is Your Destiny](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-6-21-1-af-orion/) | June 21<sup>st</sup>, 2025
 Augustine | [The Truth of God's Love Surpasses Any Barriers of Language and Culture](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-6-22-1-af-augustine/) | June 22<sup>nd</sup>, 2025
+Jesus | [The Gift of Life is Precious](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-6-22-3-af-jesus/) | June 22<sup>nd</sup>, 2025
 George Gurdjieff | [The shocks of change are truly gifts](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-6-23-1-jw-george-gurdjieff/) | June 23<sup>rd</sup>, 2025
 Yogananda | [Introduces Himself to a Long-Time Follower and Changes He's Made in Spirit](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-6-24-2-af-yogananda/) | June 24<sup>th</sup>, 2025
 Andrew | [Blessing in Great Hall of Peace](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-6-27-1-af-andrew/) | June 27<sup>th</sup>, 2025
@@ -388,7 +389,9 @@ Jesus | [I Come with Compassion, Upliftment, Healing and Peace](/contemporary-me
 Augustine | [Plain and Direct Guidance for the Estonia Circle of Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-13-3-af-augustine/) | September 13<sup>th</sup>, 2025
 Jesus | [We Will Always Be with You](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-14-1-af-jesus/) | September 14<sup>th</sup>, 2025
 Goldie | [You Defy the Conditions of this World Through Laughter and Joy](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-14-2-af-goldie/) | September 14<sup>th</sup>, 2025
+Josephus | [Soul Development Will Bring You to a True Understanding of God and Spirituality](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-14-3-af-josephus/) | September 14<sup>th</sup>, 2025
 Mary | [We Are as One in God’s Universe of Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-18-1-af-mary/) | September 18<sup>th</sup>, 2025
+Louis XIV | [Describes His Long Journey Through the Spirit Spheres](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-18-2-af-louis-xiv/) | September 18<sup>th</sup>, 2025
 Confucius | [Precious Birds of Earth, Sing Your Songs to God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-19-1-af-confucius/) | September 19<sup>th</sup>, 2025
 James | [God is Preparing You to be the Spokespeople for this Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-19-2-af-james/) | September 19<sup>th</sup>, 2025
 Jesus | [Carry the Flame of Love and Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-20-1-af-jesus/) | September 20<sup>th</sup>, 2025
@@ -397,10 +400,16 @@ Confucius | [You Have Heard the Tolling Bell](/contemporary-messages/messages-so
 Care Darby Walsh | [Consider being busy in Prayer](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-22-1-jw-care-darby-walsh/) | September 22<sup>nd</sup>, 2025
 Seretta Kem | [Much Has Been Accomplished in these Days](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-22-2-af-seretta-kem/) | September 22<sup>nd</sup>, 2025
 Judas | [May the Blessing of God’s Love be in this Place and touch every Soul who enters](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-23-1-jw-judas/) | September 23<sup>rd</sup>, 2025
+Louis XIV | [Do Not Let Judgement Shroud Your Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-24-1-af-louis-xiv/) | September 24<sup>th</sup>, 2025
+Andrew | [Everybody Has an Opportunity to Progress](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-24-2-af-andrew/) | September 24<sup>th</sup>, 2025
 Care Darby Walsh | [Sanctuaries will flourish if their foundations are built on God’s Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-26-1-jw-care-darby-walsh/) | September 26<sup>th</sup>, 2025
 Eileen Caddy & Francis of Assisi | [Creating Sanctuary begins with one small Step](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-27-1-jw-eileen-caddy-francis-of-assisi/) | September 27<sup>th</sup>, 2025
 Paul | [Deep Prayer creates a Magnetism that draws every Soul to God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-28-1-jw-paul/) | September 28<sup>th</sup>, 2025
 Jesus | [Drink of the Living Waters](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-30-1-af-jesus/) | September 30<sup>th</sup>, 2025
+Yogananda | [Lifting the Veil Between Our Two Worlds](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-30-2-af-yogananda/) | September 30<sup>th</sup>, 2025
+White Cloud | [The Coming Change and the Way of the Soul](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-3-1-af-white-cloud/) | October 3<sup>rd</sup>, 2025
+Orion | [There is Much to Do](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-4-1-af-orion/) | October 4<sup>th</sup>, 2025
+Jesus, Isaiah & Moses | [Disciples of Truth and Harbingers of God's Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-5-1-af-jesus-isaiah-moses/) | October 5<sup>th</sup>, 2025
 Paul | [When the Soul is engaged with the Love of God, all Things are possible](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-6-1-jw-paul/) | October 6<sup>th</sup>, 2025
 Care Darby Walsh | [All efforts done in the Love of God are worthy](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-11-1-jw-care-darby-walsh/) | October 11<sup>th</sup>, 2025
 Charlie Chaplin | [God’s Love restores one’s Sense of Humor](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-13-1-jw-charlie-chaplin/) | October 13<sup>th</sup>, 2025

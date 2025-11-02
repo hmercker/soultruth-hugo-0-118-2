@@ -14,7 +14,8 @@ Author | Title | Date of Message
 Goldie and Kentor | [Goldie and visitors from another Galaxy](/contemporary-messages/messages-sorted-year/messages-1969/goldies-and-visitors-from-another-galaxy-12-march-1969/) | March 12th, 1969  
 Kentor | [Kentor - Visitor from another Galaxy.](/contemporary-messages/messages-sorted-year/messages-1969/kentor-visitor-from-another-galaxy-12-august-1969/) | August 12th, 1969 
 Shandor | [Shandor’s Comments about Direct Voice](/contemporary-messages/messages-sorted-year/messages-2018/shandors-comments-about-direct-voice-af-8-mar-2018/) | March 8th, 2018
-Shandor | [A Revolution in Your World is Coming](/contemporary-messages/messages-sorted-year/messages-2018/a-revolution-in-your-world-is-coming-af-15-mar-2018/) | March 15th, 2018 
+Shandor | [A Revolution in Your World is Coming](/contemporary-messages/messages-sorted-year/messages-2018/a-revolution-in-your-world-is-coming-af-15-mar-2018/) | March 15th, 2018
+Clack | [Joy Is Received with the Inflowing of Divine Love](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-11-27-2-em-clack/) | November 27<sup>th</sup>, 2023
 Christine | [Introduces Herself](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-3-16-2-af-christine/) | March 16<sup>th</sup>, 2024
 Christine | [Guidance for Matt](/contemporary-messages/messages-sorted-year/messages-2024/guidance-for-matt-af-18-mar-2024/) | March 18<sup>th</sup>, 2024
 Christine | [Big Shoes to Fill - Personal for Matt](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-7-1-2-af-christine/) | July 1<sup>st</sup>, 2024
