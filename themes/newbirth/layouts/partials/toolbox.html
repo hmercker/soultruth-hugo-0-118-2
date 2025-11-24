@@ -14,5 +14,68 @@
     <a href="#" class="expand"><span class="t1">Expand</span><span class="t2">Show menu</span></a>
     <!-- /Expand -->
 
+<!-- Simple share bar -->
+<div class="share-area" style="margin-top:8px;">
+  <span style="font-size:0.9em;">Page link:</span>
+  <input
+    id="share-url"
+    type="text"
+    value=""
+    readonly
+    style="width:60%;max-width:320px;margin:0 6px;font-size:0.9em;"
+  />
+  <button id="share-btn" type="button">Share</button>
+  <span id="share-msg" style="display:none;margin-left:6px;font-size:0.8em;"></span>
+</div>
+
+<script>
+(function(){
+  var input = document.getElementById('share-url');
+  var btn   = document.getElementById('share-btn');
+  var msg   = document.getElementById('share-msg');
+  if (!input || !btn) return;
+
+  // Fill input with current URL
+  input.value = window.location.href;
+
+  btn.addEventListener('click', function(){
+    var url = window.location.href;
+    var data = { title: document.title, url: url };
+
+    // Best case: Web Share API (Android Chrome, iOS Safari)
+    if (navigator.share) {
+      navigator.share(data).catch(function(err){
+        console.log('share failed', err);
+      });
+      return;
+    }
+
+    // Clipboard API fallback
+    if (navigator.clipboard && navigator.clipboard.writeText) {
+      navigator.clipboard.writeText(url).then(function(){
+        msg.textContent = 'URL copied';
+        msg.style.display = 'inline';
+        setTimeout(function(){ msg.style.display = 'none'; }, 2000);
+      }).catch(function(){
+        alert('Copy this URL: ' + url);
+      });
+      return;
+    }
+
+    // Legacy fallback
+    input.select();
+    try {
+      document.execCommand('copy');
+      msg.textContent = 'URL copied';
+      msg.style.display = 'inline';
+      setTimeout(function(){ msg.style.display = 'none'; }, 2000);
+    } catch (e) {
+      alert('Copy this URL: ' + url);
+    }
+  });
+})();
+</script>
+
+
 </div>
 <!-- /Tools -->
