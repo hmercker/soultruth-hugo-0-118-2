@@ -13,7 +13,7 @@ September 19<sup>th</sup>, 2025
 
 France Retreat, Fontainebleau, France
 
-James received by Al Fike
+Jacob received by Al Fike
 
 May God bless you abundantly with His Love. I am Jacob of old. I am mentioned in the Bible.
 

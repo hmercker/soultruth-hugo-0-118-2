@@ -393,7 +393,7 @@ Josephus | [Soul Development Will Bring You to a True Understanding of God and S
 Mary | [We Are as One in God’s Universe of Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-18-1-af-mary/) | September 18<sup>th</sup>, 2025
 Louis XIV | [Describes His Long Journey Through the Spirit Spheres](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-18-2-af-louis-xiv/) | September 18<sup>th</sup>, 2025
 Confucius | [Precious Birds of Earth, Sing Your Songs to God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-19-1-af-confucius/) | September 19<sup>th</sup>, 2025
-James | [God is Preparing You to be the Spokespeople for this Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-19-2-af-james/) | September 19<sup>th</sup>, 2025
+Jacob | [God is Preparing You to be the Spokespeople for this Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-19-2-af-jacob/) | September 19<sup>th</sup>, 2025
 Jesus | [Carry the Flame of Love and Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-20-1-af-jesus/) | September 20<sup>th</sup>, 2025
 Yogananda & Care Darby Walsh | [May your Guidance by Celestial rather than Terrestrial](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-21-1-jw-yogananda-care-darby-walsh/) | September 21<sup>st</sup>, 2025
 Confucius | [You Have Heard the Tolling Bell](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-21-2-af-confucius/) | September 21<sup>st</sup>, 2025
