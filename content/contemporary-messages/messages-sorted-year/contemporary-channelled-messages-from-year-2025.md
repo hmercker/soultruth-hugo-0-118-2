@@ -427,7 +427,7 @@ Jesus | [Call to Prayer and Transformation](/contemporary-messages/messages-sort
 Charlie Chaplin | [God’s Love restores one’s Sense of Humor](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-13-1-jw-charlie-chaplin/) | October 13<sup>th</sup>, 2025
 Judas | [Navigating the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-20-1-jw-judas/) | October 20<sup>th</sup>, 2025
 Faith Nyquist | [Anchor Your Life in Prayer](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-14-1-af-faith-nyquist/) | October 14<sup>th</sup>, 2025
-Augustine | [Confront That Which Golds You Back from Being God's Instrument of Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-14-2-af-augustine/) | October 14<sup>th</sup>, 2025
+Augustine | [Confront That Which Holds You Back from Being God's Instrument of Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-14-2-af-augustine/) | October 14<sup>th</sup>, 2025
 Mary | [Open Your Souls to God's Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-17-1-af-mary/) | October 17<sup>th</sup>, 2025
 Orion | [All that God Has to Give May Be Yours in a Single Moment](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-18-1-af-orion/) | October 18<sup>th</sup>, 2025
 Augustine | [The Way to Heaven: Choosing Light Over Darkness](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-19-2-af-augustine/) | October 19<sup>th</sup>, 2025

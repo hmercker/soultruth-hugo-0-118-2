@@ -1,13 +1,13 @@
 ---
-title: "Confront That Which Golds You Back from Being God's Instrument of Light"
+title: "Confront That Which Holds You Back from Being God's Instrument of Light"
 menu_title: ""
-description: "Confront That Which Golds You Back from Being God's Instrument of Light"
+description: "Confront That Which Holds You Back from Being God's Instrument of Light"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True
 weight:
 ---
-# Confront That Which Golds You Back from Being God's Instrument of Light
+# Confront That Which Holds You Back from Being God's Instrument of Light
 
 October 14<sup>th</sup>, 2025
 
