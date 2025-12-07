@@ -375,6 +375,7 @@ Jesus | [We Are All Children of God and His Love is Available to All](/contempor
 Isaiah | [Come to Know the Truth, Power and Glory of Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-6-3-af-isaiah/) | September 6<sup>th</sup>, 2025
 Michael Collier | [Choose to be Part of a More Harmonious World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-7-1-af-michael-collier/) | September 7<sup>th</sup>, 2025
 James Padgett | [Humility is the Key](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-7-4-jw-james-padgett/) | September 7<sup>th</sup>, 2025
+Estelle Roberts | [This Church Will Be a Sanctuary of Light for Many](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-7-3-af-estelle-roberts/) | September 7<sup>th</sup>, 2025
 Augustine | [The Angels and Those Who Have Come Before, Stand in Support of this Community](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-8-1-af-augustine/) | September 8<sup>th</sup>, 2025
 Arthur Conan Doyle | [Prayer, It’s elementary!](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-9-1-jw-arthur-conan-doyle/) | September 9<sup>th</sup>, 2025
 Copernicus | [The Truth of the Mind Will Only Bring You So Far](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-10-1-af-copernicus/) | September 10<sup>th</sup>, 2025
@@ -390,13 +391,18 @@ Augustine | [Plain and Direct Guidance for the Estonia Circle of Light](/contemp
 Jesus | [We Will Always Be with You](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-14-1-af-jesus/) | September 14<sup>th</sup>, 2025
 Goldie | [You Defy the Conditions of this World Through Laughter and Joy](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-14-2-af-goldie/) | September 14<sup>th</sup>, 2025
 Josephus | [Soul Development Will Bring You to a True Understanding of God and Spirituality](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-14-3-af-josephus/) | September 14<sup>th</sup>, 2025
+Stephen | [Political and Spiritual Conditions in Estonia Will Get Worse](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-15-1-af-stephen/) | September 15<sup>th</sup>, 2025
+Augustine | [Testing the Waters and Healing our Wounds](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-17-1-af-augustine/) | September 17<sup>th</sup>, 2025
 Mary | [We Are as One in God’s Universe of Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-18-1-af-mary/) | September 18<sup>th</sup>, 2025
 Louis XIV | [Describes His Long Journey Through the Spirit Spheres](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-18-2-af-louis-xiv/) | September 18<sup>th</sup>, 2025
 Confucius | [Precious Birds of Earth, Sing Your Songs to God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-19-1-af-confucius/) | September 19<sup>th</sup>, 2025
 Jacob | [God is Preparing You to be the Spokespeople for this Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-19-2-af-jacob/) | September 19<sup>th</sup>, 2025
+Robespierre | [Choose to be Children of God in a World Governed by the Children of Man](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-19-3-af-robespierre/) | September 19<sup>th</sup>, 2025
 Jesus | [Carry the Flame of Love and Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-20-1-af-jesus/) | September 20<sup>th</sup>, 2025
+Matthew | [Faith Must Carry You](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-20-2-af-matthew/) | September 20<sup>th</sup>, 2025
 Yogananda & Care Darby Walsh | [May your Guidance by Celestial rather than Terrestrial](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-21-1-jw-yogananda-care-darby-walsh/) | September 21<sup>st</sup>, 2025
 Confucius | [You Have Heard the Tolling Bell](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-21-2-af-confucius/) | September 21<sup>st</sup>, 2025
+Jesus | [Engage the Desires and Inspiration of the Soul](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-21-3-af-jesus/) | September 21<sup>st</sup>, 2025
 Care Darby Walsh | [Consider being busy in Prayer](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-22-1-jw-care-darby-walsh/) | September 22<sup>nd</sup>, 2025
 Seretta Kem | [Much Has Been Accomplished in these Days](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-22-2-af-seretta-kem/) | September 22<sup>nd</sup>, 2025
 Judas | [May the Blessing of God’s Love be in this Place and touch every Soul who enters](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-23-1-jw-judas/) | September 23<sup>rd</sup>, 2025
@@ -405,14 +411,48 @@ Andrew | [Everybody Has an Opportunity to Progress](/contemporary-messages/messa
 Care Darby Walsh | [Sanctuaries will flourish if their foundations are built on God’s Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-26-1-jw-care-darby-walsh/) | September 26<sup>th</sup>, 2025
 Eileen Caddy & Francis of Assisi | [Creating Sanctuary begins with one small Step](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-27-1-jw-eileen-caddy-francis-of-assisi/) | September 27<sup>th</sup>, 2025
 Paul | [Deep Prayer creates a Magnetism that draws every Soul to God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-28-1-jw-paul/) | September 28<sup>th</sup>, 2025
+Jesus | [The Power of Free Will and the Journey to Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-28-2-af-jesus/) | September 28<sup>th</sup>, 2025
 Jesus | [Drink of the Living Waters](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-30-1-af-jesus/) | September 30<sup>th</sup>, 2025
 Yogananda | [Lifting the Veil Between Our Two Worlds](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-30-2-af-yogananda/) | September 30<sup>th</sup>, 2025
+Orion | [It is Time to Allow Your Soul Gifts to Come Forward](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-9-30-3-af-orion/) | September 30<sup>th</sup>, 2025
 White Cloud | [The Coming Change and the Way of the Soul](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-3-1-af-white-cloud/) | October 3<sup>rd</sup>, 2025
 Orion | [There is Much to Do](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-4-1-af-orion/) | October 4<sup>th</sup>, 2025
 Jesus, Isaiah & Moses | [Disciples of Truth and Harbingers of God's Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-5-1-af-jesus-isaiah-moses/) | October 5<sup>th</sup>, 2025
 Paul | [When the Soul is engaged with the Love of God, all Things are possible](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-6-1-jw-paul/) | October 6<sup>th</sup>, 2025
+Orion | [You Must Heal Your Wounds to Move Forward](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-7-1-af-orion/) | October 7<sup>th</sup>, 2025
+Jesus | [I Am With You Always](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-10-1-af-jesus/) | October 10<sup>th</sup>, 2025
 Care Darby Walsh | [All efforts done in the Love of God are worthy](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-11-1-jw-care-darby-walsh/) | October 11<sup>th</sup>, 2025
+Orion | [The Timing of Manifestations Will Be Perfect in God's Plan](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-11-2-af-orion/) | October 11<sup>th</sup>, 2025
+Jesus | [Call to Prayer and Transformation](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-12-1-af-jesus/) | October 12<sup>th</sup>, 2025
 Charlie Chaplin | [God’s Love restores one’s Sense of Humor](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-13-1-jw-charlie-chaplin/) | October 13<sup>th</sup>, 2025
 Judas | [Navigating the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-20-1-jw-judas/) | October 20<sup>th</sup>, 2025
+Faith Nyquist | [Anchor Your Life in Prayer](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-14-1-af-faith-nyquist/) | October 14<sup>th</sup>, 2025
+Augustine | [Confront That Which Golds You Back from Being God's Instrument of Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-14-2-af-augustine/) | October 14<sup>th</sup>, 2025
+Mary | [Open Your Souls to God's Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-17-1-af-mary/) | October 17<sup>th</sup>, 2025
+Orion | [All that God Has to Give May Be Yours in a Single Moment](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-18-1-af-orion/) | October 18<sup>th</sup>, 2025
+Augustine | [The Way to Heaven: Choosing Light Over Darkness](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-19-2-af-augustine/) | October 19<sup>th</sup>, 2025
+Augustine | [The Power of Your Prayers: Instruments of God's Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-21-1-af-augustine/) | October 21<sup>st</sup>, 2025
+Orion | [A Great Leap of Faith Awaits You](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-21-2-af-orion/) | October 21<sup>st</sup>, 2025
+Andrew | [This Gift Comes Only Through Asking](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-21-3-af-andrew/) | October 21<sup>st</sup>, 2025
+Orion | [A Call to Universal Harmony: Awakening to the Law of Divine Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-24-1-af-orion/) | October 24<sup>th</sup>, 2025
+Jesus | [Your Efforts Will Change the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-25-1-af-jesus/) | October 25<sup>th</sup>, 2025
+Faith Nyquist & Jesus | [Becoming Instruments of God's Love: A Call to Serve and Shine Your Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-26-1-af-faith-nyquist-jesus/) | October 26<sup>th</sup>, 2025
+Jesus, Isaiah & Peter | [Be True to God's Will: A Call to Awaken and Serve in God's Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-2-1-af-jesus-isaiah-peter/) | November 2<sup>nd</sup>, 2025
+Clare of Assisi | [In the Silence](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-3-1-jw-clare-of-assisi/) | November 3<sup>rd</sup>, 2025
+Luke | [Healing in the Physical and Spiritual Realms](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-4-1-jw-luke/) | November 4<sup>th</sup>, 2025
+Care Darby Walsh | [Each one a Story, each one a unique Soul](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-4-2-jw-care-darby-walsh/) | November 4<sup>th</sup>, 2025
+George Washington | [Show them the Way with Truth and an open Heart](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-5-1-jw-george-washington/) | November 5<sup>th</sup>, 2025
+Jesus | [Allow the great Blessing of God’s Love to permeate your Being](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-6-1-jw-jesus/) | November 6<sup>th</sup>, 2025
+Andrew | [Sow the Seeds of Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-11-4-af-andrew/) | November 11<sup>th</sup>, 2025
+Jesus | [It is Time for the Truth to be Known in the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-14-1-af-jesus/) | November 14<sup>th</sup>, 2025
+Orion | [This Place is Among Many Centres of Light in God's Plan](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-14-2-af-orion/) | November 14<sup>th</sup>, 2025
+Mary | [Blessings of Peace to Open Happy Days Farm Retreat](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-14-3-af-mary/) | November 14<sup>th</sup>, 2025
+Orion & Jesus | [The Work Will Continue Together](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-15-1-af-orion-jesus/) | November 15<sup>th</sup>, 2025
+Orion | [Q&A](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-15-2-af-orion/) | November 15<sup>th</sup>, 2025
+Confucius | [Precious Flowers of God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-15-3-af-confucius/) | November 15<sup>th</sup>, 2025
+Eileen Caddy | [Take the first Step](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-22-1-jw-eileen-caddy/) | November 22<sup>nd</sup>, 2025
+Clare of Assisi | [Reluctance and Courage](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-24-1-jw-clare-of-assisi/) | November 24<sup>th</sup>, 2025
+Ann Rollins | [The Whispers of God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-26-1-jw-ann-rollins/) | November 26<sup>th</sup>, 2025
+John the Beloved | [Gifts of the Spirit](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-12-1-1-jw-john-the-beloved/) | December 1<sup>st</sup>, 2025
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2025/), or to [contemporary messages by year](/contemporary-messages/#a).*
