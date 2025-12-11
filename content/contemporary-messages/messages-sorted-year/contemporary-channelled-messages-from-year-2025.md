@@ -459,31 +459,5 @@ Orion | [Your Progression is Hastened By Faith](/contemporary-messages/messages-
 Clare of Assisi | [Reluctance and Courage](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-24-1-jw-clare-of-assisi/) | November 24<sup>th</sup>, 2025
 Ann Rollins | [The Whispers of God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-26-1-jw-ann-rollins/) | November 26<sup>th</sup>, 2025
 John the Beloved | [Gifts of the Spirit](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-12-1-1-jw-john-the-beloved/) | December 1<sup>st</sup>, 2025
-Orion | [As You Progress, You Will Walk Comfortably in Both Mind and Soul](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-1-1-af-orion/) | November 1<sup>st</sup>, 2025
-Faith Nyquist | [Stabilise Yourself in the Seat of Your Soul](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-2-2-mc-faith-nyquist/) | November 2<sup>nd</sup>, 2025
-Mary | [The Healing Power of the Soul](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-3-2-mc-mary/) | November 3<sup>rd</sup>, 2025
-Copernicus | [Beyond the Material: Discovering the Many Layers of God's Creation](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-7-1-af-copernicus/) | November 7<sup>th</sup>, 2025
-Orion | [A Lesson on Achieving Harmony Through Unity](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-8-1-af-orion/) | November 8<sup>th</sup>, 2025
-Goldie | [The Power of Persistent Love: Awakening the Soul to God's Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-11-1-af-goldie/) | November 11<sup>th</sup>, 2025
-Augustine | [The Power of Persistent Love: Awakening the Soul to God's Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-11-2-af-augustine/) | November 11<sup>th</sup>, 2025
-Jesus | [The Power of Persistent Love: Awakening the Soul to God's Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-11-3-af-jesus/) | November 11<sup>th</sup>, 2025
-Percy Hayes | [A Personal Relationship With God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-13-1-mc-percy-hayes/) | November 13<sup>th</sup>, 2025
-Barbara Davies | [Transformation of Your Human Condition](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-16-1-mc-barbara-davies/) | November 16<sup>th</sup>, 2025
-Peter | [Loyalty to Truth: Serving God with Strength and Tenacity](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-18-2-af-peter/) | November 18<sup>th</sup>, 2025
-Faith Nyquist | [The Journey of Love: Embracing the Soul's Highest Calling](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-21-1-af-faith-nyquist/) | November 21<sup>st</sup>, 2025
-Jesus | [The Journey of Love: Embracing the Soul's Highest Calling](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-21-2-af-jesus/) | November 21<sup>st</sup>, 2025
-Jesus | [Awakened to Purpose](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-23-1-af-jesus/) | November 23<sup>rd</sup>, 2025
-Augustine | [Awakened to Purpose](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-23-2-af-augustine/) | November 23<sup>rd</sup>, 2025
-Michael Collier | [The Power of Soul-Light: A Lesson on Reaching Hearts Beyond Words](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-25-1-af-michael-collier/) | November 25<sup>th</sup>, 2025
-Orion | [Manifestations Will Defy Mindful Expectations](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-25-1-af-orion/) | November 25<sup>th</sup>, 2025
-Jesus | [The Power of Soul-Light: A Lesson on Reaching Hearts Beyond Words](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-25-2-af-jesus/) | November 25<sup>th</sup>, 2025
-Jesus | [Manifestations Will Defy Mindful Expectations](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-25-2-af-jesus/) | November 25<sup>th</sup>, 2025
-Matthew | [Your Destiny as God's Instruments: Shine Truth and Love in the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-28-1-af-matthew/) | November 28<sup>th</sup>, 2025
-Augustine | [Your Destiny as God's Instruments: Shine Truth and Love in the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-28-2-af-augustine/) | November 28<sup>th</sup>, 2025
-Orion | [Come to Know God's Will](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-29-1-af-orion/) | November 29<sup>th</sup>, 2025
-Jesus | [You Are Part of God's Plan for the Healing of the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-30-1-af-jesus/) | November 30<sup>th</sup>, 2025
-Mary | [You Are Part of God's Plan for the Healing of the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-30-2-af-mary/) | November 30<sup>th</sup>, 2025
-Keea Atta Kem | [Honour Who You Are in God's Creation](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-12-2-1-af-keea-atta-kem/) | December 2<sup>nd</sup>, 2025
-Moses | [You Must Reconcile Mind and Soul to be God's Instruments in Times to Come](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-12-2-2-af-moses/) | December 2<sup>nd</sup>, 2025
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2025/), or to [contemporary messages by year](/contemporary-messages/#a).*
