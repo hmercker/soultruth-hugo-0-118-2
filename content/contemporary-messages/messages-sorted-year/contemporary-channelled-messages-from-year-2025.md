@@ -443,6 +443,8 @@ Luke | [Healing in the Physical and Spiritual Realms](/contemporary-messages/mes
 Care Darby Walsh | [Each one a Story, each one a unique Soul](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-4-2-jw-care-darby-walsh/) | November 4<sup>th</sup>, 2025
 George Washington | [Show them the Way with Truth and an open Heart](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-5-1-jw-george-washington/) | November 5<sup>th</sup>, 2025
 Jesus | [Allow the great Blessing of God’s Love to permeate your Being](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-6-1-jw-jesus/) | November 6<sup>th</sup>, 2025
+Judas | [You Must Listen](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-6-2-jw-judas/) | November 6<sup>th</sup>, 2025
+Judas | [The Spiritual Battle Won](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-10-1-jw-judas/) | November 10<sup>th</sup>, 2025
 Andrew | [Sow the Seeds of Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-11-4-af-andrew/) | November 11<sup>th</sup>, 2025
 Jesus | [It is Time for the Truth to be Known in the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-14-1-af-jesus/) | November 14<sup>th</sup>, 2025
 Orion | [This Place is Among Many Centres of Light in God's Plan](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-14-2-af-orion/) | November 14<sup>th</sup>, 2025
@@ -450,7 +452,6 @@ Mary | [Blessings of Peace to Open Happy Days Farm Retreat](/contemporary-messag
 Orion & Jesus | [The Work Will Continue Together](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-15-1-af-orion-jesus/) | November 15<sup>th</sup>, 2025
 Orion | [Q&A](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-15-2-af-orion/) | November 15<sup>th</sup>, 2025
 Confucius | [Precious Flowers of God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-15-3-af-confucius/) | November 15<sup>th</sup>, 2025
-Orion | [Enact God's Will in Your Lives](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-18-1-af-orion/) | November 18<sup>th</sup>, 2025
 Eileen Caddy | [Take the first Step](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-22-1-jw-eileen-caddy/) | November 22<sup>nd</sup>, 2025
 Orion | [Your Progression is Hastened By Faith](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-22-2-af-orion/) | November 22<sup>nd</sup>, 2025
 Clare of Assisi | [Reluctance and Courage](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-24-1-jw-clare-of-assisi/) | November 24<sup>th</sup>, 2025

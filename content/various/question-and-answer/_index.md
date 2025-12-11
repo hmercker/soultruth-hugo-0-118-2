@@ -63,3 +63,7 @@ Jesus | [Question and Answer Session #3: Prayer](/contemporary-messages/messages
 Jesus | [Question and Answer Session #4: Earth Changes](/contemporary-messages/messages-sorted-year/messages-2021/question-and-answer-4-af-11-mar-2021/) | March 11th, 2021
 Orion | [Orion responds to questions asked](/contemporary-messages/messages-sorted-year/messages-2021/orion-responds-to-questions-asked-af-5-nov-2021/) | November 5th, 2021
 Orion | [Sequel to Questions and Answers](/contemporary-messages/messages-sorted-year/messages-2021/sequel-to-q-and-a-af-11-nov-2021/) | November 11th, 2021
+Orion | [Questions and Answers](/contemporary-messages/messages-sorted-year/messages-2022/questions-and-answers-af-14-may-2022/) | May 14<sup>th</sup>, 2022
+Augustine | [Question & Answer State College Retreat](/contemporary-messages/messages-sorted-year/messages-2024/question-and-answer-af-25-sep-2024/) | September 25<sup>th</sup>, 2024
+Orion | [Q&A in Running Springs](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-4-27-4-af-orion/) | April 27<sup>th</sup>, 2025
+Orion | [Questions and Answers](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-15-2-af-orion/) | November 15<sup>th</sup>, 2025
