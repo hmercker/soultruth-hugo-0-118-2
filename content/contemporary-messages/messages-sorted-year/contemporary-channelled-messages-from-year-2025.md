@@ -450,7 +450,9 @@ Mary | [Blessings of Peace to Open Happy Days Farm Retreat](/contemporary-messag
 Orion & Jesus | [The Work Will Continue Together](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-15-1-af-orion-jesus/) | November 15<sup>th</sup>, 2025
 Orion | [Q&A](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-15-2-af-orion/) | November 15<sup>th</sup>, 2025
 Confucius | [Precious Flowers of God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-15-3-af-confucius/) | November 15<sup>th</sup>, 2025
+Orion | [Enact God's Will in Your Lives](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-18-1-af-orion/) | November 18<sup>th</sup>, 2025
 Eileen Caddy | [Take the first Step](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-22-1-jw-eileen-caddy/) | November 22<sup>nd</sup>, 2025
+Orion | [Your Progression is Hastened By Faith](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-22-2-af-orion/) | November 22<sup>nd</sup>, 2025
 Clare of Assisi | [Reluctance and Courage](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-24-1-jw-clare-of-assisi/) | November 24<sup>th</sup>, 2025
 Ann Rollins | [The Whispers of God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-26-1-jw-ann-rollins/) | November 26<sup>th</sup>, 2025
 John the Beloved | [Gifts of the Spirit](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-12-1-1-jw-john-the-beloved/) | December 1<sup>st</sup>, 2025
