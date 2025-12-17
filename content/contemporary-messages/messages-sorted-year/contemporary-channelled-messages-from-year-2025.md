@@ -437,6 +437,8 @@ Andrew | [This Gift Comes Only Through Asking](/contemporary-messages/messages-s
 Orion | [A Call to Universal Harmony: Awakening to the Law of Divine Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-24-1-af-orion/) | October 24<sup>th</sup>, 2025
 Jesus | [Your Efforts Will Change the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-25-1-af-jesus/) | October 25<sup>th</sup>, 2025
 Faith Nyquist & Jesus | [Becoming Instruments of God's Love: A Call to Serve and Shine Your Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-26-1-af-faith-nyquist-jesus/) | October 26<sup>th</sup>, 2025
+Barbara Davies | [The Path from Darkness to Light](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-31-1-af-barbara-davies/) | October 31<sup>st</sup>, 2025
+Orion | [As You Progress, You Will Walk Comfortably in Both Mind and Soul](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-1-1-af-orion/) | November 1<sup>st</sup>, 2025
 Jesus, Isaiah & Peter | [Be True to God’s Will: A Call to Awaken and Serve in God’s Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-2-1-af-jesus-isaiah-peter/) | November 2<sup>nd</sup>, 2025
 Clare of Assisi | [In the Silence](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-3-1-jw-clare-of-assisi/) | November 3<sup>rd</sup>, 2025
 Luke | [Healing in the Physical and Spiritual Realms](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-4-1-jw-luke/) | November 4<sup>th</sup>, 2025
@@ -454,10 +456,16 @@ Orion | [Q&A](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-
 Confucius | [Precious Flowers of God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-15-3-af-confucius/) | November 15<sup>th</sup>, 2025
 Judas | [God’s Mercy](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-17-1-jw-judas/) | November 17<sup>th</sup>, 2025
 Orion | [Enact God's Will in Your Lives](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-18-1-af-orion/) | November 18<sup>th</sup>, 2025
+Peter | [Loyalty to Truth: Serving God with Strength and Tenacity](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-18-2-af-peter/) | November 18<sup>th</sup>, 2025
+Faith Nyquist & Jesus | [The Journey of Love: Embracing the Soul's Highest Calling](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-21-1-af-faith-nyquist-jesus/) | November 21<sup>st</sup>, 2025
 Eileen Caddy | [Take the first Step](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-22-1-jw-eileen-caddy/) | November 22<sup>nd</sup>, 2025
 Orion | [Your Progression is Hastened By Faith](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-22-2-af-orion/) | November 22<sup>nd</sup>, 2025
+Jesus & Augustine | [Awakened to Purpose](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-23-1-af-jesus-augustine/) | November 23<sup>rd</sup>, 2025
 Clare of Assisi | [Reluctance and Courage](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-24-1-jw-clare-of-assisi/) | November 24<sup>th</sup>, 2025
+Michael Collier & Jesus | [The Power of Soul-Light: A Lesson on Reaching Hearts Beyond Words](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-25-1-af-michael-collier-jesus/) | November 25<sup>th</sup>, 2025
+Orion & Jesus | [Manifestations Will Defy Mindful Expectations](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-25-2-af-orion-jesus/) | November 25<sup>th</sup>, 2025
 Ann Rollins | [The Whispers of God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-26-1-jw-ann-rollins/) | November 26<sup>th</sup>, 2025
+Matthew & Augustine | [Your Destiny as God's Instruments: Shine Truth and Love in the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-28-1-af-matthew-augustine/) | November 28<sup>th</sup>, 2025
 John the Beloved | [Gifts of the Spirit](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-12-1-1-jw-john-the-beloved/) | December 1<sup>st</sup>, 2025
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2025/), or to [contemporary messages by year](/contemporary-messages/#a).*
