@@ -9,7 +9,7 @@ weight:
 ---
 # Contemporary Channelled Messages - Year 2025
 
-These are the spirit communications we have received in the year 2025. The designation "DV" before a title in the table below refers to Direct Voice. You can find more information on this subject [here](/direct-voice-mediumship/).
+These are the spirit communications we have received in the year 2025.
 
 Author | Title | Date of Message 
 ---|---|--- 
