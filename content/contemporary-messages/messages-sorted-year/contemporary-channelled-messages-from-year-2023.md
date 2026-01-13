@@ -26,6 +26,8 @@ Peter the Apostle | [Come to Know the Reality of Love](/contemporary-messages/me
 Francis of Assisi | [Service and Leadership](/contemporary-messages/messages-sorted-year/messages-2023/service-and-leadership-jw-9-jan-2023/) | January 9<sup>th</sup>, 2023
 Claire of Assisi | [Create your Vision](/contemporary-messages/messages-sorted-year/messages-2023/create-your-vision-jw-10-jan-2023/) | January 10<sup>th</sup>, 2023
 Seretta Kem | [Invitation to Develop More Mediums](/contemporary-messages/messages-sorted-year/messages-2023/invitation-to-develop-more-mediums-af-13-jan-2023/) | January 13<sup>th</sup>, 2023
+Peter | [Seek the Truth](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-1-13-4-em-peter/) | January 13<sup>th</sup>, 2023
+Jesus | [You have Purpose](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-1-15-4-em-jesus/) | January 15<sup>th</sup>, 2023
 Judas | [More on Spirit Communication](/contemporary-messages/messages-sorted-year/messages-2023/more-on-spirit-communication-jw-16-jan-2023/) | January 16<sup>th</sup>, 2023
 Professor Salyards | [Professor Salyards Acknowledges Culture of Mediumship](/contemporary-messages/messages-sorted-year/messages-2023/acknowledges-culture-of-mediumship-af-19-jan-2023/) | January 19<sup>th</sup>, 2023
 Jesus & Mary | [Each of You Are Precious to Our Heavenly Father](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-1-21-2-af-jesus-mary/) | January 21<sup>st</sup>, 2023
@@ -141,6 +143,7 @@ Orion | [Dedication of Working together is Very Important](/contemporary-message
 Rebecca | [Blessing for Lani and the Circle](/contemporary-messages/messages-sorted-year/messages-2023/blessing-for-lani-and-the-circle-af-8-apr-2023/) | April 8<sup>th</sup>, 2023
 John the Baptist | [Easter Message](/contemporary-messages/messages-sorted-year/messages-2023/easter-message-af-9-apr-2023/) | April 9<sup>th</sup>, 2023
 Augustine | [You Have Chosen the Battle for Light](/contemporary-messages/messages-sorted-year/messages-2023/you-have-chosen-the-battle-for-light-af-9-apr-2023/) | April 9<sup>th</sup>, 2023
+John Hughes | [Easter Message](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-4-9-3-em-john-hughes/) | April 9<sup>th</sup>, 2023
 Luke | [Two Momentums to Save the World](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-4-10-1-af-luke/) | April 10<sup>th</sup>, 2023
 Judas | [Transmit Love](/contemporary-messages/messages-sorted-year/messages-2023/transmit-love-jw-10-apr-2023/) | April 10<sup>th</sup>, 2023
 Matthew | [Communion with God is subtle, Gentle and Requires Persistent Effort ](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-4-11-1-af-matthew/) | April 11<sup>th</sup>, 2023
@@ -152,6 +155,7 @@ Samuel | [Two Distinct Spiritual Journeys](/contemporary-messages/messages-sorte
 Professor Salyards | [Opportunity for Growth](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-4-20-1-af-professor-salyards/) | April 20<sup>th</sup>, 2023
 John the Beloved | [Prayers from the Soul](/contemporary-messages/messages-sorted-year/messages-2023/prayers-from-the-soul-af-20-apr-2023/) | April 20<sup>th</sup>, 2023
 Josephus | [Know Your Own Soul](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-4-21-1-af-josephus/) | April 21<sup>st</sup>, 2023
+Jesus | [I Will Welcome You to the Kingdom When it is Time](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-4-22-1-em-jesus/) | April 22<sup>nd</sup>, 2023
 Eileen Caddy | [Guidance](/contemporary-messages/messages-sorted-year/messages-2023/guidance-jw-24-apr-2023/) | April 24<sup>th</sup>, 2023
 Joseph Babinsky | [In God’s love and Gratitude](/contemporary-messages/messages-sorted-year/messages-2023/in-gods-love-and-gratitude-jw-26-apr-2023/) | April 24<sup>th</sup>, 2023
 Alec Gaunt | [Invites DV12 to Come Together again in Person for Development](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-4-25-1-af-alec-gaunt/) | April 25<sup>th</sup>, 2023
@@ -291,6 +295,7 @@ Orion | [It’s Challenging and Intriguing to Make Connections with Earthlings!]
 Confucius | [Invokes a Blessing of Divine love for the Guernesey Circle Portal at Les Chapel monnaie](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-9-20-1-af-confucius/) | September 20<sup>th</sup>, 2023
 Augustine | [Knowing the Wisdom of Your Soul Brings Greater Harmony to Your Life](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-9-23-1-af-augustine/) | September 23<sup>rd</sup>, 2023
 Orion | [Describes Development Work in DV Circle Today](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-9-26-3-af-orion/) | September 26<sup>th</sup>, 2023
+Josephus | [Promises Blessings at Laurelville](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-9-29-1-af-josephus/) | September 29<sup>th</sup>, 2023
 Orion | [Contrasts Natural Love and Divine Love Paths](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-9-30-1-af-orion/) | September 30<sup>th</sup>, 2023
 Michael Collier | [Be Conscious of Being a Light in the World](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-10-1-1-af-michael-collier/) | October 1<sup>st</sup>, 2023
 Matthew | [The Love of God Will Free You From the Darkness](/contemporary-messages/messages-sorted-year/messages-2023/the-love-of-god-will-free-you-from-the-darkness-af-3-oct-2023/) | October 3<sup>rd</sup>, 2023
@@ -326,6 +331,7 @@ Matthew | [You are the Forerunners of the New World - Laurelville Epilogue](/con
 Orion | [You Are Changed](/contemporary-messages/messages-sorted-year/messages-2023/you-are-changed-af-20-0ct-2023/) | October 20<sup>th</sup>, 2023
 Luke and Jesus | [Angels are Helping us Shift from Mind Consciousness to Soul Consciousness](/contemporary-messages/messages-sorted-year/messages-2023/angels-are-helping-us-shift-af-22-oct-2023/) | October 22<sup>nd</sup>, 2023
 Noah and Care Darby Walsh | [The Leap of Faith and Creating Sanctuaries](/contemporary-messages/messages-sorted-year/messages-2023/leap-of-faith-jw-23-oct-2023/) | October 23<sup>rd</sup>, 2023
+Matthew | [God’s Will as Protection](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-10-23-2-em-matthew/) | October 23<sup>rd</sup>, 2023
 Keea Atta Kem | [We Are with You in Love and Joy!](/contemporary-messages/messages-sorted-year/messages-2023/we-are-with-you-in-love-af-24-oct-2023/) | October 24<sup>th</sup>, 2023
 Orion | [Soul Perceptions are Multi-Dimensional](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-10-24-2-af-orion/) | October 24<sup>th</sup>, 2023
 Orion | [The Evolution of Humanity](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-10-27-2-af-orion/) | October 27<sup>th</sup>, 2023
@@ -355,10 +361,17 @@ Confucius | [Rise Above the Corruption of the World](/contemporary-messages/mess
 Jesus | [One Truth Many Expressions](/contemporary-messages/messages-sorted-year/messages-2023/one-truth-many-expressions-af-2-dec-2023/) | December 2<sup>nd</sup>, 2023
 Orion | [Welcomes Diversity in Universal Divine Love](/contemporary-messages/messages-sorted-year/messages-2023/welcomes-diversity-af-3-dec-2023/) | December 3<sup>rd</sup>, 2023
 Claire of Assisi | [The Riches of God’s Love](/contemporary-messages/messages-sorted-year/messages-2023/the-riches-of-gods-love-jw-3-dec-2023/) | December 3<sup>rd</sup>, 2023
+Jesus | [An Invitation to Galactic Federation Members](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-12-3-3-em-jesus/) | December 3<sup>rd</sup>, 2023
 Care Walsh | [Body and Soul Health](/contemporary-messages/messages-sorted-year/messages-2023/body-and-soul-health-jw-4-dec-2023/) | December 4<sup>th</sup>, 2023
+Barbara Davies | [Barbara Shares Her Love](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-12-4-2-em-barbara-davies/) | December 4<sup>th</sup>, 2023
 Judas of Kerioth | [The Road Ahead](/contemporary-messages/messages-sorted-year/messages-2023/the-road-ahead-jw-5-dec-2023/) | December 5<sup>th</sup>, 2023
 Orion | [Family, Government, Economy and Life on Orion’s Planet](/contemporary-messages/messages-sorted-year/messages-2023/life-on-orions-planet-af-7-dec-2023/) | December 7<sup>th</sup>, 2023
+Mylora | [Partners in Healing](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-12-7-2-em-mylora/) | December 7<sup>th</sup>, 2023
+Mary | [Share this Experience with Your Earthly Brothers and Sisters](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-12-10-2-em-mary/) | December 10<sup>th</sup>, 2023
 Robert Hugh Benson | [The Spirit Realms of Light](/contemporary-messages/messages-sorted-year/messages-2023/the-spirit-realms-of-light-jw-11-dec-2023/) | December 11<sup>th</sup>, 2023
+John the Beloved | [God’s Plan in Action](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-12-11-2-em-john-the-beloved/) | December 11<sup>th</sup>, 2023
+Joan of Arc | [Jeanne Encourages Us to Develop a Rapport with Our Guides](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-12-12-2-em-joan-of-arc/) | December 12<sup>th</sup>, 2023
+John the Baptist & Peter | [Do Not Seek Only Repentance/Your Love Manifested on the Earth Is Having Its Effects](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-12-14-1-em-john-the-baptist-peter/) | December 14<sup>th</sup>, 2023
 Orion | [Speaks Again About Our Souls’ Progress](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-12-16-1-af-orion/) | December 16<sup>th</sup>, 2023
 Jesus | [Bring the Truth of God’s Love to the World](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-12-17-1-af-jesus/) | December 17<sup>th</sup>, 2023
 John the Baptist | [You are the fulfillment of the Master's Mission on Earth](/contemporary-messages/messages-sorted-year/messages-2023/you-are-the-fulfillment-jw-18-dec-2023/) | December 18<sup>th</sup>, 2023

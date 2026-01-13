@@ -242,8 +242,8 @@ Professor Salyards | [This your mandate](/contemporary-messages/messages-sorted-
 Jesus | [We Have a Role to Play in God's Plan](/contemporary-messages/messages-sorted-year/messages-2022/we-have-a-role-to-play-af-24-sep-2022/) | September 24<sup>th</sup>, 2022
 Moses | [We Are Called to be Leaders in the World](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-9-25-1-af-moses/) | September 25<sup>th</sup>, 2022
 Yogananda | [The Struggle for Spirituality is the Same Through the Ages](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-9-25-2-af-yogananda/) | September 25<sup>th</sup>, 2022
-Baal Shem Tov | [Make every day a New One!](/contemporary-messages/messages-sorted-year/messages-2022/make-every-day-a-new-one-jw-26-sep-2022) | September 26<sup>th</sup>, 2022
 Moses | [The Divine Love is the Greatest of All Laws](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-9-26-1-em-moses/) | September 26<sup>th</sup>, 2022
+Baal Shem Tov | [Make every day a New One!](/contemporary-messages/messages-sorted-year/messages-2022/make-every-day-a-new-one-jw-26-sep-2022) | September 26<sup>th</sup>, 2022
 Augustine | [You Will All Enter the Celestial Kingdom](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-9-27-1-af-augustine/) | September 27<sup>th</sup>, 2022
 Fred Rogers | [Imaginary Friends](/contemporary-messages/messages-sorted-year/messages-2022/imaginary-friends-jw-29-sept-2022/) | September 29<sup>th</sup>, 2022
 Augustine | [Be a Channel of God’s Love and Instrument of God’s Will](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-9-29-2-af-augustine/) | September 29<sup>th</sup>, 2022
