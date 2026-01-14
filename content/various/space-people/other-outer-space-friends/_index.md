@@ -22,3 +22,4 @@ Christine | [Big Shoes to Fill - Personal for Matt](/contemporary-messages/messa
 Christine (a stellar being) | [Being Is Our Religion](/contemporary-messages/messages-sorted-year/messages-2024/being-is-our-religion-af-20-sep-2024/) | September 20<sup>th</sup>, 2024
 Christine | [We Continue to do All We Can to Help You](/contemporary-messages/messages-sorted-year/messages-2024/we-continue-af-23-sep-2024/) | September 23<sup>rd</sup>, 2024
 Christine | [Many Stellar Friends in the Universe Are Here to Help](/contemporary-messages/messages-sorted-year/messages-2024/many-stellar-friends-are-here-af-24-nov-2024/) | November 24<sup>th</sup>, 2024
+Jenna | [Integration](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-16-1-em-jenna/) | October 16<sup>th</sup>, 2025

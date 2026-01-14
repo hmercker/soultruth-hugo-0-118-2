@@ -96,5 +96,6 @@ Jesus | [Prepare for Changes that are Now Upon Us](/contemporary-messages/messag
 Augustine | [Preparing for Earth Changes](/contemporary-messages/messages-sorted-year/messages-2024/preparing-for-earth-changes-af-18-jan-2024/) | January 18th, 2024
 Orion | [Orion Introduces Himself and The Intentions of Stellar Friends to Help Us Through the Transformation of the World](/contemporary-messages/messages-sorted-year/messages-2024/the-intentions-of-stellar-friends-af-4-mar-2024/) | March 4th, 2024
 Orion | [Earth Changes Coming Will Have Their Effects](/contemporary-messages/messages-sorted-year/messages-2024/earth-changes-will-have-their-effects-af-11-may-2024/) | May 11th, 2024
+Joan of Arc | [Earth Changes](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-10-20-2-em-joan-of-arc/) | October 20<sup>th</sup>, 2025
 
 **Note 1** The message dated June 23rd, 2022 in the table above is the second chapter of a new book devoted to Earth Changes, and rather than repeating them here, you can [read these messages here.](/jesus-teachings/volume-iii/) 
