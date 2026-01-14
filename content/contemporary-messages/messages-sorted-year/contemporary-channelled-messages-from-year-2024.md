@@ -363,47 +363,63 @@ Augustine | [Establishing and Sustaining Rapport for Developing Mediums](/contem
 Moses and Jesus | [We Are All Needed as Harbingers to Hold Up the Tent of Truth](/contemporary-messages/messages-sorted-year/messages-2024/we-are-all-needed-af-1-sep-2024/) | September 1<sup>st</sup>, 2024
 Augustine | [Stick to the Straight and Narrow Path – the Simple Truth of God’s Divine Love](/contemporary-messages/messages-sorted-year/messages-2024/stick-to-the-straight-and-narrow-path-af-3-sep-2024/) | September 3<sup>rd</sup>, 2024
 Confucius | [Blesses Travelers Spreading the Truths of God’s Love](/contemporary-messages/messages-sorted-year/messages-2024/blesses-travelers-af-3-sept-2024/) | September 3<sup>rd</sup>, 2024
+Joan of Arc | [We Have Brought You Together For a Purpose](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-6-1-em-joan-of-arc/) | September 6<sup>th</sup>, 2024
+Keea Atta Kem | [Be At One with God](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-6-2-af-keea-atta-kem/) | September 6<sup>th</sup>, 2024
+Jesus | [Opens and Blesses Lansing Retreat](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-6-3-af-jesus/) | September 6<sup>th</sup>, 2024
 Augustine | [It Takes Our Prayer Power to Bring God and the Angels Close](/contemporary-messages/messages-sorted-year/messages-2024/the-power-of-prayer-af-7-sep-2024/) | September 7<sup>th</sup>, 2024
 Josephus |[Talks About Our Gifts and Destinies](/contemporary-messages/messages-sorted-year/messages-2024/gifts-and-destinies-af-7-sep-2024/) | September 7<sup>th</sup>, 2024
+Jesus | [Know the Joy the Father Bestows Upon You](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-8-1-em-jesus/) | September 8<sup>th</sup>, 2024
 Hafiz | [What will the world think of you?](/contemporary-messages/messages-sorted-year/messages-2024/what-will-the-world-think-jw-8-sept-2024/) | September 8<sup>th</sup>, 2024
 Confucius, Martha and Jesus | [Congratulations on a Successful Lansing Retreat, There Will Be Lasting Benefits from the Retreat, Closes Lansing Retreat](/contemporary-messages/messages-sorted-year/messages-2024/congratulations-on-a-successful-lansing-retreat-af-8-sep-2024/) | September 8<sup>th</sup>, 2024
 Augustine | [How the Flow of God’s Will Works](/contemporary-messages/messages-sorted-year/messages-2024/how-the-flow-of-gods-will-works-af-9-sep-2024/) | September 9<sup>th</sup>, 2024
 Isaiah | [Warriors of Light](/contemporary-messages/messages-sorted-year/messages-2024/warriors-of-light-af-9-sep-2024/) | September 9<sup>th</sup>, 2024
 Joan of Arc | [One Must Focus on One’s Purpose on the Divine Path](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-9-3-em-joan-of-arc/) | September 9<sup>th</sup>, 2024
+Alec Gaunt | [Your Joy and Divine Love in Your Souls Touches All Those Around You!](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-9-4-af-alec-gaunt/) | September 9<sup>th</sup>, 2024
 Augustine and Jesus | [A Lesson on Harmonious Decision Making, Continues to Bless Our Travels](/contemporary-messages/messages-sorted-year/messages-2024/harmonious-decision-making-af-11-sep-2024/) | September 11<sup>th</sup>, 2024
+Peter | [You’ll Be Delighted!!](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-11-2-em-peter/) | September 11<sup>th</sup>, 2024
 Augustine | [The Solutions to Your Problems Come with Faith](/contemporary-messages/messages-sorted-year/messages-2024/solutions-to-your-problems-af-12-sep-2024/) | September 12<sup>th</sup>, 2024
 Jesus | [Opens Penuel Retreat. We Come to Share the Light](/contemporary-messages/messages-sorted-year/messages-2024/opens-penuel-retreat-af-12-sep-2024/) | September 12<sup>th</sup>, 2024
 Care Darby Walsh | [Soul hugs](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-12-3-jw-care-darby-walsh/) | September 12<sup>th</sup>, 2024
+Matthew | [I Will Come to Strengthen a Blessing With Each One of You to Invigorate the World](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-12-4-em-matthew/) | September 12<sup>th</sup>, 2024
 Yogananda | [You Are All Holy Ones!](/contemporary-messages/messages-sorted-year/messages-2024/you-are-all-holy-ones-af-13-sep-2024/) | September 13<sup>th</sup>, 2024
 Charlie Chaplin | [Using Humour to Expose Greed, Injustice, and Inequality](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-13-2-jw-charlie-chaplin/) | September 13<sup>th</sup>, 2024
 Fred Rogers | [It Takes a Crew](/contemporary-messages/messages-sorted-year/messages-2024/it-takes-a-crew-jw-14-sept-2024/) | September 14<sup>th</sup>, 2024
 Jesus | [Break the Chains of Darkness and Liberate Your Souls](/contemporary-messages/messages-sorted-year/messages-2024/breaking-the-chains-of-darkness-af-14-sept-2024/) | September 14<sup>th</sup>, 2024
 Aaron | [Angels Cannot Do Their Work Without the Help of Instruments on Earth Who Can be Seen and Heard](/contemporary-messages/messages-sorted-year/messages-2024/angels-need-help-af-14-sep-2024/) | September 14<sup>th</sup>, 2024
+Goldie | [Remember the Wee Ones](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-14-4-em-goldie/) | September 14<sup>th</sup>, 2024
 Judas | [Call on Us When You Are in Need](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-14-5-jw-judas/) | September 14<sup>th</sup>, 2024
 Judas | [Practical Advice is in the Asking](/contemporary-messages/messages-sorted-year/messages-2024/practical-advice-jw-15-sept-2024/) | September 15<sup>th</sup>, 2024
 Jesus | [Comes Right Down to Sit and Pray in Our Circle](/contemporary-messages/messages-sorted-year/messages-2024/comes-to-sit-and-pray-af-15-sep-2024/) | September 15<sup>th</sup>, 2024
 Confucius | [You Have Great Potential](/contemporary-messages/messages-sorted-year/messages-2024/you-have-great-potential-af-15-sep-2024/) | September 15<sup>th</sup>, 2024
 Moses | [You Will Be God’s Children Upon the Earth](/contemporary-messages/messages-sorted-year/messages-2024/you-will-be-gods-children-af-15-sep-2024/) | September 15<sup>th</sup>, 2024
 Augustine | [Ends Penuel Retreat](/contemporary-messages/messages-sorted-year/messages-2024/ends-penuel-retreat-af-15-sep-2024/) | September 15<sup>th</sup>, 2024
+Peter | [Blessing](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-15-6-em-peter/) | September 15<sup>th</sup>, 2024
 Clare of Assisi | [Silence is golden](/contemporary-messages/messages-sorted-year/messages-2024/silence-is-golden-jw-16-sep-2024/) | September 16<sup>th</sup>, 2024
 Orion and Jesus| [You Are Reaching Souls Not Minds](/contemporary-messages/messages-sorted-year/messages-2024/you-are-reaching-souls-not-minds-af-16-sept-2024/) | September 16<sup>th</sup>, 2024
 White Feather | [Focus on God and Put All Distractions Aside](/contemporary-messages/messages-sorted-year/messages-2024/focus-on-god-af-17-sept-2024/) | September 17<sup>th</sup>, 2024
+Joan of Arc | [Open Your Souls Wide to Receive God’s Love](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-17-2-em-joan-of-arc/) | September 17<sup>th</sup>, 2024
 Andrew | [You Are Making an Impact](/contemporary-messages/messages-sorted-year/messages-2024/you-are-making-an-impact-af-18-sep-2024/) | September 18<sup>th</sup>, 2024
+John the Baptist | [Describes the Anticipated Impact and Participants Joining Us in Poughkeepsie](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-19-1-em-john-the-baptist/) | September 19<sup>th</sup>, 2024
 Christine (a stellar being) | [Being Is Our Religion](/contemporary-messages/messages-sorted-year/messages-2024/being-is-our-religion-af-20-sep-2024/) | September 20<sup>th</sup>, 2024
 Orion | [Orion Introduces Himself and His Purpose to Poughkeepsie Retreat](/contemporary-messages/messages-sorted-year/messages-2024/orion-introduces-himself-af-20-sept-2024/) | September 20<sup>th</sup>, 2024
 Yogananda | [Jesus is My Yogi](/contemporary-messages/messages-sorted-year/messages-2024/jesus-is-my-yogi-af-20-sept-2024/) | September 20<sup>th</sup>, 2024
+John the Beloved | [The Source of All Love and Light](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-20-4-em-john-the-beloved/) | September 20<sup>th</sup>, 2024
 Jesus | [Atonement With God](/contemporary-messages/messages-sorted-year/messages-2024/atonement-with-god-af-21-sep-2024/) | September 21<sup>st</sup>, 2024
 Yogananda | [Faith over Fear](/contemporary-messages/messages-sorted-year/messages-2024/faith-over-fear-jw-22-sep-2024/) | September 22<sup>nd</sup>, 2024
 Orion | [Question and Answer for Poughkeepsie Retreat](/contemporary-messages/messages-sorted-year/messages-2024/question-and-answer-af-22-sep-2024/) | September 22<sup>nd</sup>, 2024
 Peter | [Your Blessings Will Not Be Forgotten: Closing Poughkeepsie Retreat](/contemporary-messages/messages-sorted-year/messages-2024/your-blessings-af-22-sep-2024/) | September 22<sup>nd</sup>, 2024
+Augustine | [Closing Circle Poughkeepsie Retreat](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-22-4-em-augustine/) | September 22<sup>nd</sup>, 2024
 Clare of Assisi | [The Highest form of Prayer](/contemporary-messages/messages-sorted-year/messages-2024/the-highest-form-of-prayer-jw-23-sep-2024/) | September 23<sup>rd</sup>, 2024
 Christine | [We Continue to do All We Can to Help You](/contemporary-messages/messages-sorted-year/messages-2024/we-continue-af-23-sep-2024/) | September 23<sup>rd</sup>, 2024
 James Reid | [The Way to the Kingdom](/contemporary-messages/messages-sorted-year/messages-2024/the-way-to-the-kingdom-af-24-sep-2024/) | September 24<sup>th</sup>, 2024
 Jesus | [A Great Light Rains Down Upon Us](/contemporary-messages/messages-sorted-year/messages-2024/a-great-light-rains-af-24-sep-2024/) | September 24<sup>th</sup>, 2024
 Luke | [Spread the Message Far and Wide](/contemporary-messages/messages-sorted-year/messages-2024/spread-the-message-af-24-sep-2024/) | September 24<sup>th</sup>, 2024
 Augustine | [Question & Answer State College Retreat](/contemporary-messages/messages-sorted-year/messages-2024/question-and-answer-af-25-sep-2024/) | September 25<sup>th</sup>, 2024
+John the Beloved | [Marmora Friends are Seeking](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-26-1-em-john-the-beloved/) | September 26<sup>th</sup>, 2024
 Lotus Blossom | [Opens Marmora Retreat for Channels of Light in the World](/contemporary-messages/messages-sorted-year/messages-2024/open-marmora-retreat-af-27-sep-2024/) | September 27<sup>th</sup>, 2024
+Moses | [So Many in This World Need Divine Love Brought to Them](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-27-3-em-moses/) | September 27<sup>th</sup>, 2024
 Jesus | [Jesus Prays to the Father](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-29-1-af-jesus/) | September 29<sup>th</sup>, 2024
+Mary | [Watches Over Parkin House](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-9-29-3-em-mary/) | September 29<sup>th</sup>, 2024
 Judas | [Humility is the Key](/contemporary-messages/messages-sorted-year/messages-2024/humility-is-the-key-jw-30-sep-2024/) | September 30<sup>th</sup>, 2024
 Augustine | [God’s Consciousness is Aware of Everything in His Creation](/contemporary-messages/messages-sorted-year/messages-2024/gods-consciousness-af-1-oct-2024/) | October 1<sup>st</sup>, 2024
 Moses | [Teaching Your Brothers and Sisters](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-10-3-1-em-moses/) | October 3<sup>rd</sup>, 2024
@@ -445,6 +461,7 @@ Judas | [Birthing the Soul](/contemporary-messages/messages-sorted-year/messages
 Mark | [Come Willingly and Openly Asking the Father for His Love, Again and Again](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-11-4-2-em-mark/) | November 4<sup>th</sup>, 2024
 Augustine | [Admonishes Us to Take Responsibility](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-11-5-1-af-augustine/) | November 5<sup>th</sup>, 2024
 Peter & Samuel | [The Power of Divine Love Is a Great Responsibility](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-11-5-3-em-peter-samuel/) | November 5<sup>th</sup>, 2024
+John the Baptist | [Announces He Will Oversee Managing Messages Projects to Further the Dissemination of Divine Love Truths](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-11-7-1-af-john-the-baptist/) | November 7<sup>th</sup>, 2024
 John Hughes | [The Truth of Divine Love](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-11-7-2-em-john-hughes/) | November 7<sup>th</sup>, 2024
 Augustine | [Be a Light and Do Not Get Caught Up in the Darkness and Turmoil in the World](/contemporary-messages/messages-sorted-year/messages-2024/be-a-light-af-8-nov-2024/) | November 8<sup>th</sup>, 2024
 Orion | [Lessons on the Multidimensionality of the Universe](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-11-9-1-af-orion/) | November 9<sup>th</sup>, 2024
