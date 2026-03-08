@@ -47,7 +47,7 @@ Jesus | [Blessing for Barbados Development Group - Standing](/contemporary-messa
 Seretta Kem | [Explains Spirit is Working on Our Central Nervous Systems and Synapses of the Brain for Clearer Communication](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-1-18-1-af-seretta-kem/) | January 18<sup>th</sup>, 2025
 Bartholomew | [Invites Us Into At-Onement with God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-1-19-1-af-bartholomew/) | January 19<sup>th</sup>, 2025
 James | [Know That There Is Much More to Come with Your Prayers, with Your Service, with Your Love Development](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-1-19-2-em-james/) | January 19<sup>th</sup>, 2025
-Keea Atta Kem | [Invites Us Into the Realms of Inner Peace and Wisdom](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-1-19-4-mc-keea-atta-kem/) | January 19<sup>th</sup>, 2025
+Keea Atta Kem | [Invites Us Into the Realms of Inner Peace and Wisdom](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-1-19-3-mc-keea-atta-kem/) | January 19<sup>th</sup>, 2025
 Care Darby Walsh | [My Prayer life](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-1-20-1-jw-care-darby-walsh/) | January 20<sup>th</sup>, 2025
 Matthew | [We Are Part of the Lattice of Light for the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-1-20-2-af-matthew/) | January 20<sup>th</sup>, 2025
 Jesus & Bartholomew | [Auspicious Blessings of God’s Love for a Great Number of Souls on Both Sides of the Veil](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-1-21-1-af-jesus-bartholomew/) | January 21<sup>st</sup>, 2025
