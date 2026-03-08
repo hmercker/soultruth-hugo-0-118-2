@@ -135,7 +135,9 @@ Augustine | [How Do You Know You Are Receiving Divine Love](/contemporary-messag
 Peter | [It’s Not Easy to Build a Church](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-26-1-em-peter/) | April 26<sup>th</sup>, 2022
 Joseph | [Awaken to the Callings of Your Souls](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-27-1-af-joseph/) | April 27<sup>th</sup>, 2022
 Andrew | [Choices](/contemporary-messages/messages-sorted-year/messages-2022/choices-af-29-apr-2022/) | April 29<sup>th</sup>, 2022
+Goldie | [There are no Flags in Heaven](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-29-2-af-goldie/) | April 29<sup>th</sup>, 2022
 Orion | [Will Protect Us Next Few Days in God’s Love](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-30-1-em-orion/) | April 30<sup>th</sup>, 2022
+Augustine | [Reassures Us of Celestial Presence](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-30-2-af-augustine/) | April 30<sup>th</sup>, 2022
 Inayat Khan | [Song of the Heart and the Dance of Love](/contemporary-messages/messages-sorted-year/messages-2022/song-of-the-heart-jw-2-may-2022/) | May 2<sup>nd</sup>, 2022
 Jesus | [The World is a Wounded Place](/contemporary-messages/messages-sorted-year/messages-2022/the-world-is-a-wounded-place-af-2-may-2022/) | May 2<sup>nd</sup>, 2022
 Anna | [The Work in Circles of Light Continues ](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-3-1-af-anna/) | May 3<sup>rd</sup>, 2022
