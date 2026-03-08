@@ -251,7 +251,6 @@ Orion | [Now is the time to be free](/contemporary-messages/messages-sorted-year
 Jesus | [The Door is Opened for Each of Us](/contemporary-messages/messages-sorted-year/messages-2022/the-door-is-opened-for-each-of-us-af-14-aug-2022/) | August 14<sup>th</sup>, 2022
 Jesus | [Lesson 21: The Profound Joys of Soul Awakening!](/contemporary-messages/messages-sorted-year/messages-2022/the-profound-joys-of-soul-awakening-af-16-aug-2022/) | August 16<sup>th</sup>, 2022
 Michael Collier | [How Fortunate You Are to Have Fellowship](/contemporary-messages/messages-sorted-year/messages-2022/how-fortunate-you-are-af-16-aug-2022/) | August 16<sup>th</sup>, 2022
-Orion | [Release All Impediments to Greater Light](/contemporary-messages/messages-sorted-year/messages-2022/release-all-impediments-to-greater-light-af-16-aug-2022/) | August 16<sup>th</sup>, 2022
 Orion | [Release All Impediments to Greater Light](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-8-16-3-af-orion/) | August 16<sup>th</sup>, 2022
 Moses | [We are Being Called to Leadership](/contemporary-messages/messages-sorted-year/messages-2022/we-are-being-called-to-leadership-af-17-aug-2022/) | August 17<sup>th</sup>, 2022
 Andrew | [Seek the Reality of God](/contemporary-messages/messages-sorted-year/messages-2022/seek-the-reality-of-god-af-19-aug-2023/) | August 19<sup>th</sup>, 2022 
