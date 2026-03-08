@@ -81,6 +81,7 @@ Moses | [Our Responsibility to Point the Way to God for Others](/contemporary-me
 Joan of Arc | [We Are So Ready and Willing to Assist You in Expressing Your Gifts](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-2-4-2-em-joan-of-arc/) | February 4<sup>th</sup>, 2024
 Judas | [Intention and Will](/contemporary-messages/messages-sorted-year/messages-2024/intention-and-will-jw-5-feb-2024/) | February 5<sup>th</sup>, 2024
 John the Beloved | [Treasure the Gift God Has Given to You](/contemporary-messages/messages-sorted-year/messages-2024/the-treasure-gift-af-6-feb-2024/) | February 6<sup>th</sup>, 2024
+Orion | [Reinforce the Light and Love Within You](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-2-6-1-af-orion/) | February 6<sup>th</sup>, 2024
 Daniel | [Compliments on Working Together for a Healing](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-2-8-1-em-daniel/) | February 8<sup>th</sup>, 2024
 Augustine | [Always Face the Light of God’s Love](/contemporary-messages/messages-sorted-year/messages-2024/always-face-the-light-af-9-feb-2024/) | February 9<sup>th</sup>, 2024
 Joan of Arc | [God’s Love is Your Birthright](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-2-9-2-em-joan-of-arc/) | February 9<sup>th</sup>, 2024
@@ -528,9 +529,3 @@ Jesus | [New Year’s Eve Blessing](/contemporary-messages/messages-sorted-year/
 Orion | [New Year’s Eve Message](/contemporary-messages/messages-sorted-year/messages-2024/new-years-eve-message-af-31-dec-2024/) | December 31<sup>st</sup>, 2024
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2024/), or to [contemporary messages by year](/contemporary-messages/#a).*
-
-
-
-
-
-

@@ -15,7 +15,7 @@ Barbados Retreat, St Michael, Barbados
 
 Goldie received by Maureen Cardoso
 
-I am Goldie.This dear child of God, who has just spoken from her heart and soul, has lit up the room, has cast a dear and sincere prayer to God and God's response is in motion now.
+I am Goldie. This dear child of God, who has just spoken from her heart and soul, has lit up the room, has cast a dear and sincere prayer to God and God's response is in motion now.
 
 There is something very precious when we have the opportunity to hear the sincere longings that are filled with faith as you pray, as you offer yourself to God in a way so that God can respond deeply and powerfully, filling up all things that you ask for and that you pray for. It lights up our souls to hear the soul of another expressing itself. It brings us joy and joy is a powerful feeling, a soulful expression, a state of being that is attained by the gift of Love and the transformation of soul.
 
