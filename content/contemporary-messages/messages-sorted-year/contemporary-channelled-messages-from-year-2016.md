@@ -83,7 +83,8 @@ Jesus | [On Receiving Guidance](/contemporary-messages/messages-sorted-year/mess
 St Francis of Assisi | [Love is the true currency of life](/contemporary-messages/messages-sorted-year/messages-2016/love-is-the-true-currency-af-4-jul-2016/) | 4th July, 2016
 Augustine | [Choose the Mind or the Soul for your spiritual journey](/contemporary-messages/messages-sorted-year/messages-2016/the-mind-or-the-soul-af-10-july-2016/) | 10th July, 2016  
 Seretta Kem | [Expiation and Purification of the Soul.](/contemporary-messages/messages-sorted-year/messages-2016/expiation-and-purification-of-the-soul-af-13-july-2016/) | 13th July, 2016  
-Seretta Kem | [The Power of Prayers Multiplied](/contemporary-messages/messages-sorted-year/messages-2016/the-power-of-prayers-multiplied-af-13-july-2016/) | 25th July, 2016  
+Seretta Kem | [The Power of Prayers Multiplied](/contemporary-messages/messages-sorted-year/messages-2016/the-power-of-prayers-multiplied-af-13-july-2016/) | 25th July, 2016
+James | [Express the Potentials of your awakening Souls](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-8-16-1-af-james/) | August 16<sup>th</sup>, 2016
 James Padgett | [Each of you experiences God and Truth in a unique way](/contemporary-messages/messages-sorted-year/messages-2016/each-of-you-experiences-god-and-truth-uniquely-af-17-aug-2016/) | 17th August, 2016
 Matthew | [The difference between mind and soul](/contemporary-messages/messages-sorted-year/messages-2016/difference-between-soul-and-mind-af-25-aug-2016/) | 25th August, 2016
 Seretta Kem | [Group Prayer Multiplies Blessings](/contemporary-messages/messages-sorted-year/messages-2016/group-prayer-multiplies-blessings-af-1-sep-2016/) | 1st September, 2016

@@ -57,21 +57,26 @@ Jesus | [Release your Cares to God](/contemporary-messages/messages-sorted-year/
 Luke | [Walk with an Open Heart ](/contemporary-messages/messages-sorted-year/messages-2022/walk-with-an-open-heart-jw-22-feb-2022/) | February 22<sup>nd</sup>, 2022
 Care Darby Walsh | [Walk in Faith ](/contemporary-messages/messages-sorted-year/messages-2022/walk-in-faith-jw-22-feb-2022/) | February 22<sup>nd</sup>, 2022
 Jesus | [Blessing](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-2-22-3-af-jesus/) | February 22<sup>nd</sup>, 2022
+Matthew | [Each One of Us Has a Purpose](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-2-25-2-af-matthew/) | February 25<sup>th</sup>, 2022
 Orion | [Describes Soul Awakening](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-2-26-1-af-orion/) | February 26<sup>th</sup>, 2022
 Jesus | [Do Not Fear, Love will Prevail and Bring Peace](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-2-27-1-af-jesus/) | February 27<sup>th</sup>, 2022
 Judas of Kerioth | [BEING in the state of Grace](/contemporary-messages/messages-sorted-year/messages-2022/being-in-the-state-of-grace-jw-28-feb-2022/) | February 28<sup>th</sup>, 2022
 Clare of Assisi | [That Peace May Prevail](/contemporary-messages/messages-sorted-year/messages-2022/that-peace-may-prevail-jw-1-mar-2022/) | March 1<sup>st</sup>, 2022
 Seretta Kem | [Be True to Your Souls](/contemporary-messages/messages-sorted-year/messages-2022/be-true-to-your-souls-af-1-mar-2022/) | March 1<sup>st</sup>, 2022
 Care Darby Walsh | [No Regrets and Service](/contemporary-messages/messages-sorted-year/messages-2022/no-regrets-and-service-jw-3-mar-2022/) | March 3<sup>rd</sup>, 2022
+Orion | [Our Soul Perceptions are Paramount in the Work Ahead](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-5-1-af-orion/) | March 5<sup>th</sup>, 2022
 Clare of Assisi | [Reaching Out to the World](/contemporary-messages/messages-sorted-year/messages-2022/reaching-out-to-the-world-jw-6-mar-2022/) | March 6<sup>th</sup>, 2022
 Yogananda | [Spiritual Progression ](/contemporary-messages/messages-sorted-year/messages-2022/spiritual-progression-jw-6-mar-2022/) | March 6<sup>th</sup>, 2022
 Rumi | [Let Your Heart take Wings](/contemporary-messages/messages-sorted-year/messages-2022/let-your-heart-take-wings-jw-7-mar-2022/) | March 7<sup>th</sup>, 2022
+Andrew | [Doors are Opening for You](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-7-2-af-andrew/) | March 7<sup>th</sup>, 2022
 Keea Atta Kem | [Our Thoughts are Very Powerful and Manifest in the World](/contemporary-messages/messages-sorted-year/messages-2022/our-thoughts-are-very-powerful-af-8-mar-2022/) | March 8<sup>th</sup>, 2022
 Jesus | [Powerful blessing and reassurance for Soul Awakening Tour](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-10-1-af-jesus/) | March 10<sup>th</sup>, 2022
 Luke | [Spiritual Life is a Struggle](/contemporary-messages/messages-sorted-year/messages-2022/spiritual-life-is-a-struggle-jw-10-mar-2022/) | March 10<sup>th</sup>, 2022
 Augustine | [Time for Enactment of All We Have Been Taught](/contemporary-messages/messages-sorted-year/messages-2022/time-for-enactment-of-all-we-have-been-taught-af-11-mar-2022/) | March 11<sup>th</sup>, 2022
 Augustine | [The Battle Between the Mind and the Soul](/contemporary-messages/messages-sorted-year/messages-2022/battle-between-mind-and-soul-af-12-mar-2022/) | March 12<sup>th</sup>, 2022
 Yogananda | [Discusses Qualities of Light](/contemporary-messages/messages-sorted-year/messages-2022/discusses-qualities-of-light-af-12-mar-2022/) | March 12<sup>th</sup>, 2022
+Care Darby Walsh | [Treasure Your Times Together](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-12-3-af-care-darby-walsh/) | March 12<sup>th</sup>, 2022
+Mary | [Blessings for the Days to Come](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-12-4-af-mary/) | March 12<sup>th</sup>, 2022
 Samuel | [The Embers of Love Burning in Your Souls Are Felt Around the World](/contemporary-messages/messages-sorted-year/messages-2022/embers-of-love-af-13-mar-2022/) | March 13<sup>th</sup>, 2022
 Francis of Assisi | [It is only a Matter of Grace](/contemporary-messages/messages-sorted-year/messages-2022/it-is-only-a-matter-of-grace-jw-14-mar-2022/) | March 14<sup>th</sup>, 2022
 Eileen Caddy | [Guidance, Vision, and Actualization](/contemporary-messages/messages-sorted-year/messages-2022/guidance-vision-and-actualisation-jw-15-mar-2022/) | March 15<sup>th</sup>, 2022
@@ -84,18 +89,36 @@ Care Walsh | [Leave behind that which is not worthy of your future walk !](/cont
 Judas of Kerioth | [Revisit Celestial Messages](/contemporary-messages/messages-sorted-year/messages-2022/revisit-celestial-messages-jw-22-mar-2022/) | March 22<sup>nd</sup>, 2022
 Augustine | [Encouragement for our Retreat](/contemporary-messages/messages-sorted-year/messages-2022/encouragement-for-our-retreat-af-23-mar-2022/) | March 23<sup>rd</sup>, 2022
 Mary | [God’s Intention is for all souls to be in Grace](/contemporary-messages/messages-sorted-year/messages-2022/gods-intention-af-24-mar-2022/) | March 24<sup>th</sup>, 2022
+Augustine | [Welcomes First Guest to Arrive at Monroeville Retreat](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-25-1-af-augustine/) | March 25<sup>th</sup>, 2022
+Jesus | [Your Perceptions are Limited by Your Minds](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-25-2-af-jesus/) | March 25<sup>th</sup>, 2022
+Matthew | [Your Prayers Help Raise World Consciousness](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-26-1-af-matthew/) | March 26<sup>th</sup>, 2022
+Orion | [Go to that Place of Soul Beyond the Mind Where All will be Revealed](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-26-2-af-orion/) | March 26<sup>th</sup>, 2022
+Isaiah | [We are All Being Called into Service](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-27-1-af-isaiah/) | March 27<sup>th</sup>, 2022
+Andrew | [Our Relationship with God](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-27-2-af-andrew/) | March 27<sup>th</sup>, 2022
+Joseph | [Awaken to the Callings of Your Souls](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-27-1-af-joseph/) | April 27<sup>th</sup>, 2022
 Francis of Assisi | [Blossom in the Bounty of God’s Love](/contemporary-messages/messages-sorted-year/messages-2022/blossom-in-the-bounty-of-gods-love-jw-28-mar-2022/) | March 28<sup>th</sup>, 2022
+Jesus | [Step Forward in Service](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-28-2-af-jesus/) | March 28<sup>th</sup>, 2022
+Mylora | [Stepping Forward in Service](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-28-3-af-mylora/) | March 28<sup>th</sup>, 2022
 Josephus | [Warning and Reassurance for Earth Changes Becoming More Intense](/contemporary-messages/messages-sorted-year/messages-2022/earth-changes-becoming-more-intense-af-29-mar-2022/) | March 29<sup>th</sup>, 2022
+Goldie | [There are no Flags in Heaven](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-29-2-af-goldie/) | April 29<sup>th</sup>, 2022
 Matthew | [Encourages Collaboration in Forming the Nucleus of Light](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-30-1-af-matthew/) | March 30<sup>th</sup>, 2022
+Augustine | [Reassures Us of Celestial Presence](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-30-2-af-augustine/) | April 30<sup>th</sup>, 2022
+Mylora | [Blessings](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-3-30-2-af-mylora/) | March 30<sup>th</sup>, 2022
 Orion | [Orion Introduces Himself and His Purpose to the Group](/contemporary-messages/messages-sorted-year/messages-2022/orion-introduces-himself-af-3-apr-2022/) | April 3<sup>rd</sup>, 2022
+Professor Salyards | [More on Preparing for Earth Changes in Times to Come](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-3-2-af-professor-salyards/) | April 3<sup>rd</sup>, 2022
 Care Darby Walsh | [Enjoy each moment of Soul Longing in Prayer](/contemporary-messages/messages-sorted-year/messages-2022/enjoy-each-moment-of-soul-longing-in-prayer-jw-5-apr-2022/) | April 5<sup>th</sup>, 2022
 Jesus | [Examine Your Heart](/contemporary-messages/messages-sorted-year/messages-2022/examine-your-heart-jw-7-apr-2022/) | April 7<sup>th</sup>, 2022
+Bartholomew | [Soul Awakening and Transformation is Coming](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-9-1-af-bartholomew/) | April 9<sup>th</sup>, 2022
 Augustine | [Augustine dispels reincarnation](/contemporary-messages/messages-sorted-year/messages-2022/dispels-reincarnation-af-10-apr-2022/) | April 10<sup>th</sup>, 2022
 Keea Atta Kem | [Blessings](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-11-1-af-keea-atta-kem/) | April 11<sup>th</sup>, 2022
 Care Darby Walsh | [Fasting from the Drama](/contemporary-messages/messages-sorted-year/messages-2022/fasting-from-the-drama-jw-11-apr-2022/) | April 11<sup>th</sup>, 2022
 Bartholomew | [Instructions for Work Ahead](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-11-3-af-bartholomew/) | April 11<sup>th</sup>, 2022
 Goldie | [We All Receive Guidance, Aware of it or Not](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-12-1-af-goldie/) | April 12<sup>th</sup>, 2022
 Claire | [The Depth of your Desire](/contemporary-messages/messages-sorted-year/messages-2022/the-depth-of-your-desire-jw-12-apr-2022/) | April 12<sup>th</sup>, 2022
+Jesus | [Guidance for our Service to God](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-12-3-af-jesus/) | April 12<sup>th</sup>, 2022
+Thomas Aquinas | [The Wonder of Soul Awakening and Importance of Expiation](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-13-1-af-thomas-aquinas/) | April 13<sup>th</sup>, 2022
+Andrew | [Service to God](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-14-1-af-andrew/) | April 14<sup>th</sup>, 2022
+Grace Jordan | [David’s Mother](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-16-2-af-grace-jordan/) | April 16<sup>th</sup>, 2022
 Robert Hugh Benson | [Mental Belief and Soul Perception](/contemporary-messages/messages-sorted-year/messages-2022/mental-belief-and-soul-perception-jw-18-apr-2022/) | April 18<sup>th</sup>, 2022
 Goldie | [Be Joyful in God’s Love](/contemporary-messages/messages-sorted-year/messages-2022/be-joyful-in-gods-love-af-18-apr-2022/) | April 18<sup>th</sup>, 2022
 Luke | [Your Souls Begin to Awaken to Your Gifts](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-18-3-af-luke/) | April 18<sup>th</sup>, 2022
@@ -105,6 +128,7 @@ Orion | [A Serious Talk About Economic Collapse and Raising Consciousness on Ear
 Joseph | [Blessings for Everyone on the Ship](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-20-2-em-joseph/) | April 20<sup>th</sup>, 2022
 Anna | [Working Behind the Scenes](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-21-1-em-anna/) | April 21<sup>st</sup>, 2022
 Mary | [Priceless Jewels on the Sea](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-22-1-em-mary/) | April 22<sup>nd</sup>, 2022
+Copernicus | [Speaks of the Quantum Leap Humanity is About to Take in Soul Awareness](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-22-2-af-copernicus/) | April 22<sup>nd</sup>, 2022
 Peter | [Fishing for Souls in Puenta Delgado](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-24-1-em-peter/) | April 24<sup>th</sup>, 2022
 Inayat Khan | [Keep a song in your heart](/contemporary-messages/messages-sorted-year/messages-2022/keep-a-song-in-your-heart-jw-25-apr-2022/) | April 25<sup>th</sup>, 2022
 Augustine | [How Do You Know You Are Receiving Divine Love](/contemporary-messages/messages-sorted-year/messages-2022/receiving-divine-love-af-25-apr-2022/) | April 25<sup>th</sup>, 2022
@@ -113,10 +137,14 @@ Andrew | [Choices](/contemporary-messages/messages-sorted-year/messages-2022/cho
 Orion | [Will Protect Us Next Few Days in God’s Love](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-30-1-em-orion/) | April 30<sup>th</sup>, 2022
 Inayat Khan | [Song of the Heart and the Dance of Love](/contemporary-messages/messages-sorted-year/messages-2022/song-of-the-heart-jw-2-may-2022/) | May 2<sup>nd</sup>, 2022
 Jesus | [The World is a Wounded Place](/contemporary-messages/messages-sorted-year/messages-2022/the-world-is-a-wounded-place-af-2-may-2022/) | May 2<sup>nd</sup>, 2022
+Anna | [The Work in Circles of Light Continues ](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-3-1-af-anna/) | May 3<sup>rd</sup>, 2022
+Faith Nyquist | [This Country is in Great Need of our Prayers](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-5-1-af-faith-nyquist/) | May 5<sup>th</sup>, 2022
 Orion | [Here to Assist in Singleness of Purpose](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-6-1-af-orion/) | May 6<sup>th</sup>, 2022
 James & John the Beloved | [You Are Blessed Beyond Comprehension](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-6-2-em-james-john-the-beloved/) | May 6<sup>th</sup>, 2022
 Praying Bill | [We Are All Praying for the World Healing Center Portal](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-6-3-em-praying-bill/) | May 6<sup>th</sup>, 2022
 Goldie | [Asks us to Lay Flowers at the Altar of WHC](/contemporary-messages/messages-sorted-year/messages-2022/lay-flowers-at-the-altar-af-7-may-2022/) | May 7<sup>th</sup>, 2022
+Geo | [Has Come to Help Earth From Another Planet](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-7-2-af-geo/) | May 7<sup>th</sup>, 2022
+Orion | [Announces His Presence and Other Stellar Beings Here to Help Us on Earth](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-7-3-af-orion/) | May 7<sup>th</sup>, 2022
 Amon | [When you Shine the Light of God’s love](/contemporary-messages/messages-sorted-year/messages-2022/shine-the-light-of-gods-love-jw-8-may-2022/) | May 8<sup>th</sup>, 2022
 Care Darby Walsh | [Let Your Vision become an Actuality](/contemporary-messages/messages-sorted-year/messages-2022/let-your-vision-become-an-actuality-jw-8-may-2022/) | May 8<sup>th</sup>, 2022
 Michael Collier | [Answer the Invitation to Serve God](/contemporary-messages/messages-sorted-year/messages-2022/answer-the-invitation-to-serve-god-af-8-may-2022/) | May 8<sup>th</sup>, 2022
@@ -124,9 +152,12 @@ Orion | [The Essence of God Permeates the Universe](/contemporary-messages/messa
 Yogananda | [Drown in the Sea of Love](/contemporary-messages/messages-sorted-year/messages-2022/drown-in-a-sea-of-love-jw-10-may-2022/) | May 10<sup>th</sup>, 2022
 Orion | [Orion introduces Himself to Bill and Freda](/contemporary-messages/messages-sorted-year/messages-2022/orion-introduces-himself-to-bill-and-freda-af-10-may-2022/) | May 10<sup>th</sup>, 2022
 Jesus | [Blessing for Bill and Freda's Group](/contemporary-messages/messages-sorted-year/messages-2022/blessings-for-bill-and-fredas-group-af-11-may-2022/) | May 11<sup>th</sup>, 2022
+Jesus | [Opening Blessing for Portal at Les Chapel Monnaie](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-13-1-af-jesus/) | May 13<sup>th</sup>, 2022
+Goldie | [Bring Flowers to Les Chapel Monnaie](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-13-2-af-goldie/) | May 13<sup>th</sup>, 2022
 Mary | [Mary Comes to Uplift and Bless at Les Chapel Monet Guernsey](/contemporary-messages/messages-sorted-year/messages-2022/mary-comes-to-uplift-and-bless-af-14-may-2022/) | May 14<sup>th</sup>, 2022
 Orion | [We are All Brothers and Sisters Because We Possess a Soul ](/contemporary-messages/messages-sorted-year/messages-2022/we-are-all-brothers-and-sisters-because-we-possess-a-soul-af-14-may-2022/) | May 14<sup>th</sup>, 2022
 Orion | [Questions and Answers](/contemporary-messages/messages-sorted-year/messages-2022/questions-and-answers-af-14-may-2022/) | May 14<sup>th</sup>, 2022
+Francis of Assisi | [Comes Because of His Love for Humanity ](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-14-4-af-francis-of-assisi/) | May 14<sup>th</sup>, 2022
 Yogananda | [Consciousness of God](/contemporary-messages/messages-sorted-year/messages-2022/consciousness-of-god-jw-15-may-2022/) | May 15<sup>th</sup>, 2022
 Nicola Tesla | [Discourse on Spirit and the Power of Love](/contemporary-messages/messages-sorted-year/messages-2022/discourse-on-spirit-and-the-power-of-love-af-15-may-2022/) | May 15<sup>th</sup>, 2022
 Augustine | [Join God's Tapestry of Beautiful Souls](/contemporary-messages/messages-sorted-year/messages-2022/join-gods-tapestry-of-souls-af-15-may-2022/) | May 15<sup>th</sup>, 2022
@@ -134,10 +165,13 @@ Orion | [Technology from Orion’s Planet Must Be Earned by Pure Intentions](/co
 Queen Victoria | [Desires Harmony, Light, Love and Joy for All in Her Country](/contemporary-messages/messages-sorted-year/messages-2022/queen-victoria-desires-harmony-light-love-and-joy-for-her-country-af-15-may-2022/) | May 15<sup>th</sup>, 2022
 St George | [Our Nation is in Great Need of Upliftment](/contemporary-messages/messages-sorted-year/messages-2022/our-nation-is-in-great-need-of-upliftment-af-15-may-2022/) | May 15<sup>th</sup>, 2022
 Andrew | [Continue to bring out the Truth](/contemporary-messages/messages-sorted-year/messages-2022/continue-to-bring-out-the-truth-af-20-may-2022/) | May 20<sup>th</sup>, 2022
+Jesus | [Brings an Everlasting Gift to Our Souls](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-20-2-af-jesus/) | May 20<sup>th</sup>, 2022
 Professor Salyards | [Congratulations on Your Efforts](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-21-1-af-professor-salyards/) | May 21<sup>st</sup>, 2022
 Orion | [We are Still with You for Your Development](/contemporary-messages/messages-sorted-year/messages-2022/we-are-still-with-you-for-your-development-af-21-may-2022/) | May 21<sup>st</sup>, 2022
 Jesus | [Brings his Blessings and prays with us for Divine Love](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-22-1-af-jesus/) | May 22<sup>nd</sup>, 2022
 John the Beloved | [God whispers to our souls so that he can work through us](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-24-1-af-john-the-beloved/) | May 24<sup>th</sup>, 2022
+Michael Collier | [Journey of Soul Consciousness](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-27-1-af-michael-collier/) | May 27<sup>th</sup>, 2022
+Jesus | [We are All Part of the Coming Transition of the World](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-5-29-1-af-jesus/) | May 29<sup>th</sup>, 2022
 Yogananda | [The Gift of Giving in God’s love](/contemporary-messages/messages-sorted-year/messages-2022/the-gift-of-giving-in-gods-love-jw-31-may-2022/) | May 31<sup>st</sup>, 2022
 Moses | [Comes to Uphold Us and Light up Our Path](/contemporary-messages/messages-sorted-year/messages-2022/lights-up-our-path-af-31-may-2022/) | May 31<sup>st</sup>, 2022
 Matthew | [Be an Expression of God’s Love and Light](/contemporary-messages/messages-sorted-year/messages-2022/be-an-expression-of-gods-love-af-31-may-2022/) | May 31<sup>st</sup>, 2022
@@ -169,6 +203,7 @@ Jesus | [Lesson 6: The Nature of Reality](/contemporary-messages/messages-sorted
 Judas | [The Hunger of the Soul](/contemporary-messages/messages-sorted-year/messages-2022/the-hunger-of-the-soul-jw-4-jul-2022/) | July 4<sup>th</sup>, 2022
 Jesus | [Lesson 7: The Nature of Our Growing Soul ](/contemporary-messages/messages-sorted-year/messages-2022/the-nature-of-our-growing-soul-af-5-jul-2022/) | July 5<sup>th</sup>, 2022
 Care Darby Walsh | [Any moment can be a prompt to be in Grace](/contemporary-messages/messages-sorted-year/messages-2022/any-moment-can-be-in-grace-jw-5-jul-2022/) | July 5<sup>th</sup>, 2022
+Andrew | [We Are All Loved](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-7-5-4-af-andrew/) | July 5<sup>th</sup>, 2022
 Jesus | [Lesson 8: Reflects on Our Collective Barriers to Soul Consciousness in the Human Condition](/contemporary-messages/messages-sorted-year/messages-2022/barriers-to-soul-consciousness-af-8-jul-2022/) | July 8<sup>th</sup>, 2022
 Charlie Chaplin | [Remember the light at the end of the tunnel ](/contemporary-messages/messages-sorted-year/messages-2022/remember-the-light-at-the-end-of-the-tunnel-jw-11-jul-2022/) | July 11<sup>th</sup>, 2022
 Jesus | [Lesson 9: Soul Consciousness is the Key to the Birthing of a New World](/contemporary-messages/messages-sorted-year/messages-2022/soul-consciousness-is-the-key-af-11-jul-2022/) | July 11<sup>th</sup>, 2022
@@ -180,6 +215,7 @@ Jesus | [Lesson 11: The Nature of Mind and Soul Consciousness](/contemporary-mes
 Yogananda | [With God everything is possible](/contemporary-messages/messages-sorted-year/messages-2022/with-god-everything-is-possible-jw-19-jul-2022/) | July 19<sup>th</sup>, 2022
 Judas of Kerioth | [Have Faith](/contemporary-messages/messages-sorted-year/messages-2022/have-faith-jw-19-jul-2022/) | July 19<sup>th</sup>, 2022
 Orion | [Will Write a Book About Life on His Planet Through Al](/contemporary-messages/messages-sorted-year/messages-2022/orion-will-write-a-book-af-19-jul-2022/) | July 19<sup>th</sup>, 2022
+Faith Nyquist | [Pray for Those in the Light](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-7-19-4-af-faith-nyquist/) | July 19<sup>th</sup>, 2022
 Jesus | [Lesson 12: The Meandering Road of the Human Condition](/contemporary-messages/messages-sorted-year/messages-2022/the-meandering-road-of-the-human-condition-af-20-jul-2022/) | July 20<sup>th</sup>, 2022
 Care Darby Walsh | [Fall into Grace](/contemporary-messages/messages-sorted-year/messages-2022/fall-into-grace-jw-20-jul-2022/) | July 20<sup>th</sup>, 2022
 Andrew | [The Waves of Change are Imminent](/contemporary-messages/messages-sorted-year/messages-2022/the-waves-of-change-are-imminent-af-20-jul-2022/) | July 20<sup>th</sup>, 2022
@@ -188,6 +224,7 @@ Jesus | [Keeps His Commitment to All of Us and Adds a Lasting Blessing](/contemp
 Thomas the Apostle | [The Soul Touched by God is the real Proof](/contemporary-messages/messages-sorted-year/messages-2022/the-soul-touched-by-god-is-the-real-proof-jw-25-jul-2022/) | July 25<sup>th</sup>, 2022
 Jesus | [Lesson 14: How the Soul and the Mind deal with Desire](/contemporary-messages/messages-sorted-year/messages-2022/mind-soul-and-desire-af-26-jul-2022/) | July 26<sup>th</sup>, 2022
 Professor Salyards | [Changes in the World](/contemporary-messages/messages-sorted-year/messages-2022/changes-in-the-world-af-26-jul-2022/) | July 26<sup>th</sup>, 2022
+Augustine | [More Prayer is Required to Bring Through Direct Voice](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-7-26-3-af-augustine/) | July 26<sup>th</sup>, 2022
 Jesus | [Lesson 15: The expansion of Soul Consciousness With Divine Love](/contemporary-messages/messages-sorted-year/messages-2022/expansion-of-soul-consciousness-af-28-jul-2022/) | July 28<sup>th</sup>, 2022
 Seretta Kem | [Healing With Rainbow Colors](/contemporary-messages/messages-sorted-year/messages-2022/healing-with-rainbow-colors-af-29-jul-2022/) | July 29<sup>th</sup>, 2022
 Jesus | [We Will Walk Amongst You as Mortals Do](/contemporary-messages/messages-sorted-year/messages-2022/we-will-walk-amongst-you-af-30-jul-2022/) | July 30<sup>th</sup>, 2022
@@ -198,6 +235,7 @@ Jesus | [Lesson 17: Psychic and Deeper Spiritual Gifts are Available to All](/co
 Professor Salyards | [Pat Yourselves on the Back!](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-8-6-1-af-professor-salyards/) | August 6<sup>th</sup>, 2022
 Orion | [Be Aware of Your Fears and Confront Your Barriers](/contemporary-messages/messages-sorted-year/messages-2022/be-aware-of-your-fears-af-6-aug-2022/) | August 6<sup>th</sup>, 2022
 Jesus | [Lesson 18: Overcoming the Spiritual Immaturity of Humanity](/contemporary-messages/messages-sorted-year/messages-2022/overcoming-spiritual-immaturity-af-8-aug-2022/) | August 8<sup>th</sup>, 2022
+Jesus | [We Enliven the Lattice of Light as We Pray for God’s Love](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-8-8-2-af-jesus/) | August 8<sup>th</sup>, 2022
 Augustine | [The Will of God and the Will of Man](/contemporary-messages/messages-sorted-year/messages-2022/the-will-of-god-and-the-will-of-man-af-9-aug-2022/) | August 9<sup>th</sup>, 2022
 Professor Salyards | [Angels Seek to Work With our Soul Minds as They Nurture Us](/contemporary-messages/messages-sorted-year/messages-2022/angels-seek-to-work-with-our-minds-af-9-aug-2022/) | August 9<sup>th</sup>, 2022
 Jesus | [Have Compassion and Do Not Judge Your Brothers and Sisters](/contemporary-messages/messages-sorted-year/messages-2022/do-not-judge-your-brothers-and-sisters-af-9-aug-2022/) | August 9<sup>th</sup>, 2022
@@ -211,6 +249,7 @@ Jesus | [The Door is Opened for Each of Us](/contemporary-messages/messages-sort
 Jesus | [Lesson 21: The Profound Joys of Soul Awakening!](/contemporary-messages/messages-sorted-year/messages-2022/the-profound-joys-of-soul-awakening-af-16-aug-2022/) | August 16<sup>th</sup>, 2022
 Michael Collier | [How Fortunate You Are to Have Fellowship](/contemporary-messages/messages-sorted-year/messages-2022/how-fortunate-you-are-af-16-aug-2022/) | August 16<sup>th</sup>, 2022
 Orion | [Release All Impediments to Greater Light](/contemporary-messages/messages-sorted-year/messages-2022/release-all-impediments-to-greater-light-af-16-aug-2022/) | August 16<sup>th</sup>, 2022
+Orion | [Release All Impediments to Greater Light](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-8-16-3-af-orion/) | August 16<sup>th</sup>, 2022
 Moses | [We are Being Called to Leadership](/contemporary-messages/messages-sorted-year/messages-2022/we-are-being-called-to-leadership-af-17-aug-2022/) | August 17<sup>th</sup>, 2022
 Andrew | [Seek the Reality of God](/contemporary-messages/messages-sorted-year/messages-2022/seek-the-reality-of-god-af-19-aug-2023/) | August 19<sup>th</sup>, 2022 
 Orion | [Transformation](/contemporary-messages/messages-sorted-year/messages-2022/transformation-af-2-aug-2022/) | August 20<sup>th</sup>, 2022
@@ -218,6 +257,7 @@ Jesus | [Lesson 22: Faith Can Remove Impediments to Knowing God](/contemporary-m
 Care Darby Walsh | [Many Ways to give Love](/contemporary-messages/messages-sorted-year/messages-2022/many-ways-to-give-love-jw-22-aug-2022?) | August 22<sup>nd</sup>, 2022
 Judas | [Every Crisis is an Opportunity](/contemporary-messages/messages-sorted-year/messages-2022/every-crisis-is-an-opportunity-jw-23-aug-2022/) | August 23<sup>rd</sup>, 2022
 Orion | [Much is Required to Usher Greater Light into the World](/contemporary-messages/messages-sorted-year/messages-2022/ushering-in-greater-light-af-23-aug-2022/) | August 23<sup>rd</sup>, 2022
+Elijah | [A Safe Raft for Stormy Seas Ahead ](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-8-23-3-af-elijah/) | August 23<sup>rd</sup>, 2022
 Jesus | [Lesson 23: The Road to Truth](/contemporary-messages/messages-sorted-year/messages-2022/the-road-to-truth-af-24-aug-2022/) | August 24<sup>th</sup>, 2022
 Professor Salyards | [Creating Avenues of Love](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-8-25-1-af-professor-salyards/) | August 25<sup>th</sup>, 2022
 Jesus | [Lesson 24: The Conclusion of the Series on Our World in Transition](/contemporary-messages/messages-sorted-year/messages-2022/conclusion-our-world-in-transition-af-26-aug-2022/) | August 26<sup>th</sup>, 2022
@@ -238,7 +278,9 @@ Yogananda | [Allow your souls to inform your minds](/contemporary-messages/messa
 Eileen Caddy | [How to be in the world and not of it](/contemporary-messages/messages-sorted-year/messages-2022/how-to-be-in-the-world-and-not-of-it-jw-19-sep-2022/) | September 19<sup>th</sup>, 2022
 Judas of Kerioth | [Faith, Responsibility, and Dedication](/contemporary-messages/messages-sorted-year/messages-2022/faith-responsibility-and-dedication-jw-20-sep-2022/) | September 20<sup>th</sup>, 2022
 Ann Rollins | [Our Soul’s Unique Journey to God](/contemporary-messages/messages-sorted-year/messages-2022/our-unique-journey-to-god-af-sep-2022/) | September 20<sup>th</sup>, 2022
+Keea Atta Kem | [Deep Blessing of Peace and Love](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-9-20-3-af-keea-atta-kem/) | September 20<sup>th</sup>, 2022
 Professor Salyards | [This your mandate](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-9-22-1-af-professor-salyards/) | September 22<sup>nd</sup>, 2022
+Jesus | [Uses Every Opportunity to Minister to Dark Spirits](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-9-23-1-af-jesus/) | September 23<sup>rd</sup>, 2022
 Jesus | [We Have a Role to Play in God's Plan](/contemporary-messages/messages-sorted-year/messages-2022/we-have-a-role-to-play-af-24-sep-2022/) | September 24<sup>th</sup>, 2022
 Moses | [We Are Called to be Leaders in the World](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-9-25-1-af-moses/) | September 25<sup>th</sup>, 2022
 Yogananda | [The Struggle for Spirituality is the Same Through the Ages](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-9-25-2-af-yogananda/) | September 25<sup>th</sup>, 2022

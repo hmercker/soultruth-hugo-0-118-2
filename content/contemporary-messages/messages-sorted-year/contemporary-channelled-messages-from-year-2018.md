@@ -39,12 +39,14 @@ Keea Atta Kem | [May Each Moment of Life Bring a Choice to be Closer to God](/co
 Augustine | [The Voice of the Soul Will Guide You to Enact the Will of God](/contemporary-messages/messages-sorted-year/messages-2018/the-voice-of-the-soul-will-guide-you-af-16-feb-2018/) | February 16th, 2018
 Jesus | [Your Efforts Will Make This Church a Centre of Light](/contemporary-messages/messages-sorted-year/messages-2018/your-efforts-in-this-church-af-16-feb-2018/) | February 16th, 2018
 Matthew | [Seek to Know God and You Shall be a Channel of Love](/contemporary-messages/messages-sorted-year/messages-2018/seek-to-know-god-af-16-feb-2018/) | February 16th, 2018
+Goldie | [Bring Music!](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-2-16-4-af-goldie/) | February 16<sup>th</sup>, 2018
 Mary | [I Walk With You, Be at Peace](/contemporary-messages/messages-sorted-year/messages-2018/i-walk-with-you-af-17-feb-2018/) | February 17th, 2018
 Thomas Aquinas | [Will You Choose to Begin the Journey of Soul Awakening?](/contemporary-messages/messages-sorted-year/messages-2018/will-you-choose-to-begin-af-17-feb-2018/) | February 17th, 2018
 Mathew | [Choose The Straight Path](/contemporary-messages/messages-sorted-year/messages-2018/choose-the-straight-path-af-18-feb-2018/) | February 18th, 2018
 Augustine | [Seek God’s Love to Awaken Your Souls](/contemporary-messages/messages-sorted-year/messages-2018/seek-gods-love-af-20-feb-2018/) | February 20th, 2018
 Jesus | [Love is the Key to Fulfillment, Joy and Peace](/contemporary-messages/messages-sorted-year/messages-2018/love-is-the-key-af-20-feb-2018/) | February 20th, 2018
 Isaiah | [God's Love will open up your understandings](/contemporary-messages/messages-sorted-year/messages-2018/gods-love-will-open-understandings-af-21-feb-2018/) | February 21st, 2018
+Andrew | [The Great Family of God’s Love](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-2-21-2-af-andrew/) | February 21<sup>st</sup>, 2018
 Augustine | [A Journey of Service](/contemporary-messages/messages-sorted-year/messages-2018/a-journey-of-service-af-22-feb-2018/) | February 22nd, 2018
 Goldie | [Bring Music!](/contemporary-messages/messages-sorted-year/messages-2018/bring-music-af-23-feb-2018/) | February 23rd, 2018
 Jesus | [The Work Begins](/contemporary-messages/messages-sorted-year/messages-2018/the-work-begins-af-23-feb-2018/) | February 23rd, 2018
@@ -306,9 +308,8 @@ Luke | [The Importance of Circles of Light](/contemporary-messages/messages-sort
 Andrew | [Still Time to Awaken Your souls Through God’s Love](/contemporary-messages/messages-sorted-year/messages-2018/still-time-to-awaken-your-souls-af-1-dec-2018/) | December 1st, 2018
 Augustine | [Discourse on Truth - Part 2](/contemporary-messages/messages-sorted-year/messages-2018/discourse-on-truth-part-2-af-2-dec-2018/) | December 2nd, 2018
 Seretta Kem | [You Continue to Build the Lattice of Light in Your World](/contemporary-messages/messages-sorted-year/messages-2018/you-continue-to-build-a-lattice-of-light-af-9-dec-2018/) | December 9th, 2018
-Mary | [Many believe that their Mind brings Soul Consciousness](/contemporary-messages/messages-sorted-year/messages-2018/many-believe-that-their-mind-brings-soul-conciousness-af-17-dec-2018/) | December 17th, 2018  
-  
-
+Mary | [Many believe that their Mind brings Soul Consciousness](/contemporary-messages/messages-sorted-year/messages-2018/many-believe-that-their-mind-brings-soul-conciousness-af-17-dec-2018/) | December 17th, 2018
+Keea Atta Kem | [The Lattice of Light is a Magnificent Support For Spiritual Growth](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-12-30-4-mc-keea-atta-kem/) | December 30<sup>th</sup>, 2018
 
 #### [Link to Year 2019](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2019/)
 

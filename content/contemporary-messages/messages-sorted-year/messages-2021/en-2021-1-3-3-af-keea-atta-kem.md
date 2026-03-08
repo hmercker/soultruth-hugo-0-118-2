@@ -13,7 +13,7 @@ January 3<sup>rd</sup>, 2021
 
 Abbotsford, BC, Canada 
 
-Keea Atta Kem received by Al Fike
+Keea Atta Kem received by Maureen Cardoso
 
 God bless you, dear souls, I am Keea. You desire a transformation of your soul, and I am here to say that this is well underway. For it is by the Grace and the workings of the Divine Essence, the very substance of the Creator that lives in your soul, that changes you, causes the transformation, brings a great awakening and strength to your soul, and profound change. This is underway in each and every one of you. You recognize this change where, if you were to look back on the year that you have all come through, from the beginning until now, and observe and reflect upon how the Divine Essence has brought forth harmony into your daily existence, helping change your perspectives, broadening your views, opening your mind to greater possibilities, it is then easier for you to observe the permanent change that has occurred. If you continue to draw this Divine Essence into your soul, its workings will continue to perpetuate further change.
 

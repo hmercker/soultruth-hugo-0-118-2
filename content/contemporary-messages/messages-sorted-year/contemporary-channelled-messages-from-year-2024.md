@@ -27,6 +27,8 @@ Jesus | [The Veil is Being Lifted for Trinidad Retreat](/contemporary-messages/m
 Bartholomew | [I am the Patron of the Caribbean Isles](/contemporary-messages/messages-sorted-year/messages-2024/i-am-patron-af-6-jan-2024/) | January 6<sup>th</sup>, 2024
 Francis of Assisi | [May We Be Transformed by the Gift of God’s Love](/contemporary-messages/messages-sorted-year/messages-2024/may-we-be-transformed-af-6-jan-2024/) | January 6<sup>th</sup>, 2024
 Mary | [My Love for Each of You is Great](/contemporary-messages/messages-sorted-year/messages-2024/my-love-is-great-af-6-jan-2024/) | January 6<sup>th</sup>, 2024
+Jesus | [May We Be Transformed by the Gift of God’s Love](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-1-6-4-af-jesus/) | January 6<sup>th</sup>, 2024
+Yogananda | [I am Redeemed by the Gift of God’s Love](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-1-6-5-af-yogananda/) | January 6<sup>th</sup>, 2024
 Bartholomew | [Open Your Souls to be Healed](/contemporary-messages/messages-sorted-year/messages-2024/open-your-souls-af-7-jan-2024/) | January 7<sup>th</sup>, 2024
 Francis of Assisi | [Stay in Grace](/contemporary-messages/messages-sorted-year/messages-2024/stay-in-grace-jw-8-jan-2024/) | January 8<sup>th</sup>, 2024
 Confucius | [Blessings of Portals for All Who Reside Here](/contemporary-messages/messages-sorted-year/messages-2024/blessings-of-portals-for-all-who-reside-here-af-9-jan-2024/) | January 9<sup>th</sup>, 2024
@@ -131,6 +133,7 @@ Yogananda | [Follow Your Dreams](/contemporary-messages/messages-sorted-year/mes
 Orion | [Orion Introduces Himself and The Intentions of Stellar Friends to Help Us Through the Transformation of the World](/contemporary-messages/messages-sorted-year/messages-2024/the-intentions-of-stellar-friends-af-4-mar-2024/) | March 4<sup>th</sup>, 2024
 John the Beloved | [God’s Divine Love is More Pervasive, More Powerful, So Much More Loving Than Anything](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-3-4-3-em-john-the-beloved/) | March 4<sup>th</sup>, 2024
 Mary | [A Gift of Healing](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-3-7-1-em-mary/) | March 7<sup>th</sup>, 2024
+Matthew | [Introduces Himself as Another Guide of Peter’s](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-3-8-1-af-matthew/) | March 8<sup>th</sup>, 2024
 Augustine | [There is a Flexible Plan for Our Time Together](/contemporary-messages/messages-sorted-year/messages-2024/a-flexible-plan-af-8-mar-2024/) | March 8<sup>th</sup>, 2024
 Immanuel | [Speaks of the Beauty of the Garden of our Souls](/contemporary-messages/messages-sorted-year/messages-2024/speaks-of-beauty-af-8-mar-2024/) | March 8<sup>th</sup>, 2024
 John the Beloved | [Come to Know Your Own Abilities](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-3-8-4-em-john-the-beloved/) | March 8<sup>th</sup>, 2024
@@ -249,6 +252,7 @@ Joseph | [Father’s Day](/contemporary-messages/messages-sorted-year/messages-2
 Augustine | [Numbers Don't Matter](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-6-10-2-af-augustine/) | June 10<sup>th</sup>, 2024
 Aaron | [Guidance Regarding Interpersonal Communication](/contemporary-messages/messages-sorted-year/messages-2024/guidance-regarding-interpersonal-communication-af-11-jun-2024/) | June 11<sup>th</sup>, 2024
 Jesus | [The Grace of God's Essence Comes with Responsibility](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-6-13-1-mc-jesus/) | June 13<sup>th</sup>, 2024
+John the Baptist | [To Say That You Are Blessed Is Inadequate](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-6-13-2-em-john-the-baptist/) | June 13<sup>th</sup>, 2024
 Elijah | [Pray to God to Redeem Your Soul](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-6-14-1-af-elijah/) | June 14<sup>th</sup>, 2024
 Orion | [I Speak Only the Truth to You In Love](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-6-15-1-af-orion/) | June 15<sup>th</sup>, 2024
 Jesus | [A Father’s Day Tribute and Blessing](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-6-16-1-af-jesus/) | June 16<sup>th</sup>, 2024
@@ -287,6 +291,7 @@ James Tudor Snr | [Stand Up and Declare the Truth of God’s Love](/contemporary
 Augustine | [Trust More, Gain Greater Consciousness](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-6-30-1-af-augustine/) | June 30<sup>th</sup>, 2024
 Luke | [Spiritual Communion and Community](/contemporary-messages/messages-sorted-year/messages-2024/spiritual-communion-and-community-jw-30-jun-2024/) | June 30<sup>th</sup>, 2024
 Moses | [A Seeker Receives an Invitation](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-6-30-3-em-moses/) | June 30<sup>th</sup>, 2024
+Mary | [You Serve Heaven and Earth](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-6-30-6-mc-mary/) | June 30<sup>th</sup>, 2024
 Confucius | [Continue on the Journey](/contemporary-messages/messages-sorted-year/messages-2024/continue-on-the-journey-af-1-jul-2024/) | July 1<sup>st</sup>, 2024
 Christine | [Big Shoes to Fill - Personal for Matt](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-7-1-2-af-christine/) | July 1<sup>st</sup>, 2024
 Al Fike | [Pitfalls of Mediumship](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-7-1-3-af-al-fike/) | July 1<sup>st</sup>, 2024
@@ -523,3 +528,9 @@ Jesus | [New Year’s Eve Blessing](/contemporary-messages/messages-sorted-year/
 Orion | [New Year’s Eve Message](/contemporary-messages/messages-sorted-year/messages-2024/new-years-eve-message-af-31-dec-2024/) | December 31<sup>st</sup>, 2024
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2024/), or to [contemporary messages by year](/contemporary-messages/#a).*
+
+
+
+
+
+

@@ -1,0 +1,32 @@
+---
+title: "There is Much You Do Not Know About Yourselves"
+menu_title: ""
+description: "There is Much You Do Not Know About Yourselves"
+date: 2026-03-08 00:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+# There is Much You Do Not Know About Yourselves
+
+January 12<sup>th</sup>, 2026
+
+Barbados Retreat, Christchurch, Barbados
+
+Jesus received by Al Fike
+
+I am your brother and your friend. I am Jesus. My beloveds, I have been with each one of you. With each one comes a blessing, a shift, a change in your hearts and your souls and for some in your consciousness, a change of the heart, expanding in light, the Love of God, the Essence of God working within you. I have made that effort to help you to release the inhibitions, the barriers to God. I have come as God's servant to uphold you and to love you. I have come because your hearts are full and filled with desire to be at-one with God. I come because you desire for the highest of blessings, the greatest of Light, beautiful Touch of God's Hand upon you. I come to affirm your desires, to pray with you and to be your friend and your brother.
+
+My beloveds, much has been accomplished while you have been together. We will continue in our efforts to uplift you and to teach you, to show you the way to at-onement with God. May you come to know that all of God's instruments, whether it be me or another, are part of what God intends to give to you. We come close to bring our gifts shining forth, to bring our wisdom to you, to bring healing and grace to each of you. God's Will is expressed through each of us. Indeed, God's Will comes to you as well. It is our fervent prayer that you will act as God's instruments, channels in the world, not just for one another, but for all you meet. In that expression of God's Will, it is the expression of gifts and blessings within you that are ignited by God. You discover each day a dimension, a facet that is a part of your soul that will shine through and affect the world.
+
+There are many things you do not know about yourselves, my beloveds. There are many facets within the soul, yet unrealised and unknown, but with the inflowing of the Essence of God, they are ignited. They are ignited. They are lit by Love and expressed accordingly. Do not allow your will to inhibit thus but allow God's Will to shine forth clearly through you, expressing the uniqueness of your soul, the blessings that God has given to you in creation of your unique being. May they all be expressed, all this rainbow, these facets of who you are may flow, shine and touch your brothers and sisters.
+
+As I have said in the past, the things that I have done while on the Earth you may also do. This is why I describe you as my disciples. For each of you are eager to work in this way, the way of the soul, the way of God's channel of love. I was the first to work like this, because I was the first to receive the gift of Divine Love. I was born a pure soul, so the capacities of that Love shone through, directly and powerfully through. Yet each of you, my beloved friends, have sought out the gift of God's Love. This is purifying you. This is aligning you so that you may be that pure channel in the world. As you gather together in groups such as this, you continue to develop, purify and make strong the love within you, that that love may indeed shine through the facets of your soul and bring gifts and blessings to those you meet, to those God has guided you to.
+
+You continue to walk upon the road that God has designated for you. You continue to discover your true self and to understand God's Will working through you and within you. The time comes for the great expression, the powerful instrumentality of your soul, reflecting the Will of God and the blessings of God. My beloveds, we all are on the same path, the path of service to humanity. We continue to walk that path. As you grow in the Love, as I grow in God's Love, our collaborations grow and reflect the beauty of that gift within us. We are as one, my beloveds, as one with your angel friends, with the bright spirits, the stellar friends, the many bright souls in the universe who seek to help God reclaim this world, to bring it into harmony once again and to help the souls of humanity understand the great power that they carry and the great choice that is theirs. The efforts, the plan in motion is incremental. It is settled day by day. But indeed, the power of it, the effectiveness and expression of it is truly present in your lives and in this world.
+
+Seek the joy, the enthusiasm and desire, strong and clear, the path that you are on, for it is empowered by your will and desire. It is empowered with the gifts that lie within you. It is empowered by God's Touch upon you. Seek to know the empowerment that is given. Seek to know what God has placed within you. Seek to be conscious of all that you are capable of, all that lies within that desires expression, desires your acknowledgement, desires the truth to be embedded within your consciousness, within your true self. There is much that you still do not know, but this too is eager to be expressed into you, into your life, into your thinking, doing and being. Seek out the truth within and seek out the Truth God wishes to place within you. As you grow in the Father's Love, as your soul is empowered, purified and transformed by this Love, seek to know the truth within.
+
+My beloveds, God has much to give you. God has given you much. Be in alignment with this and all questions will be answered, all gifts will be expressed, all potentials realised, as that Love and that gift of Love that you long for continues to work its miracle, its transformation upon you. This is a journey to at-onement with God. This is a journey that you have elected, each of you has elected to take. Be true to what that choice has meant for you in your life. Be true to what God means to give, to show you and to express through you in your life. For in this truth, in your being, your consciousness will well up with joy and understanding, a capacity to express the true spirituality within you that will be astounding and wondrous and give true meaning to your lives.
+
+Yes, I am with you, my brothers and sisters. As your brother, I walk with you. As your friend, I pray with you. As God's instrument, I bring blessings of light, peace and love to you. We are together for eternity, my beloveds. Come to know me, for I know you well. I love you dearly. I am with you always. God bless you. I love you. God bless you.

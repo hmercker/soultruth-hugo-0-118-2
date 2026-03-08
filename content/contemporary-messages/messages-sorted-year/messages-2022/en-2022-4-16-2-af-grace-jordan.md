@@ -1,0 +1,40 @@
+---
+title: "David's Mother"
+menu_title: ""
+description: "David's Mother"
+date: 2026-03-08 00:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+# David's Mother
+
+April 16<sup>th</sup>, 2022
+
+Soul Awakening Tour, Barbados
+
+Grace Jordan received by Al Fike
+
+Welcome dear son and daughter. I am Grace. I want to assure you that I am doing very well indeed on this side of the veil. I am in light and I am in joy and all that I did in the earthly life has prepared a wonderful place for me in the spirit world. I am happy to see you two together and together with these two dear and beautiful souls who are earnest about the Truth of God’s Love. Indeed, many angels and spirits are working to bring this truth forward in the world and my hope is that you will find your way to help bring this truth to those who may come before you.
+
+There are many souls in need in Barbados, many souls who need comfort and truth. My friends who are here will come to serve God in many ways, just as I serve God in many ways. You will find the way and the means to serve God. But first and foremost, you must come to God open in your heart and soul to receive His great blessing of Love, awakening all the gifts and beautiful things within each of you. Beloved friends and family, you are a light and a light needs to shine and may you shine in the world as God’s lights and as I serve God, I never had a plan. I merely asked God each day, *“What shall I do today? How may I serve you today?”*
+
+Indeed, God put forth the opportunities and situations which allowed me to bring blessings, comfort, healing, love to those whom I met. Does that take great reading, understanding of this simple truth? It merely takes faith, allowing oneself to fall into the arms of God and in that way, God will guide you daily. God will bring to you the many blessings that you may receive abundantly. They may pour into you, through you, bringing greater light, greater love, greater blessings.
+
+I am so happy to see you here, my friends. I am so happy that these two beloved souls came all that way to be with you and to share their experiences of wisdom with you. I’m so very happy that because they came, it opened the door for all of you to be together. Now I say to you, do not close that door but keep it open, keep it open so that God may do the work. He will use each of you in such ways and means that will surprise you. But indeed, much is in the offing. There is a great plan for you to subscribe to and to be a part of. That plan will be given to you, each of you, individually. Then you must bring what you know and what you have, being inspired to do together.
+
+In this melding of souls, the bonds that you may share, the truth that you have and the ambitions that come from the soul that you may put within this collective, you will find that many things will manifest. Many opportunities will come before you. Many beautiful souls will be drawn to you. As you draw in all who are meant to be a part of this, then the work truly begins and much will come of this work. It will transform this place, my friends. Because this is God’s ultimate plan, to transform the world and bring light, peace, truth and love, to make love the currency of human endeavours, to make truth the foundation for all to use and express in their lives.
+
+This is a formidable plan and a formidable challenge for each of you and it is drawing you, friend, those places of comfort and routine, those things you know so well. Indeed, God has things in store for you that you cannot even imagine at this time. God has places for you to be and people for you to see that are planned, that are a part of the flow of His plan. Beloved, beloved, beautiful souls, know that I am close. Know that the angels are close to all of you and that in that closeness, in that beautiful bond that you have with your beloved brothers and sisters who have progressed beyond that of your own progression and have ventured into the kingdom, the Celestial Kingdom, they have much to offer you. God has much to give to all and in the flow of God’s Will and blessings, so all will benefit and all will fall into alignment, so that the work that is meant to be, a future that is meant to come, the plan that is now coming forth, may come to fruition, a great healing for the world, a great healing for each of you, a great healing for all who come and abide with God.
+
+For God has the intention, the desire to touch every soul who seeks this, every soul who is in need of God, so they will be blessed and touched deeply. They will come to know the great blessing and power of Divine Love in their lives. I will be close and many more, and I urge you to open yourselves in prayer to God, to seek the guidance, the path to be followed, the understanding and truth that must come into you and be lived by you, the Love of God to transform your soul. When all of these things come together in harmony, when your desire is for these things, then there will be much harmony and all will fall into place, the alignment of your soul with God, the alignment of God’s great Soul through you and to others. Much will come, so much will come.
+
+I am close. I am with you and love you dearly, each of you. My son, know that I love you, know that I love you. Do not think that I haven’t forgiven you for anything and everything and that you are a beautiful soul. God loves you, my beloved son. The world awaits your gifts. I am so very happy that I was your mother and brought you to this world. You have a destiny. You have a destiny to fulfil and I know you feel that in your heart, I know. Express it in all that you are and you will be so very blessed and so very happy. Your true self will emerge in powerful ways, in beautiful ways. You have so many gifts, my son, so many gifts that are waiting to emerge and to flower in God’s Love. Allow yourself to be in His peace, grace and Love and it shall all unfold in God’s time and will, beloved, my beloved son. I love you.
+
+My daughter, beloved daughter, you have so much to give to the world. You have such a good heart and you will find that God will open up many opportunities and doors for you. Continue to pray and be with God. Continue to seek His Will and to remember our conversations, the truths that I have taught you, the blessings that came when we prayed together, then all shall come to you, beloved daughter. All shall come to you in good time. Be at peace. Be at peace, beloveds.
+
+Dear son, who is so earnest, this is much for you to do and to focus upon. That tenacious soul that you are, you will ensure that the doors of God’s Will and blessings will be opened to many. You will teach the truths of the clarity and power given to a soul in life and full of love. May you continue, beloved brother in this, my beloved brother. May you be in the grace of God always. Many angels surround you and are eager to serve through you. Dear son, God’s blessings are upon you. He will carry you forth and you will be guided. May the truth be a mantle upon you and may you be a channel of His Love as you venture forth in the world, venture forth as God’s instrument of love.
+
+Beloved daughter, thank you. Thank you for your willingness to come to be here, to come, to touch my family, my friends and the many who have been touched and not even known it. You know in your heart, you have travelled for God’s purpose, and you feel the satisfaction and the joy of hearing God’s Will and following it, following it, so you will continue on these journeys in the beautiful practice of love. God bless you, dear daughter, God bless you and carry you forth.
+
+I thank this beloved instrument. He is a light, and may his light shine for many, many years to come. For there are many more waiting to benefit from his gifts. I hope that he has within his will and mind to be strong and to walk the Earth for many more years. May God bless him and bless you all. I thank you and I love you. I am close to you. We have much work to do, and we shall do it together. God bless you. God bless you all. My love is with you. God bless you.

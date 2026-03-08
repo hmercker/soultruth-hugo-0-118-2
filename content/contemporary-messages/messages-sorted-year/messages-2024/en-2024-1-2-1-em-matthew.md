@@ -11,7 +11,7 @@ weight:
 
 January 2<sup>nd</sup>, 2024
 
- Online Circle of Light, Liverpool, NY, USA
+Online Circle of Light, Liverpool, NY, USA
 
 Matthew received by Elizabeth Mack
 

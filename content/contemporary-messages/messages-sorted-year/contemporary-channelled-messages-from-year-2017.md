@@ -30,6 +30,7 @@ Luke | [Befriending Your Soul](/contemporary-messages/messages-sorted-year/messa
 Confucius | [Drink Deep of God’s Love](/contemporary-messages/messages-sorted-year/messages-2017/drink-deep-of-gods-love-af-8-mar-2017) | 8th March, 2017
 Aekarius | [The Power of Astronomy and Astrology is Limited](/contemporary-messages/messages-sorted-year/messages-2017/the-power-of-astrology-and-astronomy-is-limited-af-9-march-2017/) | March 9th, 2017   
 James | [Release self-will and embrace the perfect Will of God](/contemporary-messages/messages-sorted-year/messages-2017/release-self-will-af-27-mar-2017/) | 27th March, 2017 
+Jesus | [Help Others Find the Truth of the Father’s Love](/contemporary-messages/messages-sorted-year/messages-2017/en-2017-3-30-1-af-jesus/) | March 30<sup>th</sup>, 2017
 James | [Faculties of the Soul Compared to a Camera Lens](/contemporary-messages/messages-sorted-year/messages-2017/faculties-of-the-soul-compared-to-a-camera-lens-af-10-apr-2017/) | April 10th, 2017
 Augustine | [Choose to Embrace God’s Will - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/choose-to-embrace-gods-will-af-20-april-2017/) | April 20th, 2017
 Jesus | [Jesus speaks of the Pentecost](/contemporary-messages/messages-sorted-year/messages-2017/jesus-speaks-of-the-pentecost-af-11-may-2017/) | May 11th, 2017  
