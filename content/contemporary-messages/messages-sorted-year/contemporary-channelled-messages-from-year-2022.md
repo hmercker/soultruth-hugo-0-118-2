@@ -133,6 +133,7 @@ Peter | [Fishing for Souls in Puenta Delgado](/contemporary-messages/messages-so
 Inayat Khan | [Keep a song in your heart](/contemporary-messages/messages-sorted-year/messages-2022/keep-a-song-in-your-heart-jw-25-apr-2022/) | April 25<sup>th</sup>, 2022
 Augustine | [How Do You Know You Are Receiving Divine Love](/contemporary-messages/messages-sorted-year/messages-2022/receiving-divine-love-af-25-apr-2022/) | April 25<sup>th</sup>, 2022
 Peter | [It’s Not Easy to Build a Church](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-26-1-em-peter/) | April 26<sup>th</sup>, 2022
+Joseph | [Awaken to the Callings of Your Souls](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-27-1-af-joseph/) | April 27<sup>th</sup>, 2022
 Andrew | [Choices](/contemporary-messages/messages-sorted-year/messages-2022/choices-af-29-apr-2022/) | April 29<sup>th</sup>, 2022
 Orion | [Will Protect Us Next Few Days in God’s Love](/contemporary-messages/messages-sorted-year/messages-2022/en-2022-4-30-1-em-orion/) | April 30<sup>th</sup>, 2022
 Inayat Khan | [Song of the Heart and the Dance of Love](/contemporary-messages/messages-sorted-year/messages-2022/song-of-the-heart-jw-2-may-2022/) | May 2<sup>nd</sup>, 2022
