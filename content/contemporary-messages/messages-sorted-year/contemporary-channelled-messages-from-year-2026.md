@@ -48,12 +48,34 @@ Michael Collier | [Q&A](/contemporary-messages/messages-sorted-year/messages-202
 Michael Collier | [Describes How We May Prepare Ourselves to be Teachers and Lights in Times to Come](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-1-18-2-af-michael-collier/) | January 18<sup>th</sup>, 2026
 Martin Luther King Jr | [Pray and Be Peaceful](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-1-19-1-jw-martin-luther-king-jr/) | January 19<sup>th</sup>, 2026
 Bartholomew | [Welcome to Trinidad](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-1-30-1-af-bartholomew/) | January 30<sup>th</sup>, 2026
+Jesus, Mylora & Keea Atta Kem | [Angels' Promise for the Trinidad Retreat](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-1-30-2-af-jesus-mylora-keea-atta-kem/) | January 30<sup>th</sup>, 2026
 Augustine | [The Only Impediment to Truth Resides Within You](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-1-31-1-af-augustine/) | January 31<sup>st</sup>, 2026
+Jesus | [I am God's First Son Who Has Been Transformed by His Love into an Angel](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-1-31-2-af-jesus/) | January 31<sup>st</sup>, 2026
+Mary | [You Cannot Drain God of His Love or Ask Him for too Much](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-1-31-3-af-mary/) | January 31<sup>st</sup>, 2026
+Jesus | [Your Prayers Have Brought Great Light to Trinidad](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-1-1-af-jesus/) | February 1<sup>st</sup>, 2026
 Francis of Assisi | [An Enemy Becomes a Friend by God’s Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-2-1-jw-francis-of-assisi/) | February 2<sup>nd</sup>, 2026
 Bartholomew | [Your Choices and Desires Determine the Road You Travel](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-4-1-af-bartholomew/) | February 4<sup>th</sup>, 2026
+Jesus & Augustine | [Faith and the Soul 1: Step Forward in Faith to Fulfill Your Destiny](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-8-1-af-jesus-augustine/) | February 8<sup>th</sup>, 2026
+James Tudor Sr | [Whether or Not They Accept It, This Truth Takes Root in the Souls of Those Who Hear It](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-8-2-af-james-tudor-sr/) | February 8<sup>th</sup>, 2026
+George Stokes | [The Blessing of Serving God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-8-3-em-george-stokes/) | February 8<sup>th</sup>, 2026
 George Gurdjieff | [The Path is between you and God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-9-1-jw-george-gurdjieff/) | February 9<sup>th</sup>, 2026
+Bartholomew & Keea Atta Kem | [Faith and the Soul 2: You Must Trust in Yourself, Your Soul and God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-9-2-af-bartholomew-keea-atta-kem/) | February 9<sup>th</sup>, 2026
+Augustine | [Faith and the Soul 3: Put in the Effort to Know and Have Faith in Your Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-10-1-af-augustine/) | February 10<sup>th</sup>, 2026
+Michael Collier | [Faith and the Soul 4: Extricate Yourself from the Limiting Influence of Self-Doubt](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-11-1-af-michael-collier/) | February 11<sup>th</sup>, 2026
 Care Darby Walsh | [Mastery in Service](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-16-1-jw-care-darby-walsh/) | February 16<sup>th</sup>, 2026
+Orion | [You Cannot Afford to Be Casual in Your Commitment to This Path](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-17-1-af-orion/) | February 17<sup>th</sup>, 2026
+David | [David of the Bible Provides Guidance](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-22-1-af-david/) | February 22<sup>nd</sup>, 2026
 Galileo Galilei | [Fellow Explorers](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-23-1-jw-galileo-galilei/) | February 23<sup>rd</sup>, 2026
+Faith Nyquist | [Awaken from the Sleep of Materialism](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-24-1-af-faith-nyquist/) | February 24<sup>th</sup>, 2026
+Jesus | [Agents of Light: Walking in the Grace of God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-2-27-1-af-jesus/) | February 27<sup>th</sup>, 2026
+Jesus | [The World Needs Your Prayers](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-1-1-af-jesus/) | March 1<sup>st</sup>, 2026
 George Vale Owen | [Spiritual Progression beyond Reluctance and Religion](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-2-1-jw-george-vale-owen/) | March 2<sup>nd</sup>, 2026
+Orion | [Be Brave, Prayerful and Aware at This Important Turning Point for the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-3-1-af-orion/) | March 3<sup>rd</sup>, 2026
+Matthew | [Live Each Day as God's Instrument](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-3-2-af-matthew/) | March 3<sup>rd</sup>, 2026
+Eileen Caddy | [The Big Boat and the Small Boat](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-4-1-jw-eileen-caddy/) | March 4<sup>th</sup>, 2026
+Jesus | [When the Heart is humbled, the Soul is exalted](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-9-1-jw-jesus/) | March 9<sup>th</sup>, 2026
+Yogananda | [Soul Clarity](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-16-1-jw-yogananda/) | March 16<sup>th</sup>, 2026
+Luke | [The Chrysalis](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-23-1-jw-luke/) | March 23<sup>rd</sup>, 2026
+Judas | [God will quench the Hunger and the Thirst of every Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-30-1-jw-judas/) | March 30<sup>th</sup>, 2026
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2026/), or to [contemporary messages by year](/contemporary-messages/#a).*

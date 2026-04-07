@@ -1,0 +1,32 @@
+---
+title: "You Are the Determining Factor in Your Progress"
+menu_title: ""
+description: "You Are the Determining Factor in Your Progress"
+date: 2026-04-07 00:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+# You Are the Determining Factor in Your Progress
+
+August 30<sup>th</sup>, 2025
+
+Direct Voice, Sechelt, BC, Canada
+
+Orion received by Al Fike
+
+The uprising of your souls is paramount at this time, my beautiful friends. I am Orion. All efforts are being made to help you in that rising up, that expansion of your soul in Divine Love, for this time is crucial. The pause before the storm, so to speak. The efforts that you make now will very much determine what will be accomplished in the future. Of course, every choice informs the future. Every desire and every effort informs the future, but today, in the days to come, I would urge you to be intense with your prayers and to pray often. In your contemplations, consider how you might release any inhibitions, any encrustations, any conditions of the mind that may inhibit you as instruments of light and truth for the divine plan.
+
+God cannot impose His Will on humanity. No one or nothing can, for you are endowed with free will. It is your choice and your efforts that are crucial. We are there to support. We are there to surround you in love and protection and to have a measure of influence. Yet, what you receive in terms of light, blessings and guidance is determined by you, your receptivity, your faith, and your desire, your soulful desires. We are somewhat at arm's length in terms of your progress. We make every effort possible to help you in that progress, but you are the determining factor. You are the one who chooses. It is important that you are informed and aware of the power of that choice each and every day, for without this empowerment, this knowledge, how can you choose wisely?
+
+Indeed, your soul knows the wise choice and the wise course of action, but each of you have your impediments and your disabilities when it comes to understanding your soul. The mind still takes precedence. The mind still filters and determines, often, what the message, what the desire and what the guidance is. As a good demonstration of this, I would urge you to read some messages received a few years ago through me or through other channels. I would surmise that you would read that message differently, that the focus would be different, the understanding would be different, because you have grown, you have awakened somewhat and you are in deeper soulful awareness and light. Therefore, the mind is influenced by this and the mind is more receptive than it was in the past.
+
+Yet, you have the power to reject any guidance or information given to you outright. We cannot determine this for you. It is for you to determine for yourself what you accept as truth, as guidance and as blessings. You carry a great responsibility in this regard. As you continue on the road of your own progression and development, that pace is determined by you. We are always willing to step in and give whatever support is needed, but our hands are tied when you reject that support, when you are not willing or receptive to it. I do not see you as rejecting outright everything that is offered, but there are still blind spots and avenues that allow you to not see or accept what is given. Thus, we encourage self-reflection and that you may look at those blind spots and areas that still are determining the avenues in which you may be receptive to guidance and the ways in which you may act on that guidance.
+
+Yes, you are human. This we acknowledge and understand. We do not expect perfection. We do not see you as being clear and pure channels as yet in these efforts, but you creep forward day by day, moment by moment. None of you are going backwards in your progression. You are always going forward. I merely wish to emphasise that a focus upon this is needed at this time, that you truly need to apply yourself toward what is required in order to make swift progress. We continue to tell you the time is running short. Indeed, upon the continuum, it is shorter than it was yesterday and tomorrow will be shorter than today. That speed of necessity for you to be that channel of light, that beautiful light, that instrument that God can use, is more intense and requires your response willingly and openly.
+
+I encourage you to pray fervently and more often, to be in the state of receptivity, to be reflective about your own being and state and condition, both spiritually and mentally as well as physically, to be wise in your responses when you engage in these ways and to be focused. It is very important to be focused on your soul's progress, which is determined by the intensity of your focus upon your Creator. Continue in your efforts, my beloved friends. Continue to be in alignment with God's Will, for in that alignment comes all the answers required, all that is necessary given. In that alignment of your mind, your spirit and your soul comes an open channel receptive to many blessings, receptive to many impressions and influences that are given by all the beautiful souls arrayed around you, all the beautiful light that is poured upon you, all the wondrous blessings that come to you.
+
+May you continue this journey of progression, your soul's awakening further. May it be swift, effective and powerful. My love is with you all, my beautiful friends. I am Orion and I do love you. I do appreciate your struggles and your triumphs. I do see the obstacles you must overcome. I do know the inner workings and feelings of each one of you. For someone like myself, an outsider who has perceptions in this regard, what may seem easy for me is indeed difficult for you, for you have the human condition, the earthly darkness to contend with every moment of your life. This brings within me a deep sense of compassion, a deep understanding of the struggles. I am there out of love, compassion and understanding for you, each of you. I dedicate myself to your upliftment and your continued progression. I may be on the sidelines but believe me when I say I am there to support you, to love you and to help you.
+
+Be open to all that is offered to you, my friends. You will benefit greatly, not only from my efforts, but from many. May you be blessed deeply, beloved souls, and know that in your travels, efforts and time with God, you are greatly upheld and shall be forevermore. God bless you. Orion loves you. God bless you.

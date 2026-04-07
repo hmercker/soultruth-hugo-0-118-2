@@ -407,6 +407,7 @@ Care Darby Walsh | [Let go of Guilt](/contemporary-messages/messages-sorted-year
 Orion | [Ascend Beyond the Consciousness of the Material Mind](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-8-26-1-af-orion/) | August 26<sup>th</sup>, 2025
 Goldie | [Sunny Days Within: Living in God’s Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-8-27-1-af-goldie/) | August 27<sup>th</sup>, 2025
 Mary | [Be Instruments of Divine Love in the World](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-8-29-1-af-mary/) | August 29<sup>th</sup>, 2025
+Orion | [You Are the Determining Factor in Your Progress](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-8-30-1-af-orion/) | August 30<sup>th</sup>, 2025
 Jesus & Mary | [Walking the Path of Divine Love](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-8-31-1-af-jesus-mary/) | August 31<sup>st</sup>, 2025
 John the Beloved, George Stokes, Mary & Luke | [A Great Service Performed in the Circle Today ](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-8-31-2-em-john-the-beloved-george-stokes-mary-luke/) | August 31<sup>st</sup>, 2025
 Mary | [Divine Love Binds One to Another and to God](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-8-31-3-em-mary/) | August 31<sup>st</sup>, 2025
