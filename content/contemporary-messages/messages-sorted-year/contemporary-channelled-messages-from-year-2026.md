@@ -90,6 +90,7 @@ Bartholomew | [The Heartfelt Path of Prayer](/contemporary-messages/messages-sor
 Orion | [The Road Less Travelled](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-10-2-af-orion/) | March 10<sup>th</sup>, 2026
 Faith Nyquist | [Called to Serve: Walking the Path of Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-13-1-af-faith-nyquist/) | March 13<sup>th</sup>, 2026
 Orion | [Double Your Prayers to Remain in Harmony in a Dark World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-14-1-af-orion/) | March 14<sup>th</sup>, 2026
+Christine | [Brothers and Sisters in the Universe ](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-15-1-af-christine/) | March 15<sup>th</sup>, 2026
 Yogananda | [Soul Clarity](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-16-1-jw-yogananda/) | March 16<sup>th</sup>, 2026
 Goldie | [The Rising of Joy Within the Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-17-1-af-goldie/) | March 17<sup>th</sup>, 2026
 Orion | [You Become Stronger and Stronger as You Stretch Toward Light](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-17-2-af-orion/) | March 17<sup>th</sup>, 2026
