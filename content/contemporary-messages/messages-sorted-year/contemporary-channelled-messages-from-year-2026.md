@@ -121,9 +121,11 @@ Jesus | [Blessed Are Those Who Are Willing to Deliver the Word of God](/contempo
 Jesus | [You Are the Light: Called to Receive and Share God's Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-19-1-af-jesus/) | April 19<sup>th</sup>, 2026
 Care Darby Walsh | [Conversations with God, Prayer, and Spiritual Magnetism](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-20-1-jw-care-darby-walsh/) | April 20<sup>th</sup>, 2026
 Orion | [God Has Created a Wondrous and Unique Journey for Each of You](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-21-1-af-orion/) | April 21<sup>st</sup>, 2026
+Moses | [Moses Describes His Journey in Spirit and The Transforming Power of Divine Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-21-2-af-moses/) | April 21<sup>st</sup>, 2026
 Luke | [Soul Progression](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-24-1-jw-luke/) | April 24<sup>th</sup>, 2026
 Yogananda | [A Change of Heart](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-25-1-jw-yogananda/) | April 25<sup>th</sup>, 2026
 Frederick Douglass | [Healing from Temporal and Spiritual Bondage](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-4-1-jw-frederick-douglass/) | May 4<sup>th</sup>, 2026
+Orion | [Orion Describes the Process of Receiving Divine Love on His Planet and Expresses Admiration for Our Tenacity](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-9-1-af-orion/) | May 9<sup>th</sup>, 2026
 Clare of Assisi | [Attachments](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-11-1-jw-clare-of-assisi/) | May 11<sup>th</sup>, 2026
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2026/), or to [contemporary messages by year](/contemporary-messages/#a).*

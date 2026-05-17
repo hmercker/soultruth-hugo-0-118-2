@@ -295,11 +295,13 @@ Orion | [It’s Challenging and Intriguing to Make Connections with Earthlings!]
 Confucius | [Invokes a Blessing of Divine love for the Guernesey Circle Portal at Les Chapel monnaie](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-9-20-1-af-confucius/) | September 20<sup>th</sup>, 2023
 Augustine | [Knowing the Wisdom of Your Soul Brings Greater Harmony to Your Life](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-9-23-1-af-augustine/) | September 23<sup>rd</sup>, 2023
 Orion | [Describes Development Work in DV Circle Today](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-9-26-3-af-orion/) | September 26<sup>th</sup>, 2023
+Jesus | [A Embrace and Walk the Truth of God’s Love](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-9-26-2-af-jesus/) | September 26<sup>th</sup>, 2023
 Josephus | [Promises Blessings at Laurelville](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-9-29-1-af-josephus/) | September 29<sup>th</sup>, 2023
 Orion | [Contrasts Natural Love and Divine Love Paths](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-9-30-1-af-orion/) | September 30<sup>th</sup>, 2023
 Michael Collier | [Be Conscious of Being a Light in the World](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-10-1-1-af-michael-collier/) | October 1<sup>st</sup>, 2023
 Matthew | [The Love of God Will Free You From the Darkness](/contemporary-messages/messages-sorted-year/messages-2023/the-love-of-god-will-free-you-from-the-darkness-af-3-oct-2023/) | October 3<sup>rd</sup>, 2023
 Orion | [We All Experience God in Unique Ways](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-10-3-2-af-orion/) | October 3<sup>rd</sup>, 2023
+Mylora | [Healing Mother Earth](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-10-6-2-af-mylora/) | October 6<sup>th</sup>, 2023
 Judas | [Allow God’s love to permeate your day, and illuminate your night!](/contemporary-messages/messages-sorted-year/messages-2023/allow-gods-love-jw-9-oct-2023/) | October 9<sup>th</sup>, 2023
 Keea Atta Kem | [Rejoice in God’s Purpose!](/contemporary-messages/messages-sorted-year/messages-2023/rejoice-in-gods-purpose-af-10-oct-2023/) | October 10<sup>th</sup>, 2023
 Luke | [Make your priority to be in the now of God’s love](/contemporary-messages/messages-sorted-year/messages-2023/make-your-priority-jw-10-oct-2023/) | October 10<sup>th</sup>, 2023
@@ -335,6 +337,7 @@ Matthew | [God’s Will as Protection](/contemporary-messages/messages-sorted-ye
 Keea Atta Kem | [We Are with You in Love and Joy!](/contemporary-messages/messages-sorted-year/messages-2023/we-are-with-you-in-love-af-24-oct-2023/) | October 24<sup>th</sup>, 2023
 Orion | [Soul Perceptions are Multi-Dimensional](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-10-24-2-af-orion/) | October 24<sup>th</sup>, 2023
 Orion | [The Evolution of Humanity](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-10-27-2-af-orion/) | October 27<sup>th</sup>, 2023
+Josephus | [Getting Beyond Mind and Spirit Consciousness to Soul](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-10-29-1-af-josephus/) | October 29<sup>th</sup>, 2023
 Jesus | [Allow God](/contemporary-messages/messages-sorted-year/messages-2023/allow-god-jw-30-oct-2023/) | October 30<sup>th</sup>, 2023
 Orion | [The Struggle Between the Darkness and the Light](/contemporary-messages/messages-sorted-year/messages-2023/en-2023-10-31-1-af-orion/) | October 31<sup>st</sup>, 2023
 Claire of Assisi | [Know that this love is Eternal](/contemporary-messages/messages-sorted-year/messages-2023/know-that-this-love-is-eternal-jw-6-nov-2023/) | November 6<sup>th</sup>, 2023
