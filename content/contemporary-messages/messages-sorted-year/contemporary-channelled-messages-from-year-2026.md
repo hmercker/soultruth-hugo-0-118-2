@@ -96,11 +96,34 @@ Goldie | [The Rising of Joy Within the Soul](/contemporary-messages/messages-sor
 Orion | [You Become Stronger and Stronger as You Stretch Toward Light](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-17-2-af-orion/) | March 17<sup>th</sup>, 2026
 Michael Collier | [Faith, Momentum and Expanding Spiritual Impact](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-19-1-af-michael-collier/) | March 19<sup>th</sup>, 2026
 Barbara Davies | [Choose Love: Efforts You Make to Bring Light and Change on Earth Will Bring Great Rewards In Spirit](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-21-1-af-barbara-davies/) | March 21<sup>st</sup>, 2026
+Alec Gaunt | [Alec Gaunt Describes His Role in Creating Circles of Light and Explains the Process of Awakening in Love ](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-21-2-af-alec-gaunt/) | March 21<sup>st</sup>, 2026
 Matthew | [Following Guidance to Come Together Makes for Great Possibilities](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-22-1-af-matthew/) | March 22<sup>nd</sup>, 2026
 Luke | [The Chrysalis](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-23-1-jw-luke/) | March 23<sup>rd</sup>, 2026
+Faith Nyquist | [Open Your Soul to Receive God’s Abundant Blessings](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-24-1-af-faith-nyquist/) | March 24<sup>th</sup>, 2026
+Orion | [Move Beyond the First Stage of Awakening and Lift Your Planet into Harmony](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-24-2-af-orion/) | March 24<sup>th</sup>, 2026
+Christine & Jesus | [Becoming Instruments of Light in a Changing World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-27-1-af-christine-jesus/) | March 27<sup>th</sup>, 2026
+Orion | [The Nature of Reality](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-28-1-af-orion/) | March 28<sup>th</sup>, 2026
+Jesus | [The Time Is Now: Step Forward as a Light in the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-29-1-af-jesus/) | March 29<sup>th</sup>, 2026
 Judas | [God will quench the Hunger and the Thirst of every Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-30-1-jw-judas/) | March 30<sup>th</sup>, 2026
+Copernicus | [Beyond the Mind: The Soul’s Endless Journey to Know God’s Creation](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-31-1-af-copernicus/) | March 31<sup>st</sup>, 2026
+Augustine | [When You Have Faith, You Can Step into the Vast Ocean of God’s Creation Without Fear](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-31-2-af-augustine/) | March 31<sup>st</sup>, 2026
+Orion | [The Gift of a New World in God's Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-4-1-af-orion/) | April 4<sup>th</sup>, 2026
+Mary | [A Mother's Faith](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-5-1-em-mary/) | April 5<sup>th</sup>, 2026
+Jesus | [Easter Sunday: Live and Share the Truth of Divine Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-5-2-af-jesus/) | April 5<sup>th</sup>, 2026
 Yogananda | [The Now of God’s Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-6-1-jw-yogananda/) | April 6<sup>th</sup>, 2026
+Mary | [Rest in the Embrace of Divine Love and Blessing](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-7-1-af-mary/) | April 7<sup>th</sup>, 2026
+Keea Atta Kem | [Circles of Light: How They Unite Us in Divine Love Beyond Physical Presence](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-10-1-af-keea-atta-kem/) | April 10<sup>th</sup>, 2026
+Isaiah | [Each Individual Must Find Their Way to a Relationship With God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-12-1-af-isaiah/) | April 12<sup>th</sup>, 2026
 Charlie Chaplin | [It is time now for us to collaborate](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-13-1-jw-charlie-chaplin/) | April 13<sup>th</sup>, 2026
+Andrew | [What Holds You Back from Fulfilling Your Soul's Purpose?](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-13-2-af-andrew/) | April 13<sup>th</sup>, 2026
+Ann Rollins | [Prayer, your Soul, and the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-15-1-jw-ann-rollins/) | April 15<sup>th</sup>, 2026
+Jesus | [Blessed Are Those Who Are Willing to Deliver the Word of God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-15-2-af-jesus/) | April 15<sup>th</sup>, 2026
+Jesus | [You Are the Light: Called to Receive and Share God's Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-19-1-af-jesus/) | April 19<sup>th</sup>, 2026
 Care Darby Walsh | [Conversations with God, Prayer, and Spiritual Magnetism](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-20-1-jw-care-darby-walsh/) | April 20<sup>th</sup>, 2026
+Orion | [God Has Created a Wondrous and Unique Journey for Each of You](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-21-1-af-orion/) | April 21<sup>st</sup>, 2026
+Luke | [Soul Progression](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-24-1-jw-luke/) | April 24<sup>th</sup>, 2026
+Yogananda | [A Change of Heart](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-25-1-jw-yogananda/) | April 25<sup>th</sup>, 2026
+Frederick Douglass | [Healing from Temporal and Spiritual Bondage](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-4-1-jw-frederick-douglass/) | May 4<sup>th</sup>, 2026
+Clare of Assisi | [Attachments](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-11-1-jw-clare-of-assisi/) | May 11<sup>th</sup>, 2026
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2026/), or to [contemporary messages by year](/contemporary-messages/#a).*
