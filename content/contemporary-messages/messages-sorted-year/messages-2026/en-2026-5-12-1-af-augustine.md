@@ -1,0 +1,37 @@
+﻿---
+title: "Take Responsibility for Your Condition and Stay Loyal to the Truth"
+menu_title: ""
+description: "Take Responsibility for Your Condition and Stay Loyal to the Truth"
+date: 2026-06-23 00:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+
+# Take Responsibility for Your Condition and Stay Loyal to the Truth
+
+May 12<sup>th</sup>, 2026
+
+Direct Voice, Sechelt, BC, Canada
+
+Augustine received by Al Fike
+
+May the blessings of the Father's Love be yours. I am your teacher, Augustine. Each of you are unique in your characters, in your abilities, your gifts, your strengths and your flaws. An interesting combination of all of these things make up your personality and who you are - at least, who you think you are.
+
+Yet, there is so much yet to discover in terms of your own makeup and your own ability and expression. It is an eternal journey. Therefore, the discoveries will not end, the awakenings will not end and the transformation will not end. In your beginning days, in your infancy, you think that there is much to discover and much is happening upon your spiritual journey. Compared to where you are at as an infant, a child, what has been happening is remarkable and it consumes you. So it shall and so it must, for if you are truly to be successful upon the path of soul awakening in a world such as this, then it must be all-consuming, for the distractions are great, the conditions are terrible and the darkness engulfs all.
+
+It is a constant battle to maintain the light and to maintain the journey of your own soul's awakening. Thus, we encourage you in prayer, not just for a moment in a day, but to make your day a prayer. Make the expression of yourself an expression of soul in gratitude to God. Allow the capacities, the gifts, the intuition, the creativity, the joy and the desire to be expressed with every breath. In this way, you maintain yourself in light, for all these things are progenitors of light. It takes effort. It takes dedication. It takes consistency. It takes persistence. You have not entered into this journey and you have not subscribed to this development of what you call Direct Voice out of a casual interest. It is your soul saying, *"This is what I wish. This is what I need to do to be fulfilled, to be true to God."*
+
+That desire, that effort, must be ongoing and relentless. It cannot be any other way, my beautiful friends, if you are truly to be successful in these ventures, if you are truly to find your way through the darkness into the purity of light and from there into the transformation of Love. It is a daunting task, a relentless journey, a formidable state of yearning, receiving and expressing all that is of the highest. Do not release this desire, this intention, this dedication for a moment. Yes, you may go about your daily life, but what is behind that? What is the intention? Is it to secure your material gain? Is it to be recognised by others? Is it based in fear and a sense of lacking? Or is it out of faith, faith that God will guide, God will provide, God will protect, God will bless you and God will lead you along the road?
+
+These two perspectives may exist within you simultaneously, for the first is of the mind and the second is of the soul. Of course, you battle between the two because they are not compatible. Conditions continue to rise up within your consciousness that bring anxiety, fear, frustration, anger, judgement, many emotions of the mind. Yet, you are well equipped to quell those fears and those conditions and bring this into light. Say a prayer, an earnest prayer for yourself in these situations. Ask God to remove these conditions. Ask God to teach you how you may avoid them. Ask God to bless you and strengthen you with His Love that that may indeed wash away the conditions and habits of the mind that create these things.
+
+It is possible to be free of this. Yet, often you are relentless in your dedications to old habits and ways. You realise the effects. It is obvious, the downgrading of your soul condition into something that is very mediocre. Yet, you accept this as your lot. You may even blame outside forces, even God, for this, but in fact, in truth, you are responsible for your condition. You must take that responsibility seriously, for without true dedication to what you know to be true, to what is the way to light and joy, to harmony and peace, to truth and love, how can you be a teacher? How can you be the example for others? Yes, we do not expect perfection, but we do expect dedication and loyalty to the truth.
+
+Of course, you will fail at times. This is inevitable on your earthly plane. We do not judge you for this. We do not withhold our love, our support or our light. God does not do so either, but we encourage you toward the highest. We encourage you to walk that road of love. We encourage you to have faith in the process and what is truly happening for you, for when you are striding on that high road, what can go wrong? Even those conditions and situations that are vexing and dark may not touch you like they once did and may not be so potent in your life. Indeed, the detachment that comes with the soul awakening and truly in alignment with God is what is required. Without letting go of those wilful expectations of the mind, you will continue to be stuck within that human condition and feel its pulsating energies and conditions having their effect upon your being, your wellbeing.
+
+Be vigilant, my beloved brothers and sisters, students of truth. It is important that you are vigilant, that you observe your patterns of behaviour and you observe those conditions that continue to drag you down from light to darkness. We are pleased that you make efforts in prayer, desire and choice to be in the light. This is what is needed. Every time you ask, my beloved students, you will be blessed. You will be uplifted. We will dust you off from the conditions of the earthly plane and imbue you with light, for we all work for the Heavenly Father and He provides all that is required. Yet, you must ask, you must desire, you must be open and willing to make that choice toward that which is light rather than acquiesce to the darkness.
+
+Yes, it is your responsibility, beloved students. You have taken on a great task. You have desires for very lofty goals. If you are to succeed, then you must hold yourself to a higher standard and condition that would ensure your continued and swift progress in light, for the time grows short, my friends. You have been told this many times. Do you not see the chaos increasing? Do you not see the climate changing? Do you not see many things in the world that are reacting and responding to both the light and the darkness? You must be vigilant. You must care for yourself in the ways that are needed, have compassion for others and the ways to bring abundant light and love, and compassion for the world that is undergoing transition and growing pains. What is coming is powerful and intense, requires your strength, your faith, your tenacity and most of all, your love. Be strong, beloved students. Be faithful. Be loyal. Be true. All will be well in times to come and in these moments that are now.
+
+God bless you, beloved students. I am your teacher, Augustine. I come once again to refresh your mind of the truth, to help you understand the struggle and to encourage you toward that which will bring great light, harmony and joy within you. God bless you, beloved souls. Your teacher, Augustine, loves you. God bless you.
