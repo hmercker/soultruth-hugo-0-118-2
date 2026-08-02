@@ -153,7 +153,6 @@ Lao Tzu | [A Single Step on the Endless Journey](/contemporary-messages/messages
 Andrew, Jesus & Mary | [Messages of Love, Guidance, and Companionship from Spirit](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-26-1-af-andrew-jesus-mary/) | May 26<sup>th</sup>, 2026
 Orion | [Encourages Us to Engage With the World and Confront Its Many Tests Head On](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-26-2-af-orion/) | May 26<sup>th</sup>, 2026
 Orion | [Soul Gifts Start As Small and Subtle Buds Before Blooming into Beautiful Flowers Unique to Each Individual](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-30-1-af-orion/) | May 30<sup>th</sup>, 2026
-Orion | [Soul Gifts Start As Small and Subtle Buds Before Blooming into Beautiful Flowers Unique to Each Individual](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-30-2-af-orion/) | May 30<sup>th</sup>, 2026
 Barbara Davies | [Being God’s Instruments of Love in the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-2-1-af-barbara-davies/) | June 2<sup>nd</sup>, 2026
 Orion | [Welcome All in Love and Use a Light Touch When Teaching Others This Truth](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-2-2-af-orion/) | June 2<sup>nd</sup>, 2026
 Lao Tzu | [Expectations are speculative, Faith is Certitude](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-5-1-jw-lao-tzu/) | June 5<sup>th</sup>, 2026
