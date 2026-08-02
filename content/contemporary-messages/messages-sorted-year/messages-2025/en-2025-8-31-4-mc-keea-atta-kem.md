@@ -1,0 +1,39 @@
+﻿---
+title: "Awareness of Intentions: What’s Behind Thoughts/Words/Actions"
+menu_title: ""
+description: "Awareness of Intentions: What’s Behind Thoughts/Words/Actions"
+date: 2026-08-02 00:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+
+# Awareness of Intentions: What’s Behind Thoughts/Words/Actions
+
+August 31<sup>st</sup>, 2025
+
+Beams of Light, Abbotsford, BC, Canada
+
+Keea Atta Kem received by Maureen Cardoso
+
+God bless you, beloved souls. I am Keea Atta Kem. Let us take a moment to set our longings free, setting them off to God, allowing that deepest part of you to open and to connect with the Creator, allowing this Love to make a connection with your soul and bringing you into a state of receptivity to experience the Touch of God, the Divine Essence flowing into your soul.
+
+The value of being able to listen to Celestial messages with the consciousness that is yearning to receive God's Love allows the message to flow into a deeper part of you, not only for you to listen with your material faculties, but for your soul faculties to be able to absorb the teachings, the wisdom and the guidance. Whenever you come into these circles, take the time before you join, even if it is a moment to have a little prayer, coming into a condition where you are aware of a soulful state. For as you do this, you bring a condition into the circle that is elevated, that assists what we can bring through, or what we see to bring through to support you. Take note of the condition you bring into the circle. With that, I segue into my topic, the topic of intention.
+
+Are you aware of the intention behind your thoughts and your actions? It is evident that when you come into a prayer circle, your intention is to receive God's Love. That is the single purpose and any prayer that you do on your own or gathered with others in person is also supportive of that intention to receive the Substance of God in your soul and for your soul to develop, to awaken the faculties of your soul, the gifts of your soul to be in service.
+
+But I wonder if you are aware of the intentions that are behind your everyday thoughts and actions. If you are having a conversation with others, and not necessarily a spiritual conversation, what is the intention behind your words? What is the intention behind the way you gaze or even glare at another? What is the intention behind the way that you touch something or you handle something? When you consider your intention at the very base of all that you do, it will bring to you insight to your true condition. It is good to investigate your nature in this way, because as you do and you see those things that are in alignment with love, in harmony and are expressive of compassion, understanding and joy, oh, joy is a big one, you can see the ways in which your nature is aligned in love.
+
+Then, of course, the harder parts to look at are those aspects where your intention is not in alignment and is outside of harmony. But this, beloved souls, is the gift, the gift of knowing your condition, your human condition. In this way, it helps you to direct your prayers, asking God that His Love flow into those things that lack harmony, because your intention is to become an instrument and a channel of love, growing in your instrumentality, deepening your capacity to be a being of love more and more. To be able to see both where you have progressed and where yet you are to progress is valuable in order to see the change that God has made upon your soul. It can give you the strength and the faith to know that those things that are lacking harmony will be changed. If your intention flows, or it is to be that all parts of you that are lacking in harmony are to be blessed and transformed into harmonious thoughts and intentions, then this is the way.
+
+Let God know what your intention is, what your desire is, not in a way of orchestrating what He must do, but rather that you intend to open yourself in such a way that God may come into all parts of you with His Essence and transform all those parts that are yet to be in harmony with His Law of Love. I say these things to you to help you to grow, not to upset you, but to help you know how to deepen your path with intention. It has been said many times that this path is not for the faint of heart. Indeed, it is not. But, it is a path, a path of the highest, that will meet all you desire to attain, all you desire to be. It is the only path that will transform you from your image into the Divine.
+
+A Divine soul goes through an enormous transformation, where absolutely every part that it was initially created in, is transformed, transformed by God's Substance. While I realise that it is not possible for you to understand what that truly means, it does not mean that I should not encourage you to reach for the highest. All things, all things that lie outside of the Law of Love shall be transformed as Divine Love comes into your soul and with your intentional desire to receive this Love. It does require that in your human nature, you look deeply, deeply at what is within you that God is yet to touch. So, my dear friends, as you go about your day, as you move through the world, be connected to what your intention is behind all that you think, that you say and that you do. When you question yourself in this way with sincerity, if you so desire to be an instrument of love, those things that you are enacting that are not of love, will have a chance to be changed because you have made a connection with your base intention.
+
+This is not a path of lip service. If your words do not align with love and your actions are not aligned in love, you know where your opportunity for growth is and you know where to go for the help to be changed. You say you give it to God and this is one part. When you give your worries or your concerns, your struggles, to God, this is one part. To add a second part of asking God to come into the cause of this worry, the primal cause of the worry or the fear or the habit, this, dear friends, completes the circle, because you are intentionally asking God through your awareness of your worry and your fear to receive this worry, but invite God into that worry, into that projected worry that is within the mind. By doing so, you receive a Touch of God who desires to bless you in the ultimate way. Allowing yourself these blessings will help you on your journey to be truly aware of how you are in the world and how you are in those quiet recesses when you are on your own.
+
+When it is just you and you, what is your intention then? What moves through you then? Do you experience love then? Or do you turn on the fountain of love when you are before others only, or mostly? You see, beloveds, your deepest time with God is when you are alone, when you go about your day, when it is only you. How are you then? Who are you then? For when your character is strong, in the quiet moments between you and you, there is love, the love from the soul that you experience in your material mind. You have a consciousness of the Essence of the Substance that your soul carries, the Divine Love. When you are strong in this way, this is when nothing that happens from the outside forces can challenge you, because your intention is to be stable, centred and strong in the Love that exists within your soul, where God and you are a force of love, strength, peace, compassion and joy.
+
+I hope these words that I have been able to bring through on the topic of intention will give you things to consider and reflect upon. Dear ones, your soul desires to be able to be at the forefront of your awareness. That does not mean your material mind is not necessary. What it means is your material mind experiences soul consciousness, the awareness of who you are as a soul.
+
+I am Keea Atta Kem. May God's Love find its way into your soul in the most powerful way that lifts you, transforms you and awakens you. God bless you.
