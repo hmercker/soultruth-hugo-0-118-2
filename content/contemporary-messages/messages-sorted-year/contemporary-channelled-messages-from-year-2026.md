@@ -191,5 +191,7 @@ Jesus | [Walking Together Toward the Celestial Kingdom](/contemporary-messages/m
 Judas | [Spiritual Joy is obtained in Grace](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-7-20-1-jw-judas/) | July 20<sup>th</sup>, 2026
 Augustine | [Do Not Hide from Your Feelings; Rather, God to Replace Disharmony with His Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-7-21-1-af-augustine/) | July 21<sup>st</sup>, 2026
 Keea Atta Kem | [God Uses Every Opportunity to Bless Others](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-7-21-2-af-keea-atta-kem/) | July 21<sup>st</sup>, 2026
+Eileen Caddy | [Earth Changes and Aloneness in Community](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-7-27-1-jw-eileen-caddy/) | July 27<sup>th</sup>, 2026
+Charlie Chaplin | [Present to the World the Love of God in a Way that resonates beyond Religion](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-7-24-1-jw-charlie-chaplin/) | July 24<sup>th</sup>, 2026
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2026/), or to [contemporary messages by year](/contemporary-messages/#a).*
