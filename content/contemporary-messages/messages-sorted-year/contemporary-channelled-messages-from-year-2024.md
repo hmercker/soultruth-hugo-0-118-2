@@ -493,6 +493,7 @@ Orion | [Recalibrate With Great Energies Coming With Earth Changes](/contemporar
 Judas | [The Greatest Gift you can give](/contemporary-messages/messages-sorted-year/messages-2024/the-greatest-gift-jw-26-nov-2024/) | November 26<sup>th</sup>, 2024
 Miriam | [Continue to Be a Light in God’s World](/contemporary-messages/messages-sorted-year/messages-2024/continue-to-be-a-light-af-26-nov-2024/) | November 26<sup>th</sup>, 2024
 Augustine | [There is Little That Can Keep You From God](/contemporary-messages/messages-sorted-year/messages-2024/there-is-little-af-29-nov-2024/) | November 29<sup>th</sup>, 2024
+Orion | [Divine Rays Accelerate Earth Changes](/contemporary-messages/messages-sorted-year/messages-2024/en-2024-11-30-1-af-orion/) | November 30<sup>th</sup>, 2024
 Augustine | [The Illusions of Your Mind Will Dissolve With Soul Progression](/contemporary-messages/messages-sorted-year/messages-2024/the-illusions-of-your-mind-af-30-nov-2024/) | November 30<sup>th</sup>, 2024
 Jesus | [Blessing for Online Circle of Light](/contemporary-messages/messages-sorted-year/messages-2024/blessing-from-jesus-af-1-dec-2024/) | December 1<sup>st</sup>, 2024
 Augustine | [Be Open to Portals of Change](/contemporary-messages/messages-sorted-year/messages-2024/be-open-to-change-af-1-dec-2024/) | December 1<sup>st</sup>, 2024

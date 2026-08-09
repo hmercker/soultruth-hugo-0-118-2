@@ -1,0 +1,35 @@
+﻿---
+title: "Discovering the Workings of Spiritual Laws in Your Life Through Study and Observation"
+menu_title: ""
+description: "Discovering the Workings of Spiritual Laws in Your Life Through Study and Observation"
+date: 2026-08-09 00:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+
+# Discovering the Workings of Spiritual Laws in Your Life Through Study and Observation
+
+March 1<sup>st</sup>, 2026
+
+Beams of Light, Abbotsford, BC, Canada
+
+James received by Maureen Cardoso
+
+God bless you, my dear friends. I am James. You attract me into your midst by the desires of your soul, your longing for God's Love, your receptivity to this Love, the changes that happen and the transformation each one of you is moving through. I am happy to be with you. I am happy to support, to guide and help to influence you on your journeys of walking and living the Path Divine, helping you to understand the true meaning of walking this path and discovering the light, love, truth, power and wisdom of who you truly are, a beautiful soul created in God's image, created in perfection.
+
+As you have all discovered, the blessing of receiving the Essence of God into your soul brings transformation and changes your human nature into a divine nature. Each of you is somewhere along that journey. It is a long, beautiful, transformative excursion. You are all individually created uniquely and your path to God is unique. Something that every soul who prays for God's Love has in common is His very Substance and Essence within the soul. How it is expressed is unique to each individual. We invite you to go very deeply within yourself, to perceive the essence of your soul, its unique creation and how its expression through you can bring great light into your world in all ways at all times, as your soul is progressing in its strength, love and power and your spirit and your material are learning to integrate and to come into harmony in time.
+
+You are already recognising this, the changes that have occurred, but as time moves on and you stay steady, faithful and committed to walking this path of transformation, you are seeing how your essence, your presence and your demeanour are changing. There is greater light that radiates from you. There are ongoing insights that you each have. Your perceptions are strengthening and you are able to recognise the truth, the wisdom, that bubbles up from your soul. Your spirit mind is perceiving these and then determining, through its free will choice, whether you are able to implement these insights and truths through your material operation, your brain and your body. All of these aspects of you, these centres of consciousness, the soul, the spirit and the material, are progressing in their ability to flow in harmony with compatibility, less duality and greater light being inspired and instilled with truth from the soul, the soul receiving these Truths from God.
+
+It is such a beautiful awakening that is happening within each one of you. We encourage you to take the time and to really be able to feel and see the changes that have come about, to be able to be honest with integrity toward those aspects of you that are largely in the human condition, but to hold compassion and reverence for these aspects as well. For you know, in time, as you stay faithful and truthful to walking this path, these aspects that are not in harmony will also come into the realms of love, harmony and truth.
+
+It is also a good idea to consider the spiritual laws and how they play out in your life. You know the Law of Prayer, the Law of Activation and the Law of Attraction. I want to suggest to you, with the Law of Attraction, that you go deeper than your mind, that you feel into your soul what it is that it is attracting and that you stay aligned with this part of you as you walk your life and allow the light and the love of your soul to attract all that is meant to come onto your path. For when you do this, those things that come to you are in harmony, are in alignment and will feel right and create a sense of rightness, peace and joy within you.
+
+You are familiar with the Law of Desire, allowing the soul's desires to dominate and again focusing on the soul's desires over the mind's desire. For as you do this and you train your mind to align with these desires of your soul, your actions, your words and the way you see the world come into harmony. You can see the goodness as well as the darkness, without letting the darkness take you off your path of truth. There is the Law of Progression and the Law of Cause and Effect. If you can take time to study these laws and to see how their interaction with you plays out, you will know how to pray to God asking for help. There is the Law of Rapport and Communication. The greater Light and Love that you have within your soul from God's Love attract us, your Celestial Angels. We can help you, influence you, speak to you and guide you. I do not mean speaking to you in the way that I am now through an instrument or that you must be a trance medium. You will hear us. You will feel us. Some even see us. These are all ways of communicating.
+
+So, how is it that we currently communicate with you? How do you allow us to be close and allow yourself to hear us, to see us, to know us and, most importantly, to not doubt what your perceptions indicate? Have faith in what you attract. Have faith in your soul. Have faith in God and the Laws of Creation, for it is under these laws that you operate. Aligning yourself, or seeing how these laws play out in your life, these are good indicators for you. These are ways that can bring insight to you. There is so much that is available and awaits your awareness, a change of perceptions and your soul progression.
+
+I bring these words to you in hopes of helping you to go a little deeper on your journey, to contemplate what it means to walk this path and to have both feet on the road of the Divine Love Path. What does that mean for you? How does that look in your life? It is a path of progression at the pace that you determine. At times, the path is challenging. It creates tension between your human condition and your divine condition, but that is transformation. As you release any resistances to change, you will find greater ease in the transformation of those parts of you that are ready to be released. Your soul then has greater room in your life to move you and inform you and the minds of the spirit and the material come into alignment with the mind of your soul, bringing these aspects into harmony.
+
+My dear friends, you are here together and with us, the Celestial Angels. Let us allow our souls to be touched in a way that only God can touch, through His Divine Love and the Holy Spirit, carrying His Essence into our souls, eternally growing. May you be deeply blessed by the Living Waters that flow to you and into you. Drink deeply. I am James. Thank you for hearing my teaching and for the Love that awakens you in the light of God's blessings. God bless you.
