@@ -1,0 +1,27 @@
+﻿---
+title: "Attitude of Gratitude"
+menu_title: ""
+description: "Attitude of Gratitude"
+date: 2026-09-16 00:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+
+# Attitude of Gratitude
+
+September 14<sup>th</sup>, 2015
+
+Prayer Circle, Gibsons, BC, Canada
+
+Keea Atta Kem received by Al Fike
+
+
+A grateful soul is an open soul. When you look at your lives in this way, when you seek the Light, when you accentuate all that which is positive in your life, you are closer to God, you are closer to harmony and peace within yourselves. And when the blessing of God’s Love clears away all the fear and the error, when you are in that place of gratitude and Love, when you find that deep peace within yourselves, the world changes around you, my beloveds, because you see the world differently, you know the world from a place of soul and Love and perception that comes from the soul.
+
+Do not grasp the negative. Do not allow these thoughts and conditions to enter into your consciouses, and when it does use this exercise of gratitude to clear away those clouds, to bring the Light back in to your minds and to allow the Light within your souls to enter into your consciouses and God’s Touch upon you to bring you to that place of joy, of truly understanding the Gift that is your life and the Gift that is you within your life, within God’s wondrous creation.
+
+Beloveds, you are a Light, all of you, a beautiful Light. Walk in the world in this way rather than engaging in conditions that are not harmonious with Light. Walk in the world with this attitude that is gracious and grateful, loving and kind, generous and innocent, and God will protect you and guide you as you walk through your life in this way, and He will use you as His channels of Love, and this Light will be infectious all about you to those who encounter you, they will feel this condition and Light and they cannot but help to be drawn in, to change and shift within themselves, to be drawn into the Light.
+
+WARNING - Check Spirit Name
+

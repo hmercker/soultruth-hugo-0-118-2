@@ -1,0 +1,36 @@
+﻿---
+title: "Be my Disciples; Walk this Path of Love together"
+menu_title: ""
+description: "Be my Disciples; Walk this Path of Love together"
+date: 2026-09-16 00:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+
+# Be my Disciples; Walk this Path of Love together
+
+June 21<sup>st</sup>, 2015
+
+Prayer Circle, Gibsons, BC, Canada
+
+Jesus received by Al Fike
+
+Be my Disciples; Walk this Path of Love together
+
+I am Jesus. I come to be with you in your prayers and I am pleased that you take this time to pray together for your prayers are necessary, are required at this time to help you progress to that higher level of consciousness in the flow of your Heavenly Father’s Love. Seek your Heavenly Father. Seek your Heavenly Father often. Be in this state of prayer, in this grace of the Father’s touch that you may indeed ascend to a place that is not caught up in the human condition, that is not filled with worries and cares, judgments and fears but a place of liberation, of peace and joy. It is possible, it awaits each one of you. And your efforts to stretch, to yearn, and to long to be in that place where the peace that passes all understanding is forefront in your awareness and your being where God’s Love brings great insight and motivates you in everything that you do and everything that you think and everything that you are is influenced by this Love.  And in this place God will guide you freely and clearly in your lives, for there will be nothing to hold you from His sure and loving guidance.
+
+You will have released your old cloak and donned a new garb of Light and Beauty and Love. Be my disciples. Walk this Path of Love together. Work together to do God’s Will and open your eyes, open your minds, open your souls to the new day that dawns, that place of freedom and joy. It is so close, my beloveds, so very close. And you pause at the door and you wonder at what you will lose if you step through this door and I say, my brethren, you will lose nothing and gain everything, for when you are fully within the Father’s care all that you require, all that is required will be given and given in abundance. And in this new place of being that which you will require will be different from that which you believe that you need at this time. Life will simplify and yet the work will intensify and you will travel and seek out many souls who desire the touch of God and His Love, some who have already been touched and live in abundance and Light and some who are eager to have what you possess, and many who are curious and who are seeking relief from their pains, answers to their questions, love in their hearts.
+
+Yes the world seeks so much, the world needs so much for the Father to heal, to replenish, to feed the succor for the soul. For many hunger greatly and do not know for what they hunger and you my children, my disciples, know this Truth and this Love and you can bring this Love to those who are hungry. You can teach them how to fill this hunger. You can show them the way to Love and as you do so you do the Father’s Will and you do my work in this world, a work so necessary and crucial in this time in your world.
+
+Seek to know your place within the plan of the Father’s salvation for mankind. Seek to know your purpose. And as you earnestly long to understand God’s purpose for each one of you, you will find the answers, you will know the Way, you will walk upon the Path Divine in confidence and surety and joy. God awaits your sincere and true desire to be with Him above all else, to be true to your soul and that Love within above all else, and to accept the consciousness and the power and the desire of your soul that it may be your guiding force, your true and clear motivation in your lives.
+
+Yes, each soul struggles with this dilemma to follow the desires of your soul or the will of your mind, and so much on this Earth compels you to use your mental faculties as your guiding force and motivation and yet we the angels beseech you to seek the understanding that comes with the soul filled with the Father’s Love. And you have struggled many long years, some have struggled for many years in this dilemma and now it is time to throw away that old cloak and to don the garments and vestments of Truth and Love and Light and to follow, to follow me upon this road. And my promise to you is that I will never leave you, and I will always guide you, and many angels will surround you.
+
+Even when you feel the vulnerability of this new way of being in the world you will be surrounded and protected and you will know a strength and a surety that comes with the soul knowing God and knowing Truth. And you will be a great Light in this world, a leader, leading mankind to these simple Truths, to a way out of so many dark and difficult dilemmas. And many will indeed challenge you as they create within their mind’s vision a way to discredit and to turn away and this at times will be hurtful and frustrating and challenging, for to ask a soul to change its thinking and being creates fear and resistance.
+
+Yet you must persist, my children, for without these changes in the world the suffering will multiply and escalate, and this dear and beloved world will continue to heave in pain and the balance must be obtained and restored. This must be so, my children, my beloveds, and the time is now, for much rests upon the efforts of mankind to make this choice for Light. Much rests upon your decision, my beloveds, to choose the Path Divine in this more complete way.
+
+You are ready, though I am sure that you feel that you are not, yet you are. It is a decision, a step, a desire and a resolve to step beyond that line that you have drawn, that line that you have drawn where you feel safe and secure and yet it is only a illusion. There is no security in this world except when you are with your Heavenly Father. In that Light there is security and all that you require. The rest is an illusion which you must put aside and allow the Truth, the clarity of Truth, the immensity of Truth, the solidity of Truth, of reality to infuse your consciousness so that when it is required for you to guide others your vision will be clear, your understanding will be comprehensive and you will be able to guide many who will be confused and fearful and clamoring.
+

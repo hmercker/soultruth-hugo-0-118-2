@@ -1,0 +1,25 @@
+﻿---
+title: "So much can be accomplished through Prayer"
+menu_title: ""
+description: "So much can be accomplished through Prayer"
+date: 2026-09-16 00:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+
+# So much can be accomplished through Prayer
+
+November 28<sup>th</sup>, 2015
+
+Prayer Circle, Gibsons, BC, Canada
+
+Faith Nyquist received by Al Fike
+
+
+Friends, I am Faith and I am so happy to see so many beautiful souls gathered in one place in prayer, to see the Light that is generated from your prayers and your longings from the soul. It reaches far into the world of spirit, it reaches far into your world. To have this singleness of purpose, this great longing to bring God’s Love and all its power and glory into yourselves in this way brings a change in the world, a change into the conditions of this world and into the world of spirit. It is a powerful thing which has many blessings and benefits not only to you, my beloveds, but to this world and all those connected to you and all those in this world. So much can be accomplished through prayer, through reaching your Heavenly Father, through beseeching your Heavenly Father to receive His essence within your souls.
+
+No hurt, no pain, no dilemma, no question is insurmountable with this Love. Its healing qualities, its ability to bring you Truth, its channel and connection with God’s Great Soul will bring all that you require upon your journey of life, and it is for you to truly understand this, to make this awareness a part of the faith that grows within you that you may utilize, absorb, and make real within yourself this great Truth of Love, walking within this Light with every step and this Love informing every thought, every deed, everything that you are and that it shall propel you forth in this world as God’s channels of Love.
+
+Yes, my beloved, beloved friends, much awaits you, great service to mankind, wonderful growth within your souls, a great Love blossoming, enveloping and healing you so that you may be God’s pure channels of Love in the world. These Gifts are available to all who seek them. It is but for the asking and to lay down your fears and doubts and all those conditions of this world that keep you from God, to put them aside and be with God. There is no need for complex explanations of this simple act. There is no need for you to be wrapped up in your thinking and analysis of the longings of your soul. It simply requires the act of prayer and longing and being in this Light. So simple, so complete, so beautiful.
+

@@ -1,0 +1,35 @@
+﻿---
+title: "Who you truly are"
+menu_title: ""
+description: "Who you truly are"
+date: 2026-09-16 00:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+
+# Who you truly are
+
+February 21<sup>st</sup>, 2015
+
+Tour 2015, Homosassa Springs, FL, USA
+
+Andrew received by Al Fike
+
+
+God bless you my beloved souls.  I am Andrew.  Each of you has received Divine Love within your souls.  Each of you seeks for greater Love and understanding.  In fact, many of you have dedicated your lives at this time to seek truth, to truly know, to fix within your consciousness, the truth of God’s existence and Love for you.  And this truth and this awareness will change in time, will find greater depths and greater breadths within you as God blesses you with His Love, as you seek the truth through your life experience, through your prayers and through your efforts to serve God.  Life is an ever evolving and changing thing and so, your understanding of the truth will evolve as your soul grows within and that expression of *"who you truly are"* will indeed evolve and grow.  And that which you cannot tolerate today, you may indeed embrace tomorrow.  And that which you embrace today, you may find intolerable tomorrow.  This is the way of the world of your being.   Yes, life changes and those in the care of God will grow and change and strengthen and find greater depth.
+
+So much to be revealed to you my beloveds, so much awaits you.   It awaits that time of true receptivity.  It awaits that time where your minds may be more influenced by your soul perceptions.  And your soul may grow in greater capacity with the blessings of God’s Love.  There are basic truths that you all know and these will not change, although they will be added to, but be receptive to what God has to give you with each day that you live upon this world.   It is an opportunity to learn something, to grow in some way, to come even closer to your Heavenly Father in prayer.  And as you learn to live within the Laws of His Love, as you learn to be in harmony within yourselves to love, to accept, to grow, to learn and to give, to truly give of yourselves to another, there will be shifts and changes within you.
+
+And you must have compassion for yourselves my children and love, for you are tender and new and need the nurturing.  Allow god to help you to grow, to guide you on your life’s path, to give you what you require and to bring you the truth to the inflowing of His Love.  That truth will stay with you and will expand as your souls expand and become clear as you are closer to your Heavenly father and these truths that are given are pearls beyond price.  And what you know already my children can change the world, can change the world, if the world but listens and can accept these simple truths.  And for those of you who wish to change the world, as a channel of God’s Love and Grace, do not be perturbed or impatient, but to have faith that God will show you the way through the complexities and the conditions of this world to a place of power and strength, clarity and love, wisdom and surety, that who you are and what you say and what you emanate will draw those who feel this within you and their ears will be opened, their minds willing to listen.  And through your teaching and demonstrating the truth, you will indeed change the world.
+
+For when you walk in this way in the world, you do the work of the Master and you fulfill the desires of God, to bring healing, comfort and Love to mankind.  It is a humble task and a humbling task, for you will not be showered with acknowledgment and appreciation from all you meet.  Many will turn away from you, but those who do not, you will have planted the seeds of truth that will change their lives forever.  You will have pulled a soul from darkness into the Light.  You will have brought the greatest gift to them and revealed to them that they have a choice to be with God, to be loved by God, to live by the truths of God’s Love.
+
+Indeed, it is for them to choose, but is for you to inform those who do not know, who cannot see. Give them the choice.  Through what you say and who you are, you do affect those around you.  And there is always a reaction.  This is all you can anticipate.  It is a response nonetheless.  And this is a stirring and a longing and for some, they are fearful of this and for others, they are joyful and recognize this response as good and important.  And so it is in this world.  God gives this Light to those willing to receive and those that are willing to receive have a responsibility to sustain the Light, to grow the Light with prayer and supplication to their Heavenly Father.  And as they become stronger and brighter, responsibilities become greater, to be that purveyor of the truth, to teach, to be a channel of Light and healing and comfort and love to many, and many of you are at that point, to be out into the world to teach and heal and comfort, to reach out, and I would encourage you to do so my beloveds.
+
+It is important.  It is required, for the world is in a desperate condition.  All of the façade is false and will not last for underneath this great lacking, the hollowness and a great deal of ignorance and error and to go forth, to break through this façade and to reveal the error, which will happen as you walk in the world.  It will happen in ways that are subtle yet powerful.  Some of this will be overt and you will receive a response and some will want to lash out, but I tell you, the time is now to be God’s instrument of change, of truth and you must be strong my children, committed and sure of your steps.  And much will be asked of you.  There will be sacrifice.  At times, it will be painful, but along with these elements, will be a great joy and an understanding that you are with your God, your Heavenly Father, as His child and in Him loving you and you loving Him, the world will take on a new perception, and understanding and your priorities will change.
+
+And what is important today will not be tomorrow.  So I encourage you, my beloveds, beautiful souls, who do indeed want to walk in Light and Truth, please do so, with every step.  And we walk with you, will protect you, inspire you and God will provide for you.  What is required, faith my children, faith, trust, love, integrity and honesty.  You must be and do and be all of these things in order to walk this path as you were meant to, for each soul has a purpose.  Each soul shall be shown what they must do.  Each soul has gifts and abilities, yet unrecognized, but waiting, waiting for that time of true and full expression.  And all will come about in the flow of God’s Love.
+
+The key to all of this is your ability and your desire and your effort to receive this Love in great abundance.  Nothing else will bring about these changes within and this flow of truth that will come.  Beautiful souls, walk with the angels.  Be with us in this great work and you will find your way.  And you will find this joyous and wondrous.  God bless you, God bless you.  I am Andrew and I love you.  God bless you.
+

@@ -185,7 +185,7 @@ Seretta Kem | [The Law of Rapport and Communication and Preparing for Times Ahea
 Elijah | [Be Flexible and Faithful as Necessary Change Comes to the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-8-1-af-elijah/) | June 8<sup>th</sup>, 2026
 Orion | [Acknowledge the Power of God’s Blessings Upon You](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-13-1-af-orion/) | June 13<sup>th</sup>, 2026
 Jesus | [With Your Efforts and Commitments, God Will Bring to You the Hungering Souls](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-14-1-af-jesus/) | June 14<sup>th</sup>, 2026
-Luke | [Seek From Your Soul to Know God's Truths](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-14-2-af-luke/) | June 14<sup>th</sup>, 2026
+Luke | [Seek From Your Soul to Know God's Truths](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-14-2-mc-luke/) | June 14<sup>th</sup>, 2026
 Lao Tzu | [The Way that is Spoken is not the Eternal Way](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-15-1-jw-lao-tzu/) | June 15<sup>th</sup>, 2026
 Orion | [Take the Leap and We Will Be Waiting for You on the Other Side](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-16-1-af-orion/) | June 16<sup>th</sup>, 2026
 Barbara Davies | [Awaken the Soul to God’s Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-19-1-af-barbara-davies/) | June 19<sup>th</sup>, 2026
