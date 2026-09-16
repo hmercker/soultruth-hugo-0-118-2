@@ -12,13 +12,9 @@ weight:
 
 January 28<sup>th</sup>, 2015
 
-, HI, USA
+HI, USA
 
 Francis of Assisi received by Al Fike
-
-Walk This World Guided By Father
-
-Received by: Al Fike
 
 God bless you and I am with you because you have requested my presence, because you prayed to know the Truth, because within your hearts you know that you love God and within my heart, I love God. And there are many in the Celestial Heavens, all within the Celestial Heavens, who love God, for those who reside there are close to God, are seeking to be close to God through knowing Him and receiving His Essence of Love.
 
