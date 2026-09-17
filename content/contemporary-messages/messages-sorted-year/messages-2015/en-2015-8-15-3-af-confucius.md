@@ -16,7 +16,6 @@ Divine Love Retreat, Gibsons, BC, Canada
 
 Confucius received by Al Fike
 
-
 I am Confucius, and I carry the burden of the men (laughter).
 
 Willful creatures they are but indeed within their souls they carry a great desire to do God’s work; to grow in the Love and this gives me great hope. Yes, every soul has a great potential within them to carry the Truth of God and to manifest His Blessings in the world. And when a soul is in alignment with God and His Love, such great miracles, wondrous blessings will manifest. And for the men this brings a quality and power that is great and effective.
@@ -27,3 +26,4 @@ Do not take this life for granted, my beloved brothers but live it to the fulles
 
 Each of you, my brothers, have great gifts. Many of these gifts you are not aware and may remain hidden behind the veil of your own doubts. I ask you to cast aside your doubts, to walk in faith, to walk bravely beyond that place on which you stand that feels comfortable to you and yet you cannot stay there for long. For the Love accumulating within your souls will transform that place of comfort to discomfort. For one cannot stand in the greyness but must stand in the full Light of Truth. And this indeed is difficult, for the mind which draws into itself many ideas which it believes are plausible and important but are not. The Truth comes from the soul, my beloveds. It is the soul you seek truly. For truly in seeking the soul you seek yourselves, your true selves, that part of you that goes on for all eternity when it is imbued with the Father’s Love. The rest is mere window dressing, my beloveds, soon to become irrelevant, soon to fall away and then Truth will shine forth and be your guiding Light.
 
+Each soul is precious to me, each soul in this circle and I watch over you, my beloveds in loving service, for it is my gift from God to have my charges upon the world. And I shall never leave you and always love you and we shall always walk hand in hand to our destiny, which is to be at one with God. Beloved and precious souls, continue upon your journeys and God will always be with you, as will we. God bless you.

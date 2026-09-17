@@ -5,17 +5,15 @@ description: "Augustine explains that Divine Love is the path to heal the World"
 date: 2016-10-10 21:48:44+00:00
 draft: False
 hidden: True
-weight: 430
+weight:
 ---
 # Divine Love is the path to heal the World
 
 August 22<sup>nd</sup>, 2015
 
-Received by: Al Fike
+Divine Love Retreat, Gibsons, BC, Canada
 
-Gibsons, B.C.
-
- 
+Augustine received by Al Fike
 
 God bless you, my beloved souls, it is Augustine, your teacher, and I promised you some commentary on the changes in the world and the changes within your souls, so I shall begin.
 

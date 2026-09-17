@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Augustine received by Al Fike
 
-
 God bless you, your teacher Augustine is with you in your morning prayers in your small gathering of Love.
 
 Beloved souls, each of you has a great purpose and it is for you at this time as you walk on this Earth, as you contemplate this walk that is your life, to come to know your purpose, beloveds, and to ask God to reveal to you what it is that He placed you upon this world to do. For each has unique gifts and abilities and a deep purpose and you play a part in the plan for the salvation of mankind and the healing of this world, a great part and important role to play and when you discover this and when this grows and blossoms within you, becomes a conscious part of yourself, you will find a deep fulfillment and joy in this acknowledgement and the manifestation of this purposeful blessing in the world. For to know your purpose, my beloveds, and to express this, brings the deepest joy as it is magnified by the Heavenly Father’s Love within you. And this is a great blessing.
@@ -32,4 +31,3 @@ And you will know not fear, you will not be shy to be who you truly are, you wil
 Precious souls, continue in your prayers, in your efforts to reach God to open your souls to His blessing, His Divine Essence. There is no other greater pursuit. In this way all of what I speak will be revealed and expressed and come into your reality and you will be guided thus through your life. You already walk this Path firmly upon this life divine, this understanding and revealing of Truth, this coming to know what Love truly is, who God truly is, who you truly are. You continue to progress and we will continue to assist you in your progression and we will never leave you, my beloveds, and we have never left you, even those of you who felt abandoned have not been abandoned for God’s Love continues to burn within each soul in this circle and shall continue for all eternity, my beloveds, all eternity. For the power of this Love within you will bring you to your at-onement with God as you walk your Path towards Light.
 
 God bless you, my beloveds. Your teacher Augustine has a great, deep and abiding love for each one of you. Each beautiful soul in this circle. I love you, I watch over you and I guide you and you are God’s Gift to me, to have this opportunity to be one of your guiding Lights. It is my blessing and I rejoice in this, beloved souls. I rejoice in this and I love you. God bless you.
-

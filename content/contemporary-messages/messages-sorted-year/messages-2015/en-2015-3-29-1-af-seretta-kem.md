@@ -5,17 +5,15 @@ description: "In this message Seretta Kem explains The greatest of all types of 
 date: 2019-05-21 21:48:44+00:00
 draft: False
 hidden: True
-weight: 430
+weight:
 ---
 # The greatest of all types of healing is Divine Love healing
 
 March 29, 2015
 
-Received by: A. F.
+New York Retreat, New York, NY, USA
 
-New York, N.Y.
-
- 
+Seretta Kem received by Al Fike
 
 Beloved souls, I am Seretta Kem. When I was on Earth, I lived in what you call Egypt, many, many generations ago when my country and culture was at its peak, and I have studied the art of healing for a very long time and I walk upon the Divine Path and I inhabit the Celestial Kingdom. 
 The greatest healing of all is obtained through the inflowing of God’s Essence, His Divine Love. For as you heal your souls in this way as God brings His transformative Love into you, then all changes within your being, every cell within your body, all the energies of your spirit, all the aspects of your mind, both material and soul are influenced by this Love. It is truly transformative and powerful. 
@@ -37,4 +35,3 @@ You are all on a journey to come to know yourself, your own identity, and to kno
 How important is that gift? And how necessary it is for you to understand the power of this gift and to choose. God does not give His Love to those who do not choose to receive it. It is your choice. It is your prayer. It is your longing. And as more Love flows into your soul, it brings to your consciousness a greater awareness of that which is not in harmony with this Love. Again you must choose to change, to walk in greater harmony, to be in a greater and higher condition of Love. And to attend to those needs of your bodies which would make greater harmony with this temple that God has placed your souls in. 
 
 Yes, life is not easy. There are many, many aspects of life that challenge each one of you, and there are many around you who challenge you, and there is much need in this world, a great need and a desire to draw from you. My brethren, my brothers and sisters, heed my words and understand, you are truly loved. You are truly loved. In the grace, in the beauty, in the peace of God’s Love. God bless you.
-

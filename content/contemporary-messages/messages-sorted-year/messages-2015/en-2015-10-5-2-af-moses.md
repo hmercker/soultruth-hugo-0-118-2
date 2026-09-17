@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Moses received by Al Fike
 
-
 I am Moses and I’ve come a great distance to be with you, my beloveds, for I live in the Celestial Heavens.
 
 Yes, when I was on Earth I journeyed near and far. My life was filled with journeys and I relied upon my Heavenly Father to guide me along my path and I sought His guidance and His presence in my life. And, in so doing, I brought a deep insight into myself and an ability to see, to have vision spiritually. And you, my beloved, beautiful souls, it is like you are in a boat upon the seas and you are all together in this boat being guided by God. Some of you have vision, some have wisdom, you all contribute in some way to this journey together as God guides you and uses your Gifts to contribute to the journey.  Beloved souls, know that God has brought you together, that He gives you the Gift of one another, that He shows you, through His guidance, the steps you must take, the journey upon these waters of life.
@@ -27,3 +26,4 @@ And, there are things you must do, my beloveds. You must send your prayers to yo
 
 And you continue, my beloveds, you continue and God will ever be there like a guiding star a great light showing you where you must go. Take comfort in one another and use your Gifts to support one another in loving ways and as you support one another, you help each beautiful soul to open a little further and to be a clearer channel in the world.
 
+Yes, I journeyed far and I’m known amongst men for my journeys, but you, my beloveds, will journey further and you will, in time, save many souls from the dark and lost journey that they are on. Show them the way, God’s Way to Light and great peace and joy. Beloved souls, may the Father touch your souls deeply, bring you peace and joy and wisdom that can come from only that place within you that is in touch with God.  God bless you, my beloveds, I am Moses and I come to encourage you upon your journeys and I walk with you as you discover each day as a Gift from God, God bless you.

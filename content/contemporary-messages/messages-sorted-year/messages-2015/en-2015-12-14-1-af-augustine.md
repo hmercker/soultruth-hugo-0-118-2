@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Augustine received by Al Fike
 
-
 God bless you beloveds, it is your teacher Augustine.
 
 A lesson was given this morning which I wish to reiterate to all of you, my beloveds, for it is an important lesson regarding your free will and God’s Will. For it is a tendency of mankind to formulate and to mold and to manipulate the flow of God’s Will and Love in the world; to bring your ideas forward as to what this Love is, how it can be expressed and should be expressed in the world.

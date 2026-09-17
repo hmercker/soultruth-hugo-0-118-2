@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Seretta Kem received by Al Fike
 
-
 Beautiful and beloved souls, welcome to this circle of Light.
 
 This is where you may safely open yourselves to one another in loving harmony and openness, allowing your feelings and thoughts, the longings of your souls, the intentions that are within you to be shared with one another. For in this way you create powerful bonds of Love amongst you. And for those who live far off, these bonds of Love will continue to nurture you and you will continue to nurture others with this beautiful connection of Light between you.
@@ -31,3 +30,4 @@ Blessed are the peacemakers in this world, blessed are those who gaze towards Li
 
 This is your purpose, my beloveds, to walk the Earth in this way, seeking to do God’s Will in this way, walking this road of Love, of acceptance, tolerance and a wisdom, and I know that you will walk this road and we in spirit will walk with you every step, every breath, every moment. As each door opens we will walk through with you and you must not fear the differences, for know that God is carrying you through and showing you the way and bringing you close and allowing the other to be seen, to be heard, and to be loved. As these barriers break down and the Love flows, there will be no differences from soul to soul, a great unifying harmony that will change this world, my beloveds, will change this world and bring it from darkness to Light, a wonderful healing and harmony and rightness and balance and Love.
 
+So, my friends, you have made one little step towards this in your efforts to facilitate healing in this world and I congratulate you, for you made a wonderful impact of Light as God’s channels of healing and Light. And you will continue to do so, my beloveds, as you learn the ways of God, as you acknowledge your own soul’s desires to serve God in many creative and beautiful ways, embracing many beautiful souls and lost souls and hungering souls. Continue in your efforts to create circles of Light in the world and to bring Love into the world and we will guide you and ensure that you will indeed add many connections of Light in the world. God bless you, I am your friend and servant, Seretta Kem, and I am with you often helping you to grow, helping you to heal, helping you to open in your Gifts and your souls. God bless you, God bless you, beautiful souls. I love you.

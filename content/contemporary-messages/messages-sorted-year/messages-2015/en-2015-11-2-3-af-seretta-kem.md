@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Seretta Kem received by Al Fike
 
-
 Precious and beloved souls, I am Seretta Kem and I come to bring a blessing to you, my beloveds, to assist you upon your journeys. And you, my dear daughter, who journeys, God will use you in many ways upon this travel and you will be aware each day how you are being used and how the flow of Love will connect to many. And this is what is meant for all of you, my beloveds, to journey in the world and be a channel of Love affecting many souls who await, who await you to be that channel of Love awakening something within them, a deep desire.
 
 And how beautiful it is to see these precious souls, drawn to the Light and did there not arise within you, my beloveds, a desire for this? Not necessarily within your minds an understanding of what it is you are drawn to but a pull within your souls which drew you together in a circle of Light and prayer. And yes, though the mind may not know in great detail things like laws of the Divine Love, the world of spirit, the laws of creation, nevertheless the soul is drawn and takes precedence with those who are willing to allow this, who feel their souls and feel themselves being lifted up by God to a place of Light.
@@ -25,3 +24,4 @@ Yes, knowledge comes, my beloveds, it comes and it is given to you in many ways.
 
 Precious souls, we come to help you to discover the Truth in greater quantity and depth and brilliance. Seek this Love and the Truth will follow, seek to be a channel of Love and many will be drawn to you as God implants within you His Love and opens your Gifts. You will assist many to bring greater Light and Harmony into their lives that you may all walk in Light and in time change the world.
 
+Bring harmony and peace one step at a time, my beloveds, one step at a time and you will find the Light that you seek, the Truth that awaits you and the service that God desires you to do in this world, all with the foundation of Love. You all know this and you all seek it and you will find as you walk in your life guided by God, touched within your soul by His Holy Spirit and led along this Path of life in great discovery and joy. God bless you, God bless you. I am Seretta Kem and I assist you on your journeys and I assist you in your journey of life and this is my blessing to do so in Love. God bless you. 

@@ -16,7 +16,6 @@ Divine Love Retreat, Gibsons, BC, Canada
 
 Peter received by Al Fike
 
-
 God bless you, beloved souls, I am Peter.
 
 You each prepare yourselves for the work that lies ahead, for each of you has a purpose in this world to fulfill. Do you truly know this, my brothers and sisters, that you have a task which God has imbued upon you, to work on behalf of mankind, to bring greater light and understanding and peace to this world? And each task is unique as is each soul present here, and every soul in this world, in the world of spirit. And this task is especially formulated to suit your specific gifts and abilities and personality. This is the wonderment of God’s Creation, the harmony of God’s Creation, for He does not give you that which is too difficult for you to fulfill. He gives you a task that is perfectly suited for your being and in expressing and performing this task, this purpose, comes a deep fulfillment and knowing from deep within that this is what you are meant to do.
@@ -36,4 +35,3 @@ What you seek in all of your efforts and prayers is to know your souls, for know
 Seek ye the kingdom and all shall come unto you, my beloveds, seek the Love and all will fall into place. It is in accordance to your desire, your efforts to nurture your soul through prayer, being with God and receiving His Love. For those who are eager, direct this energy in your efforts to be with God. For those who are curious, release your doubt and be of good faith. For those who are ambivalent, release the thoughts of your mind and commune with your Heavenly Father, for He will indeed show you the way to Truth.
 
 God bless you, my beloved souls, earnest seekers of Love and Truth. I am Peter and I am with you in your efforts, for mankind needs you, needs you to forge this Path and walk this trail so that others may follow. God bless you and I love you. God bless you.
-

@@ -16,7 +16,6 @@ Divine Love Retreat, Gibsons, BC, Canada
 
 Isaiah & Jesus received by Al Fike
 
-
 I am **Isaiah**, and I have come to add my congratulations to you, for coming together and walking a little further in the Love together and allowing God to work his miraculous healing Love within you, so that you may shift in your awareness, that you may be strengthened in your souls and that you may focus on serving your Heavenly Father.
 
 Dear, beloved souls, do not forget what you have learned here, do not release the commitments that you have made but enhance them with your love and tributes to God.  Allow God’s guidance to infuse you with purpose, to give you greater insight, allow His Love to touch all those parts of you that are in need of its healing and transformative powers. And as this transformation occurs you will receive greater insights, your souls will be familiar to you in a way that is difficult at these times. It will be so much a part of your natures, the awareness of your beings to be in touch with your souls. And in being in touch with your souls you will find that you are communing with God with every breath and he will guide you with every step and you will truly be His channel of His Love.  As the flow of His Love is manifested in a pure and powerful way in the world through you, through all of you, think of what you may accomplish beautiful souls.
@@ -34,4 +33,3 @@ You are now bonded for all eternity, my brothers and sisters. And in this great 
 **Jesus:** Continue in your efforts, continue in your commitments and open yourselves to greater work and it shall come your way in avenues unexpected, in possibilities unimagined, in expressions that are now beginning to emerge as your gifts are drawn up by the Light and the Love. Work together, my beloveds. Keep each other within the consciousness of your prayers, of your efforts. You are now a family of children in God’s care and you are now servants of God’s Will and you are now disciples of the Truth. You carry a great responsibility and you carry a great blessing of Light and you will now be upheld, truly upheld by the angels. Call upon us to support you. Be enveloped in this Light and walk this world as emissaries of Love.
 
 God bless you, my beloveds, God bless you. I am Jesus, God bless you.
-

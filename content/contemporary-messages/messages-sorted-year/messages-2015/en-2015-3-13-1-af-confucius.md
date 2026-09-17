@@ -16,7 +16,6 @@ Tour 2015, Casa Piccolo, Windhoek, Namibia
 
 Confucius received by Al Fike
 
-
 Precious and beloved souls, it is Confucius. God bless you beloveds.
 
 We have been with you upon your journeys within your vehicle. We have been within that transport sitting beside you and at times we have influenced you to turn down certain roads so that you may see these animals, and we have influenced others to come to give you the message to come to the watering holes.
@@ -30,4 +29,3 @@ May God carry you forward in this way in the flow of His Love going to every cor
 [ personal ] …So it is in your world. So many do not feel loved and are alone and you bring this message that they are loved and not alone. Be God’s Lights my beloveds, do not allow your judgements to dim this Light. But embrace all in this simple way. And appreciate their own beauty, their uniqueness and love them for as you are a channel of Love in this way you increase the capacity to love within you and the capacity for God to love others through you. Do not judge but be as a child, innocent and loving. Like the dear soul who patted this instrument’s arm, his love was felt. Is he not a channel of God’s Love? This simple and vulnerable child gave love. Bless the children. Bless all those who are willing to give love, bless all those so down-trodden and lost, bless this world which thirst for love and is lost in such confusion and darkness, bless humanity who were made in love and shall in some time find this Love. Bless those who are beacons of Love for they are the bell-toll that shall show the way to God and bring the comfort of the Truth and shall be God’s Hands in the world, touching the lonely and the separate, the lost and those in great pain. Be God’s hands my beloveds, allow the Love flow through you. Listen to our guidance, be innocent and true and there will be great rewards for those willing and open and true to His Will.
 
 God bless you beloved, beloved children. May peace be with you always and His Love finds a constant inflowing into your souls, beloved children. And your Angel Confucius will be with you upon all of your journeys for God has given me this purpose and blessing to be your guide to be with you as you learn and grow as God’s precious channels of Love. Beloved beloveds, I love you and always be with you. God bless you.
-

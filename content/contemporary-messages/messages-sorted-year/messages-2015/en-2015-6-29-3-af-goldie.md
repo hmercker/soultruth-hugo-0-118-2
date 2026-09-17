@@ -16,7 +16,4 @@ Prayer Circle, Gibsons, BC, Canada
 
 Goldie received by Al Fike
 
-
-
-WARNING - Check Spirit Name
-
+And no time to waste! (laughs) But please, take time to enjoy your life and be happy in this world, for God has given you much and you live in the Light. Be joyful, my friends, and you will walk in the Light. I am Goldie and I love you. God bless you.  

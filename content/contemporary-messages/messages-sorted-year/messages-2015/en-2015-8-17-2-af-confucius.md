@@ -16,7 +16,6 @@ Divine Love Retreat, Gibsons, BC, Canada
 
 Confucius received by Al Fike
 
-
 Precious and beloved souls, I am Confucius and I come to greet you this morning with my love and to give you some guidance.
 
 The Father’s Love is everywhere and every place in His universe, but you, my beloveds, have drawn in this Love through your prayers and desire to receive it. And with this gift of Love within your souls you may bring to others a desire for this Love. For God uses you to plant these seeds into all you meet. When you walk upon this Earth you are God’s purveyors of Love and Truth, remember this, my beloveds. Remember that wherever you go, you bring this Love. Whomever you meet, you bring this Love and you need not say the words. It is your being, it is your soul that carries the Love. And often you are not aware that this blessing, this inspiration, is given as God uses you through your souls to touch another soul.
@@ -31,3 +30,4 @@ As you walk in this world, as you walk amongst your brothers and sisters be that
 
 Do not judge, do not fear, but be in that wave of the Father’s Love, that mighty river that flows from His Great Soul to all the souls of His creation.  And you will receive in abundance and give in abundance and this will grow and grow. God will sow the seeds of Love wherever it is possible and He asks each and every one of you to make this possible, to walk this road in clarity, in humility, in fervent service to His Will. In this you will indeed receive your rewards, your gifts from many aspects of the Father’s Creation. So much awaits, so much awaits.
 
+A gift of Love to you, my beloveds, a gift of Love, do not hold yourselves back but bring this in, absorb this Love as much as you are able. Do not hold back, release all that which is in the way, my beloveds. God is touching you at this time with His Love.  Beautiful souls, precious and beautiful souls, God bless you, my beloveds. Confucius loves you.

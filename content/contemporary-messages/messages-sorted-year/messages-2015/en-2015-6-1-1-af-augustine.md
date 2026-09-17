@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Augustine received by Al Fike
 
-
 May His Love find a constant inflowing into your souls. I am Augustine and I have come to make comment upon the efforts of these two precious souls who endeavor to become ministers of their church. For those who see these titles as important, the doors will be opened for these precious souls who seek this title. In this world such things have gravity and importance, while in our world, it is the relationship of the soul to its Creator that is of all importance. So there are times when one must comply to the conditions of humanity which demand titles and formal recognition, and I wish to encourage my two precious charges in their efforts to attain these titles.
 
 There will be many blessings which will flow from these efforts. Already there is a greater bond forged with those who are in association with their church and this shall continue to strengthen. And in this strengthening and fellowship many blessings will flow and greater understanding be obtained. There are gifts which will be given through you and gifts that will be given to you in this effort.
@@ -29,3 +28,4 @@ Walk in the Light, all of you, my beloveds, walk in the Light and know that ther
 
 God blesses all His children in many ways guiding them on their unique Paths, taking them on that journey that unfolds in the flow of His Love.  And with the blessings of God’s Love, your souls begin to recognize in a more conscious way what you are meant to do and the timing of this becomes clear and more elegant in its unfolding and enacting.
 
+We are pleased with your efforts, all of your efforts, my beloveds, and we continue to support you and be with you in your prayers and while you live your lives day by day you step incrementally ever closer to your Heavenly Father. And we feel great joy to see the Light within you glow brighter as the Love of God works its transformative powers upon you. Blessings to you, my beloveds, blessings to all the children, all those whom you love, all those within the orbit of your Light. Be a channel for the world, be an agent of change to bring harmony and peace, be with God always and we will be with you always in this great pursuit of healing, of transformation, of change, of Light. God bless you, your teacher Augustine has great love for each one of you. You are beautiful souls and you walk in Light. You are loved. God bless you.

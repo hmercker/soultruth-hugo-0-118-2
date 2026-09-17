@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Confucius received by Al Fike
 
-
 God Bless you. I am Confucius. Each of you has been called to do this work, to further God’s Will in this world, to work together, to pray together, to be as God intended you to be, my beloveds, in harmony, in strength, in Love and in purpose. Each of you has a gift and many gifts to contribute to the greater whole of your work. Each of you has a role to play, my beloveds. And indeed, as this instrument has indicated, each of you are able to receive your guidance. Have faith and trust in this, my beloveds. For God speaks to each one of you, and it is for you to listen and to be in harmony with your souls, to allow the consciousness of your souls to truly be a part of you.
 
 And you are challenged by this with each day and within you you feel the power of this challenge and this invitation by God to be in more harmony with His Will and His Love, to be at peace within yourselves, to walk this Divine Path more surely and completely and to be that mighty channel of Love that you so desire to be. And God has set you upon this Path to be His instruments of Love and change and peace.
@@ -34,4 +33,3 @@ Continue to grow, my beloveds, to walk this Path, in earnestness, in a deep desi
 This is your invitation, my beloveds. This invitation brings great possibilities and numerous challenges, but indeed as you encounter the blessings upon the way you will truly know that this has been and will be a wondrous journey. And every step you take brings great rewards.
 
 Beloved children, speak your truths, express the deep longings within you and honor one another in loving acceptance and you will be lifted into the Light as God puts His hand upon you and raises you up, my beloveds, to that place of harmony. You are loved and you are beautiful and you are blessed. Walk the Path Divine, walk with your head held high and the sure knowledge that God loves you, my beloveds. Be at peace, and I love you. I love you dearly, beloveds. God bless you.
-

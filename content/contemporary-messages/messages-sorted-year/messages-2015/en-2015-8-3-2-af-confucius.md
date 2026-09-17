@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Confucius received by Al Fike
 
-
 God bless you, my beloveds, it is Confucius. The Light of God’s Grace is upon you, my beloveds, your prayers have brought this. Feel the longing within your souls. Feel it touch God’s Soul, the response of Light which pours down upon you, my beloveds. You bask in this Light. Allow yourselves to be open and to drink in this blessing. You are surrounded by angels, beloved, beloved souls, and these angels pray with you as you discover your true soul’s longings, as you put aside that part of you which hides from God and steps into the Light with eyes open and feelings of gratitude, refreshed by this beautiful touch from God.
 
 This instrument received guidance this morning in his prayers. He must heed this guidance and walk upon the path which God has designated for him. As he walks in faith, so will the manifestations of Love and healing, of Truth and peace come forth in powerful ways to bring more and greater Light to this world so much in need of these blessings. He shall be a powerful channel and take his role to lead others to this Truth. He must not step away from this, for now is the time to step forward with the sure knowledge that he is ready, he is ready to assume the mantle, to walk the path which God has created for him alone and his gifts shall shine - so many gifts hidden away that are now ready to manifest through his instrumentality and service to God.
@@ -29,3 +28,4 @@ So much within you awaits this journey, awaits to be discovered and manifested. 
 
 Seek the Love, my beloveds, and all else will come to you in God’s good time, the unfolding of your true selves to yourselves and to your life and to this world. And as you walk this Path, we who have discovered ourselves, redeemed by God’s Love and transformed by God’s Love will walk with you, and guide you along the Path, and pray with you, and protect you, and help you to seek the Truth, to seek the Love.
 
+Beloved souls, you are all loved by God, you are all beautiful, you all have great potential. Come to know yourselves, beloveds, in the Light of Love and you will find meaning and purpose, truth and joy, freedom, freedom from the burdens of this life and true understanding, true understanding. Confucius loves you. I am with you often, beloveds. God bless you and keep you in His care and Love. God bless you.

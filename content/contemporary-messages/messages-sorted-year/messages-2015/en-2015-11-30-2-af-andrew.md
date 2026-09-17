@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Andrew received by Al Fike
 
-
 God bless you my beloveds, I am Andrew.
 
 May the peace that passes all understanding may be yours, my beloved, dear souls, as you continue to gather together in prayer, as you seek to be ever closer to God, to be in His Light, in His Peace and as you open your souls to the inflowing of His Divine Essence. Beloved souls, you become bonded in this experience. You become a part of one another through sitting in this circle of Love and Light. And you begin to walk together, in unison, as you open yourselves in this way.
@@ -34,4 +33,3 @@ A great healing is happening, a great flow of Light is encompassing your world, 
 You begin this journey and you feel the pull of it, the power of it and the strength of it and we are joyed at your acknowledgment and recognition of this great wondrous work to bring healing and Love to mankind. And we will succeed, my beloveds, we will succeed. For the power of this, the beauty and the Light of this will push back the darkness and the negativity, the ignorance, fear, the resistance and the error. The power of this will push back all that stands in the way of every soul having the opportunity to lay down that which keeps them in the darkness and to enter into the Light.
 
 Yes, the work begins and you are ready, many of you are ready and eager, and you will march forward under God’s guidance and the flow of His Love. Beloved souls, continue to pray for the Father’s Love to enter your souls, to be in preparation and readiness, alert to God’s guidance within, and He will guide you upon your Path unique and beautiful. And He carries you ever forth, beloved souls. Be at peace and know that Love is the key to all and Love shall be your blessing ever more. God bless you, I am Andrew and I love you.
-

@@ -16,10 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Augustine received by Al Fike
 
-Gibsons, BC
-
-August 13, 2015
-
 It is Augustine here.
 
 God bless you my beloved students. You must continue to pray for this instrument (Al) in these coming days and support him for we will be using him in many ways and we have much to convey through him. And this will be taxing. You cannot allow him to be distracted by the material and he is tempted to put his fingers in many pies and you must remind him of his one and only duty in this time.
@@ -30,3 +26,4 @@ Yes there is much on the agenda we have to bring forth. Be aware of this and all
 
 Continue to pray together, to love together, to converse in loving ways, to share yourselves, to share your hearts, to share your aspirations of what you truly desire. It is important to be open with one another. To bring this understanding, for these times are precious, these times are very precious and will lay further foundations for the work ahead. Utilize your time, utilize it well.
 
+God bless you. God bless you, my precious students. You are truly loved and beautifully blessed, God bless you.

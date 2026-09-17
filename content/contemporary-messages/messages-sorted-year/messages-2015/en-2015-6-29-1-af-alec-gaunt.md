@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Alec Gaunt received by Al Fike
 
-
 God bless you my friends.
 
 Yes, I was with this instrument in the garden today and he thought of me and I was pleased to know that he was consciously aware of my presence. This will happen more and more as he develops in his soul faculties and becomes more sensitive to spirit communication and presence.
@@ -38,4 +37,3 @@ Then you will be used in miraculous ways, great healings will be accomplished, y
 Carry on my friends, you know the Truth. It is time to use that knowledge in every way possible, to heal yourselves and to make that great step forward as God’s channels of Love. We pray for this each day and each moment and are with you each day and each moment.
 
 God gifts you many gifts and brings you much Light and this shall always be so for His children who walk in Love. God bless you, your friend Alec is ever by your side and prays with you and does what he can to help and assist you. God bless you, my love is with you. God bless you.
-

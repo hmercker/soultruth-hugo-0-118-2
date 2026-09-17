@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Andrew received by Al Fike
 
-
 God bless you. I am Andrew.
 
 The coming retreats have a great importance. There is purpose and there are great outcomes that are possible with the unfolding of these gatherings. I would urge you to focus your efforts upon these events and make it possible for each to come with ease, to be embraced in Love, to be made to feel a part of this wonderful gathering. Indeed, you have all the resources and makings within you to accomplish this with ease. And as you have gathered others together, so one leads to another and each event prepares you for the next.
@@ -26,4 +25,3 @@ And indeed we wish you to pray for all those who are coming and to clear away an
 I hope that you will greet these changes and events with eager anticipation, with joyful acknowledgement that God is leading you into greater Light and greater service in this world. And yes there will be challenges, but they will not be greater than the opportunities and unfolding events of love which will bring great change to you and this world.
 
 The healing of this world begins, my beloveds. Each of you within your souls are well aware of this. Each of you have been drawn to come together, to work together, and to envelope others who are also eager to do God’s Will, to be a channel of Love in the world. This is a beautiful blessing for all of you and you will come to know great joy, great joy in your work, in your lives, in your souls. God bless you, beloveds. Continue to work together and love one another. God bless you, your brother Andrew loves you.
-

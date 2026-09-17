@@ -16,7 +16,6 @@ Divine Love Retreat, Gibsons, BC, Canada
 
 Jesus received by Al Fike
 
-
 Blessings to you, my beloved brothers. Blessings to you, my beloved sisters. I come. I am Jesus and I come on a wave of Love that you have brought from your Heavenly Father through your longings from your souls. I come because I bring my Love to add to your Love to this world and to one another and to your Heavenly Father.
 
 Blessed, beloved souls, I am well pleased with what you have accomplished in these days. You have come together in Love and harmony. You have brought bounteous blessings into your midst and into this world, and you have shown one another that, through Love, mankind can live in harmony, through Love all is possible and all is beautiful.
@@ -30,4 +29,3 @@ And you will see within your own lives the changes and the shifts that will happ
 Open your eyes to what God brings you, these daily blessings and opportunities, to be a channel of Light and Love, to create ever larger reverberating circles of Light in the world. Your work begins. Your work begins and I have called you to begin this work, my beloveds, to travel this Earth in Love, to live your lives in Love, to be that beautiful soul that God created you to be.
 
 Beloved, beautiful souls, open your eyes, open your hearts, open your souls to God and in this great opening, within you, will come the joy that you seek, the fulfillment that you long for, the Love that is gifted always. Beloveds, walk with me, walk in my footsteps and I will guide you forward. I will be with you. I will always be with you, my beloveds, and I love you, I love you. I am your brother and your friend, I am Jesus.
-

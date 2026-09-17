@@ -11,11 +11,9 @@ weight: 430
 
 March 27, 2015
 
-Received by: A. F.
+New York Retreat, New York, NY, USA
 
-New York, N.Y.
-
- 
+Andrew received by Al Fike
 
 I am Andrew. Every soul has deep and abiding pain and wounds within. Every soul we meet, every individual who walks this Earth is injured by the conditions created by mankind over millennia of error and abuse and suppression. Whether that soul be in poverty and deprivation or in great wealth, there is need for healing, there is need for comfort, for love, and as such no matter where you turn there is an opportunity to be a channel of Love. 
 
@@ -39,4 +37,3 @@ Every soul must take this journey as I say. What process you choose, or route yo
 Bless you my beloveds, bless you. Andrew and I pray for each one that there be such a mighty inflowing of Love within your souls that all of that which remains there which is not in harmony with this Love shall be forced out by it. Beloveds, we stand on the verge of a great awakening and healing, God wishes to give you, and all of us. Will you open yourselves to this in a complete and vulnerable  way? Be with God, as you never have been before. 
 
 The door is open, my beloveds. The door is open. And we will be with you in your gathering. And remember that it does not require great numbers to bring love and light to this world, it requires a yearning soul in prayer in harmony with one another, and there will be many in spirit with you and surrounding you in this venture to bring light to this place, this part of the world, and there will be many souls, yearning spirits surrounding you. And though on the surface this may appear to be a humble venture, in many ways it is a powerful and beautiful venture. Thank you for being willing to step into this arena and be servants to your Heavenly Father in this way. You will all be blessed and we will be there to pray with you. God bless you, your brother Andrew loves you dearly. God bless you.
-

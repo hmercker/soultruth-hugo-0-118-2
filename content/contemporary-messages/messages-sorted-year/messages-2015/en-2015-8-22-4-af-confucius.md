@@ -16,7 +16,6 @@ Divine Love Retreat, Gibsons, BC, Canada
 
 Confucius received by Al Fike
 
-
 Beloved brothers and sisters upon the Path Divine, I am Confucius and I come to tell you that the angels weep in joy at your efforts and your willingness to love one another, to bring this Light to the world. And you have each journeyed far, journeyed far within yourselves and shall continue this journey for all eternity to come to know yourselves in the Grace of our Father’s Love.
 
 And each of you have been blessed in unique and beautiful ways within your souls, placing within your souls what you require to continue to grow and to be that channel of Love in the world so that each of you may hear your guidance from God, each of you may know your next steps upon this Path of service and Light, so that each of you may create your own Circles of Light in the world. And that Circle may be to serve others in loving ways, to pray with others for God’s Love and to teach the Truth. Each of you has a unique path and purpose in this world and you will now begin to uncover this within yourselves, my beloveds.  Ask for God to show you, to bring you deep within yourselves that you may truly see for yourselves what it is that you carry, what gifts have been given, what Love resides within you.
@@ -29,3 +28,4 @@ It requires a simple longing, a desire from your soul to know God, to be with Go
 
 Do not fool yourselves, my beloveds. Be honest, be truthful with yourselves. Walk with integrity. Walk with your feet solidly on the ground and your heart with God and all will be well. Your life will unfold in all its beauty and its purpose and that Path that is laid out for you and for you alone. Come to know where you must go. Come to know through your souls what you are meant to do and come to that place of commitment, of faith, of strength, of resolve, of trust that God knows, that God knows and He will give you His knowledge that is meant for you.
 
+God’s blessings for you, my beloveds, and when you fly away you will carry this Light into your lives, beloved, beloved souls. God bless you, I am Confucius and I love you beloved souls, beloved souls.

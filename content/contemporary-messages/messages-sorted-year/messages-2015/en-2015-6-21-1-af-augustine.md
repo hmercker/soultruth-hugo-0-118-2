@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Augustine received by Al Fike
 
-
 My dear students, it is your teacher, Augustine. I wish to present a lesson to you, beloved students, and this lesson will be given in the form of a metaphor.
 
 Every soul is given the gift of life and if one thinks of this gift as an apple and this apple is bruised, as many souls are bruised by the conditions of this world, rather than going to your Heavenly Father for healing for this bruised part, one nurtures the bruise and holds dear this pain that comes from the hurtful conditions of this world. In holding on, the bruise within the apple spreads and the corruption spreads, and there is further bruising, and further commiserating, grasping on and holding on dearly to these conditions and feelings of pain until the entire apple is corrupted and life becomes a thing different from what is meant to be, as this apple becomes something that once was fresh and beautiful and is now withered. So, my beloveds, when you pray for the Father’s Love you add more life and healing to who you are, healing those bruised parts within, and making right those difficult and hurting places.
@@ -27,3 +26,4 @@ And so, these conditions build within each soul and many, many, many souls upon 
 
 One cannot expect an instantaneous healing and for their lives to be miraculously changed to something that is less difficult and painful. It is an incremental but steady restoration from darkness to Light, from error to Truth, from anger and judgment to Love and joy. Each of you has experienced this process. Each of you knows this truth and you cannot expect others who are caught up primarily within the conditions of darkness to change their ways so readily and quickly. It does indeed take time and effort and prayers.
 
+Have compassion, my beloveds. Know that in time God will touch every soul and restore that soul to purity. The timing of this is dependent upon the desire of the soul, and the effort of the soul, and the choice of the soul to follow the Path that is natural or the Path that is Divine. Continue with your efforts, beautiful souls, to pray for the Love, to have faith that God is restoring you within and bringing you the wholeness, the beauty and the purity that is intended for you and will in time take you beyond even this to a place that is at one with Him. God bless you, beloved students. God bless you. Your teacher Augustine loves you and is with you in your struggles, your prayers, in the challenges of your life, in the joys of your life. I love you. God bless you.

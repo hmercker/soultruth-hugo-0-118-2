@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Augustine received by Al Fike
 
-
 Bless you, your teacher Augustine is with you.
 
 There is much work ahead, my dear students, and much to prepare for within yourselves. Continue to take your prayers for the Love to your Heavenly Father. Continue to look within yourselves, to be vigilant for all that which is within you that is not in harmony with this Love and to attempt to make effort to release this in prayer, in examination, in a concerted effort to change the patterns of behaviour within yourselves, for you must walk this Earth as examples of Love. You must teach those in this world through your example, through your Light and to be knowledgeable, my dear and beloved students, of the Laws of Love and to be well experienced in the Touch of God in your souls and to allow your souls the power of this Love that resides there and the gifts and perceptions and faculties of the soul, which are ignited by this Love to come forward, to be in ascendency in your consciousness, in your beings.
@@ -27,3 +26,4 @@ Take your steps as a knowing choice, inspired by your souls, inspired by God, in
 
 You must go with God, go with Light, go with strength, go with Love and go with humility, my beloveds. And we will be with you, always, and guide you through, as will God.
 
+God bless you. Your teacher Augustine loves you dearly and prays for you, beseeching God to help us all in this great venture of Love and change and healing. I am with you and I love you. God bless you.

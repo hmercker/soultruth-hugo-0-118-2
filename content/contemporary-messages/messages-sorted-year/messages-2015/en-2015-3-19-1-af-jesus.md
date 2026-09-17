@@ -16,7 +16,6 @@ Tour 2015, Swakopmund, Namibia
 
 Jesus received by Al Fike
 
-
 God bless you my beloveds, I come it is Jesus.
 
 Blessed are you who bring love into your hearts. Blessed are you who express love in all that you do in your lives and all that you are in your beings. God has His hands upon you my beloveds and you are guided and protected in your lives. Do not bring fear into your consciousness but walk in the sure knowledge that your Heavenly Father guides and protects you my beloveds.
@@ -32,4 +31,3 @@ Beloveds, beloveds you do my work for my work is God’s Will. In your own inner
 My disciples, you will walk through many lands in this world bringing the message of Love. Your very presence does indeed fulfil this purpose. Your very beings are an example of Love. Raise yourselves up to this place, accept this blessing, walk in the world but not of the world my beloveds. And you shall fulfill your purpose and find your place within the flow of God’s great Will and Desire for the redemption of mankind. There is a plan, you come close in finding your place within this. Be open and receptive and the route will be short to that place of sure knowing.
 
 I love you, you are my brothers, my sisters, and for all eternity we shall know great joy and happiness in the Celestial Kingdom together. This is your destiny for truly you are already redeemed by the Father and you shall grow ever closer to the Celestial Kingdom. Beloveds, I love you and I shall never leave you, never. God bless you. Your brother Jesus loves you, bless you.
-

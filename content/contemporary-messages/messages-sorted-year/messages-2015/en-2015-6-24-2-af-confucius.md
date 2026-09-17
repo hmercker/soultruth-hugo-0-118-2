@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Confucius received by Al Fike
 
-
 I am Confucius, and I greet you with love, my beloveds.
 
 Each of you is here because your souls long to receive the Father’s Love. And each of you feels the calling within your souls. A calling that you will soon know in a conscious way for each has purpose, each has been blessed with a purpose in this world. And as you come close to the Heavenly Father you will come to know this purpose. And you will find joy in the execution of this purpose in the world. Your special gift and contribution to mankind, a unique gift that is only yours and is a reflection of the uniqueness of your being, your precious souls.
@@ -26,4 +25,3 @@ Listen to your guidance my beloveds, as the Heavenly Father speaks to you in tha
 Walk in the Light beloved, beautiful souls, walk in the Light. Seek the Love and know that within you is great beauty and wondrous potential and a powerful purpose for you to share with your brothers and sisters in this world.
 
 Blessings of peace upon you, my beloveds. Walk in the Light. I am Confucius and I love you, beloved beautiful souls, God bless you.
-

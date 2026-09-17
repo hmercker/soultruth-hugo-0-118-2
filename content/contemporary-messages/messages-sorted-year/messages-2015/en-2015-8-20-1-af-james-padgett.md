@@ -5,17 +5,15 @@ description: "Express the truth to others. Padgett talks of why this is so impor
 date: 2016-10-10 21:48:44+00:00
 draft: False
 hidden: True
-weight: 430
+weight:
 ---
 # Express the truth to others. Padgett talks of why this is so important
 
-August 20th, 2015
+August 20<sup>th</sup>, 2015
 
-Received by: Al Fike
+Divine Love Retreat, Gibsons, BC, Canada
 
-Gibsons, B.C.
-
- 
+James Padgett received by Al Fike
 
 Beloved souls, I am Padgett, James Padgett. I have been asked to speak to you and it is my honor and privilege to do so in this gathering of beautiful souls. The Light that you have created by your presence and prayers is tremendous. It reverberates far out into the spheres of spirit. It creates a place where many spirits are drawn and seek the Light. You do a great service, my friends, in your prayers, in your efforts to reach the highest, to reach for God’s Love. 
 

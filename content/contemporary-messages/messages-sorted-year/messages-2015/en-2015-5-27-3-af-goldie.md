@@ -16,8 +16,4 @@ Prayer Circle, Gibsons, BC, Canada
 
 Goldie received by Al Fike
 
-
 I have given you all a kiss because you are all beautiful flowers of God’s garden and I take great joy in walking through this beautiful garden of God’s beautiful flowers and I kiss you good night. God bless you.
-
-WARNING - Check Spirit Name
-

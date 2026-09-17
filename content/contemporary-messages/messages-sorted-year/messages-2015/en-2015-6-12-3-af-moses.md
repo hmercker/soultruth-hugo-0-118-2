@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Moses received by Al Fike
 
-
 God bless you and may the Father’s Love find a deep and abiding place within your souls, beloved children of God. I am Moses. I have come to be with you in your prayers and to tell you that your Heavenly Father has a great work awaiting you each one, each precious soul has much work to do in this world in the service of our Heavenly Father. And the changes within your lives and within yourselves are all in preparation for you to venture out into the world, and walk in Light and Truth, and be a channel of Love in the world.
 
 Each of you is surrounded by angels, each of you feels the joy within your souls that is the Father’s Love burning bright within and leading you into greater Light and understanding. So much awaits you, my beloved precious souls, so much. And the Path opens before you. You feel its compelling pull towards the Light, towards God, towards greater service and greater enlightenment.
@@ -27,3 +26,4 @@ So much is within each of you, my beloveds, waiting, anticipating, eager to come
 
 Much awaits you beloveds, do not stand in the way of your own true and perfect healing, but accept as a child that God will carry you into greater Light and joy.
 
+Precious children, we in spirit await, we await your healing and your acceptance of yourselves in true Love. Continue in your prayers. Continue to ask your Heavenly Father to cleanse your soul with His Love for the rebirth that is but a breath away, my beloveds, a breath away. You walk in Love and Light and we walk with you as you journey upon your Path, a Path of great discovery, and we love you and we are joyed at your progress and the Light that burns within you. You do not walk alone, but you walk with God and His angels always, never to forsake you and always to support you. As you walk through this life and walk in Faith, beloveds, be at peace and know that you are loved beyond measure. God bless you, I am Moses. I come to give you this message of Love and encouragement that you may know how close you are to God and your true selves. Blessings to you, my beloveds. Blessings to you.

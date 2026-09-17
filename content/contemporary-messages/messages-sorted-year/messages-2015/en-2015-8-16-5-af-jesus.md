@@ -16,7 +16,6 @@ Divine Love Retreat, Gibsons, BC, Canada
 
 Jesus received by Al Fike
 
-
 I welcome you. I come, I am Jesus, and I thank you for coming to this gathering. I thank you for making that effort to be in this place together, for following your desires of your souls, for seeking fellowship in this way and for yearning for the Love that is given from your Heavenly Father. Blessed and beloved souls I have entrusted you with purpose and a mission and I wish for you to come to a clear understanding of what that is in your lives and what that means amongst you. AI also wish for you to understand how you will work together to bring the Love of God into this world through you and to many, many others who are waiting for your efforts, for you to walk this Earth as channels and purveyors of Love and Truth and as my disciples of this simple Truth of Love.
 
 And you must ask yourselves my beloveds, *"What are my soul desires?"* And when you answer that question, you must ask yourselves: *"What is God’s Will?"* And in order to answer that question you must be close to God and close to your own soul which is how you may communicate with your Creator. Communication with God does not come from words and thoughts, it comes with the yearnings of your soul and your willingness to listen, and your ability to put aside all of the thoughts and energies of your mind, your material mind, and to plumb the depths of your soul to know this, to reach for this and to desire this.
@@ -44,4 +43,3 @@ And we surround you and influence you all in the direction which you are meant t
 And we are joyed that you have come together. So far you have indeed trusted in the guidance. Now make this circle complete, allow God to manifest this fully as you can here at this time. To move, speak, share in this Light. Allow your Love to shine, your Light to shine, your wisdom to shine and you will receive what it is you seek.
 
 God bless you, my beloveds. I am Jesus and I love you all dearly. I embrace you all and I see your lights, your beauty, the wonderment which is your creation, a gift to the world. Every soul is a gift to the world. God bless you and I love you.
-

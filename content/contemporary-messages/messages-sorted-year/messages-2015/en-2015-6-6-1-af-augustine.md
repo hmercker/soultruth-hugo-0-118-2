@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Augustine received by Al Fike
 
-
 It is your teacher, Augustine. May your souls open wide to the great inflowing of our Father’s Divine Essence, the benediction of His Touch within you which will bring great change and transformation within your souls and lead you upon a path of Light and enlightenment that shall carry you far and beyond and into the flow of all eternity. This Love, this Path, this Light shall carry you and show you the way to all that your souls desire, to all Truth and all Love and all Being that is in the grace of God.
 
 Drink deep this blessing, my beloveds. Drink like a thirsty man in the desert. Long for this blessing of Love. For every soul in this world is parched and in need of this blessed gift of these Living Waters. Drink deep, beloved souls, and know that you are in God’s embrace and His Hand rests upon you and His angels pray with you, His Love always available for your desire and prayer to elicit its response that you may receive within you the Light that shall burn for all eternity within and about you.
@@ -27,3 +26,4 @@ Prepare yourselves accordingly, my beloveds. Focus your prayers on your Heavenly
 
 You are all children of God. You have all taken this journey and you will all continue to seek His Love in your own way, upon your unique path. And your minds may differ in their perceptions of what this means but your souls know, my beloveds, they know the Truth, and you all resonate in this with a calm understanding that pervades your presence and your prayers and your longings.
 
+We will be with you as you gather. We will be with you as you pray for the others and pray for yourselves, and there will be a joyous awakening, a beautiful opening, a wondrous opportunity to be in that loving Light, that Sanctuary from all the troubles of this world, a fellowship and a joining that will envelope each and every soul in Light. God bless you, my beloved beautiful souls. You will be guided and Light will shine upon your Path. Blessings to you, blessings. Augustine loves you. God bless you.

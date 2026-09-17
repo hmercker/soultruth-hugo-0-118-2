@@ -16,7 +16,6 @@ Tour 2015, Swakopmund, Namibia
 
 Martin Luther received by Al Fike
 
-
 I am Martin Luther, and I have come to reassure my brothers and sisters that God is indeed Love and loves each one of you dearly. And each one here knows God within their hearts, understands this Love and is open to its influence and blessing. Though within your minds you indeed have different perspectives and understandings and experiences, yet within your souls you have an understanding that is common amongst you, and this is that God does indeed love you and that His loving Essence is within you.
 
 In my day I tried to change the church, and I battled and rallied against error and the corruption, and within my heart I knew that I was doing the right actions and words to help change the conditions of the church. And I did bring reform and a new understanding, but there is always a greater understanding my beloved brother, a higher truth. A road which must be travelled to truly understand who you are, who is God, what is the meaning of this life and the meaning of the life that comes.
@@ -28,4 +27,3 @@ My beloved brothers and sisters, go with God, go with God! And I await your entr
 I thank you for this time to speak, and I pray that you will hear my words, and I will be with you in your prayers to seek your God in love and hope and joy, with great faith and trust. God bless you.
 
 Your friend and brother Martin Luther has come with this word of encouragement, and I thank you for this opportunity to speak, God bless you.
-

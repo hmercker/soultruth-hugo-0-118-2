@@ -17,8 +17,6 @@ Medium: Al Fike
 
 Swakopmund, Namibia.
 
- 
-
 I am John the Beloved. 
 
 Each of you desires to see the Truth, to understand the nature of life and the nature of your own being. To grasp these realities without confusion, to see clearly, to walk in this world with the perspective that will bring within you harmony and a deep understanding of this world and those you encounter in this world. And it is the mind which either allows the deeper reality to come into it and embrace it or to reject these awarenesses and this reality. 

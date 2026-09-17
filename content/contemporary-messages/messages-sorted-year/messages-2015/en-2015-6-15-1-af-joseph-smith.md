@@ -5,17 +5,15 @@ description: "Joseph Smith writes about the Mormon religion"
 date: 2016-10-10 21:48:44+00:00
 draft: False
 hidden: True
-weight: 430
+weight:
 ---
 # The imaginings and ideas of men create falsehoods and misinterpretations
 
-June 15th, 2015
+June 15<sup>th</sup>, 2015
 
-Received by: Al Fike
+Prayer Circle, Gibsons, BC, Canada
 
-Gibsons, B.C.
-
- 
+Joseph Smith received by Al Fike
 
 I am Smith, Joseph Smith, and I was talked about not too long ago amongst you and the great Mormon faith which I founded and I wish to make some commentary upon your conversation. I am now in the Celestial Heavens. I have adopted the truth of Divine Love and though I had glimpses of this Truth while on Earth, I did not fully understand the workings of this Love, the importance of this Love. And yes the angels did indeed come to support me and influence me in my work in creating this great church. But now I see that this church and its workings have become too infected by the human condition. It is indeed a great machine desirous of consuming all of humanity in what it perceives to be the truth. And its workings are complex and its understandings unfortunately contain more error than truth. 
 

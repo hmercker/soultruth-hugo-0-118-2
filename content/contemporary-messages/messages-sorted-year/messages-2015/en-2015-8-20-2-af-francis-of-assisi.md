@@ -5,19 +5,15 @@ description: "Be a beacon and a source of Light - Francis of Assisi - August 20t
 date: 2017-02-16 23:57:29+00:00
 draft: False
 hidden: True
-weight: 261
+weight:
 ---
 # Be a beacon and a source of Light.
 
 Date: 20<sup>th</sup> August 2015
 
-Spirit: Francis of Assisi
+Divine Love Retreat, Gibsons, BC, Canada
 
-Medium: Al Fike
-
-Gibsons, Canada.
-
- 
+Francis of Assisi received by Al Fike
 
 God bless you, I am Francis, known as St. Francis of Assisi and I come to you, my beloved brothers and sisters, to encourage you to build within your life Circles of Light, to build all about you Light, to be that beacon and source of Light as the Father’s channels of Love and Truth and Peace and Healing. I walked away from a life filled with all the material wealth and comfort to do this very thing, to commune with God, to start out again in innocence in my love for my Heavenly Father I walked away. And in this act rejecting the human situation that was my life, I made a commitment to my Heavenly Father that I would do His Will, that I would be in His Grace, that I would love. And in this my gifts flourished and I found contentment, I found joy, I found simplicity in my life, and all of those things that held me from this fell away and I knew deeply my God who loved me.
 

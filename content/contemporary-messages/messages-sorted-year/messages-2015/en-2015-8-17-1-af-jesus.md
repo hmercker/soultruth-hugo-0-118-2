@@ -17,11 +17,7 @@ Medium: Al Fike
 
 Gibsons, Canada.
 
- 
-
-Blessed are the children who seek to heal this world,  
-Blessed are the children who long for the Father’s Love,  
-Blessed are you my beloveds, for in many ways this gathering and these precious souls are the hope for the world.
+Blessed are the children who seek to heal this world, Blessed are the children who long for the Father’s Love, Blessed are you my beloveds, for in many ways this gathering and these precious souls are the hope for the world.
 
 My precious souls, you long to know many answers that relate to your personal lives and to how this world will be transformed in Light. And in many respects you are not able to comprehend the progression of these changes because you seek to understand through the faculties of your mind rather than the perceptions of your souls. And you long for physical evidence of the Truth and this my dear and beloved souls, is not the approach you must take. And we have exhorted you many, many times to seek through your soul the answers, to seek the Divine Love in order to receive those answers. To put aside your questioning minds and put forward your questioning and longing souls towards your Heavenly Father.
 

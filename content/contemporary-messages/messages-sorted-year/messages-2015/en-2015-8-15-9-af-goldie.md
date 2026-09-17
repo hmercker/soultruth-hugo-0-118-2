@@ -16,7 +16,4 @@ Divine Love Retreat, Gibsons, BC, Canada
 
 Goldie received by Al Fike
 
-
-
-WARNING - Check Spirit Name
-
+I am Goldie,….. because I see you, you all need to laugh and I come to help you to laugh and to feel joy. Although you’ve heard from few of us, know that there are many of us that come to you to support you and love you and bring their blessings to you. And we each bring our special gifts to give to you precious souls. Many gifts given, much love poured upon you. Truly know this my friends, truly know this, how beautifully cared for you are in the Light of God’s Love and I love you. Many times you make me laugh. God bless you.

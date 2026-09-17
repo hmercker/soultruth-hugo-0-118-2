@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Francis of Assisi received by Al Fike
 
-
 It is Francis of Assisi and I was with this instrument in the garden and we enjoyed some moments together in the sunlight surrounded by God’s beautiful creation and his beautiful creations which he has made in his place of residence.
 
 Each soul has a creative urge to bring beauty in the world in their own way, unique and full of grace. My beloveds, continue in your efforts to bring healing and beauty into this world, and Love and Light into this world. It so needs your efforts; it so needs your perception and love and creativity and caring for others. When you do this you do God’s work. When you walk this Path of service you bring Light to others and to yourselves. Allow God to use you in this way. Be open to His guidance. Be open to serve in simple and loving ways. Do not let your minds and your fears become obstacles towards this. Be open, be loving, be humble and simple.
@@ -27,3 +26,4 @@ Yes, there will be disruptions and adjustments and difficulties as man must brin
 
 Mankind cannot continue to bring the disruptions and imbalance; this cannot continue. There must be a healing and righting of your home, this beautiful Earth. And, you, my beloveds, with the eyes of your souls, the knowing of your souls will guide many into the Light and educate many as to why these changes are necessary and important.
 
+Continue to pray for the Love that will open up these faculties and this knowledge and understanding so that you may be God’s powerful channels of Love in the world, purveyors of change and Truth. You are given a great Gift. You are led upon a powerful Path. You each have many Gifts to give and to express in the world, and a great purpose. It requires God’s Love to ignite all of this within you and to bring you into alignment, to a place of sure and complete knowing so that you may do God’s work in the flow of His Will and Love. Continue, beautiful and precious souls, Lights in the world, beloveds of God and loved by all of the angels. All of the angels love you, my beloveds, and are there to assist you. God bless you, beautiful and brave, strong and humble Lights, God’s Children. God bless you, I am Francis and I love you.

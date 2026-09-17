@@ -16,7 +16,6 @@ Prayer Circle, Gibsons, BC, Canada
 
 Solomon received by Al Fike
 
-
 I was known as Solomon the wise and I have come to speak to you about wisdom.
 
 The wisdom that I possessed when I was on Earth is certainly not the wisdom I possess now. For what became myth and legend of the past was mostly the understandings of the mind, using my own faculties and understanding at the time. That was several thousand years ago, my beloveds. I have since progressed in the land of spirit and I have become a Celestial Angel through the redemption of God’s Love within my soul and I have come to know what True Wisdom is. It comes from the faculties of the soul ignited by God’s Love. It comes as an understanding so deep and pure and powerful that no intellectual knowledge can approach this. It is the fruits of redemption and rebirth within. Seek to be wise in this way.
@@ -27,3 +26,4 @@ Continue, my beloved, beautiful souls, to seek the Truth and to know the wisdom 
 
 Beloved souls, many Angels uphold you and teach you and direct you towards Truth. Be open and willing to take this journey, to walk in the Light of Truth, to seek to know and to test and to evolve as this journey carries you forward in loving understanding, in God’s blessed awareness in Love.
 
+Beloved souls, thank you for allowing me to speak and to share with you my wisdom. There is so much, my beloveds, so much to know, to truly understand. May you continue on this journey and we who love you and are with you and attempt to guide and inspire you will walk with you always in Love expressing God’s great care for you, and accompany you on this great journey of discovery. For we love you and God loves you, and the world awaits your eyes to open, your souls to know, your minds to accept and your willingness to share the Truths that you know. May you always walk in the Light, my beloveds, and know what Truth is and from that, the great blessing of wisdom. God bless you, beloveds. I am Solomon and I love you. God bless you.

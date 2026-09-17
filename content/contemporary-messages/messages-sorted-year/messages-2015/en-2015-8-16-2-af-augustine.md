@@ -16,7 +16,6 @@ Divine Love Retreat, Gibsons, BC, Canada
 
 Augustine received by Al Fike
 
-
 It is your teacher, Augustine. God bless you, my students. To share in this way, in your own personal way, not only reflects your own personality, but reflects your approach to your spiritual life and your life in general, and I think each have learned much of the others through this sharing. It is not so much the words that you speak but the feelings that you carry, the intentions that you have, the thoughts that roll around within your minds which then encounters the wisdom of your souls.
 
 After you complete this exercise, my children, I would ask you to progress into exploring and discussing the gifts that you carry, what you are willing to contribute, how much of your lives are you willing to give to the pursuit of bringing the Divine Love Truths into this world?
@@ -26,4 +25,3 @@ You have talked about what you like to do and what you are doing. Now you must t
 Carry on, beloved souls, carry on and always, always ask that God bring His love into everything that you do together and everything you are, and everything that you express. That His Love may amplify and transmute and bring more powerfully and clearly into the world, into your consciousness which have many, many gifts and great potentials.
 
 Application, my dear students, application of these gifts and potentials is what you are after and as you apply yourself in the world, in the context of God’s Will for you, ah the doors that will be opened, the understandings that will be gleaned, the souls that will be touched, the Love that will flow. It is beyond your comprehension at this time, my beloved students, but indeed it awaits, it awaits your commitment, the laying down of your will to God’s Will and the expression, the true and beautiful expression, of your souls. One day at a time, one step at a time, one prayer at a time and one soul at a time. Soon you accumulate a vast treasure trove of Light, of Love, of service and fulfilment of the Father’s Will. Thank you, beloved souls. Continue with your efforts. We thank you, God bless you.
-
