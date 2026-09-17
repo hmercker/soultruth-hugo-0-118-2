@@ -16,7 +16,6 @@ Online Circle of Light, Sechelt, BC, Canada
 
 Aaron received by Al Fike
 
-
 May the Love of God enter your souls and flow in great abundance, healing and changing you forever. I am Aaron and I come to speak to you about the folly of man and the potentials that humanity has to solve its dilemmas. Man has put a great deal of resources, effort, time and thought into solving the many problems of this Earth. Yet, what do we have as a result? We have further decay and problems, turmoil.  For the intellect of man is incapable of solving these problems. Even though the ego of man, the pride of man, insists that it can. Yet, we all know better, do we not, my beloved brothers and sisters, that the only solutions will come when humanity puts aside its pride, adopts faith in God and understands the mechanisms by which God may communicate with each one, understands the yearning of the soul to receive the great gift of Love that is God's Essence.
 
 When this understanding comes to humanity, then true solutions will be found. For understanding will dawn upon the consciousness of humanity, but until the mind, the intellect, is put in its proper place behind the consciousness of soul, then there will be no true solutions. The dominance of the mind, the material mind, has only brought pain, my beloved friends. It has brought many comforts to you. It has been used to invent many things, many objects. In turn, it has made humanity a very physical being, lacking in the expression of his true self, soul. In times to come, the balance between the two will be made one way or another.
@@ -40,6 +39,3 @@ The power of love manifest in many ways. This is the destiny of humanity and you
 It is time to truly look, my friends. It is time to truly be penitent to God and to seek His Love, His wisdom, His peace and His Truth to enter into your conscience so that you may truly act in concert with God's Will and God's plan for the salvation of humanity. You possess the key. The key is His Love. Now use that key to turn the lock and open the door of true soul consciousness and awareness and find your freedom there, your joy and your empowerment in love.
 
 God bless you, my beloved friends. Know that we are close and as conditions intensify, we will be even closer as God's Love and blessings continue to pour upon this world. God bless you, my beloved friends. I am Aaron. I walk with you. You may call upon my strength, my clarity and my love. I am with you, as are many. We walk with you side by side, step by step, breath by breath. We are with you. God bless you, beloved selves. God bless you all. In His Love.
-
-2026-08-14-AF-Aaron (T)
-

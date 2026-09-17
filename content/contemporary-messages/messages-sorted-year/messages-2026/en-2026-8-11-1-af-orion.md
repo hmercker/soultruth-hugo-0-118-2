@@ -31,6 +31,3 @@ This is where you may help. You may help to inform your brothers and sisters, to
 The eternity of growth, of awakening, transformation, all these things come on the heels of God's Love. May you know this deep joy. May you know this fulfilment that erases the emptiness. May you know the Truth and live by it, that you may be free, my friends, truly free, my beloved friends. You continue to walk toward greater light, to come to know the Creator of all the universe and to know your part within that universe. It comes on the heels of this gift of Love. It awakens you and then it transforms you. We journey together, my friends. We are happy to see the light growing within and we are eager to help you transition from the condition of human error and darkness to that of light, joy and freedom. It is at your beck and call, my friends, your fingertips. It awaits your desire, your eagerness to be in the thrall of God's embrace and God's Love.
 
 God bless you, my friend. Orion loves you. God bless you all, the world and all of humanity. God bless you. Orion loves you.
-
-2026-08-11-AF-Orion (T)
-

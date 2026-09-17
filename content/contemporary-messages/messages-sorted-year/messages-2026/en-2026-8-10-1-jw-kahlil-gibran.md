@@ -16,7 +16,6 @@ Online Circle of Light, Nashville, TN, USA
 
 Kahlil Gibran received by Jimbeau Walsh
 
-
 My beautiful friends, it is I, your brother, Khalil Gibran.
 
 I was drawn to spending time with my brother here because he wishes to receive and share practical advice for the soul. I recently shared some words with him, and I shall share just a few lines of those words with you, since you may already know them. You seek eternity, not knowing what it is, yet not wanting what it isn’t, for the eternal journey of the soul is a piece of timeless magnificence. I wanted to speak a bit about those words for those beyond this circle. Quite simply, wishing for eternity is the desire to continue after your sojourn on earth. And so, the second part, not wanting what that isn’t, addresses those who say, well, this is all there is. You drop the mortal frame, and it’s over. But the eternal journey of the soul is a magnificent one, transcending limitation.
@@ -30,6 +29,3 @@ Some of what occurred to me on my journey occurred to my friend, Charlie Chaplin
 I shall not linger on the subject of soul progression or attachments, but I do hope that I have shed some light for those in need of some guidance. I shall come again to my brother here with some poetry of soul, and when you are in need, you may call me. I shall come. I am your brother and friend, in Christ. I live in the celestial kingdom, and I love you. May God bless you all.
 
 I am your brother, Khalil Gibran.
-
-WARNING - Check Spirit Name
-

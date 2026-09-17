@@ -16,7 +16,7 @@ Beams of Light, Abbotsford, BC, Canada
 
 Keea Atta Kem received by Maureen Cardoso
 
-I am Keea atta Kem. May the peace that passes all understanding, this great Love that comes through the Holy Spirit, find its way into your soul, bringing peace, deepening faith, strengthening steadfastness, courage, deepening awareness and commitment and understanding. May it also make you conscious, conscious in your thoughts, what you are thinking and how your thoughts create worlds, create things, create your life.
+I am Keea Atta Kem. May the peace that passes all understanding, this great Love that comes through the Holy Spirit, find its way into your soul, bringing peace, deepening faith, strengthening steadfastness, courage, deepening awareness and commitment and understanding. May it also make you conscious, conscious in your thoughts, what you are thinking and how your thoughts create worlds, create things, create your life.
 
 Where is it that you have your attention? What is it that you think? How is it that you think? Do you find yourself needing to realign your thinking more often than experiencing the flow of thinking that is on higher things? Do you find yourself at peace within your thoughts? Do you notice your thoughts, or do you allow them to *"think you"* and loop through your memory banks again and again? Are you aware of how to stop thinking in ways that old patterns are ruminating and flowing? Are you open with your thoughts? Are you willing to be shown and guided, tutored and mentored? Are you willing to change, or do you have the structure of thought that is certain, that is rigid, that is all-knowing?
 
@@ -26,7 +26,4 @@ Deep within you knows the way to a life of alignment. Deep within you knows the 
 
 New ways cannot penetrate a mind that is closed, that is insistent, that has worn a pathway for so very, very long. Be like children, curious, open, receiving the world and all that it has to offer, seeing beyond the struggle, seeing beyond the obstacle and allowing love, joy, peace, happiness and fulfilment to guide you. In this way, you will be bright of thought. You will be expansive in your mind and more so aligned within your soul. Allow your soul the wisdom, the truths that it carries, to inform your thoughts and put down the old ways that the world says you should be. Align with truth, even if it means being the only one that does so. Be that one that aligns more deeply with the truth that exists within you. It requires your time of sitting still, of being, of receiving, of deeply listening to all that you are within yourself. If you are to embrace such a way, you will find that you come to know yourself in a most profound way. Within you, you find the miracle and the blessing of Divine Love that will inform you and express through you all that it carries, all that it knows, all that it desires to have and form through you.
 
-I am Keea atta Kem. May you be deeply intentional with your thoughts, thoughts of light, beams of light, allowing yourself to be elevated in truth. God bless you all.
-
-2026-04-26-MC-Keea atta Kem (T)
-
+I am Keea Atta Kem. May you be deeply intentional with your thoughts, thoughts of light, beams of light, allowing yourself to be elevated in truth. God bless you all.

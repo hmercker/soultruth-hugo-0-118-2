@@ -25,6 +25,3 @@ There is much to have God do in your transformation, this Love, this Substance h
 Rest in the peace that passes all understanding and drink deeply of God's Love, His Essence, in order that you may arrive at your at-onement with the One who has created you. As you arrive at any point in time, this at-onement, you know there is always more. Again and again you achieve the union of you in God and God in you in a blessed union of Love.
 
 I am Mary and my prayers are for you as you continue to walk your eternal path. God bless you.
-
-2026-06-07-MC-Mary (G)
-

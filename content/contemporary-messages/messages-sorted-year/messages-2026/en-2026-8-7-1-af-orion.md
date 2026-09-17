@@ -33,6 +33,3 @@ We continue on our journey, step by step. We inch toward that place of purity an
 We continue to work together, my friends. I do not say these things in judgement, but merely as an observation of the challenges that you face and that which lingers within you, not necessarily within your soul, but within your material mind, that obstructs the fulfilment of our efforts. Continue to observe yourself, to come to understand what these obstructions are. For they are unique for each individual and to strive to overcome them. It takes your efforts, dedications, your prayers and your discipline to go beyond these things, these well-worn habits within that are not conducive to fulfilling the goals that we have together.
 
 May you be blessed with a mighty inflowing of this great gift of God's Love. In this, insights may pour into your consciousness, light, joy and release from the shackles of the mind, so that all may be pure, wondrous and beautiful in their expression. God bless you, my friends. I am Orion. I love you dearly and my dedication to you is complete and lifelong. God bless you all, beautiful friends of earth. God bless you all in love.
-
-2026-08-07-AF-Orion (T)
-

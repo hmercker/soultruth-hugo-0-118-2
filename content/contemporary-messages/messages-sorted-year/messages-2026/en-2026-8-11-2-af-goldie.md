@@ -27,6 +27,3 @@ My beloveds, my beautiful friends, be joyful in life, for God has given you a gr
 May you be blessed, my beloved friends, in the joyfulness of being alive and knowing how much you are loved by God. We all celebrate. We all acknowledge the joyful truth that God loves us and that God created us. God bless you, my friends. God bless you in all that is of light, joy and love. We are uplifted and so we go happily and merrily into the Hall of Peace and receive ever yet more blessings, ever yet a deeper Touch of Love and joy.
 
 God bless you, my friends. I am Goldie and I love you. I love you so. You bring me joy, my beautiful friends. God bless you. God bless you all in His Love.
-
-2026-08-11-AF-Goldie (G)
-

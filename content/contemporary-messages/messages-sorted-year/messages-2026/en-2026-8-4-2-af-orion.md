@@ -31,6 +31,3 @@ My beautiful friends, do not acquiesce. Do not feel hopeless or powerless. For i
 My beloved friends, I know it is difficult to see how the Earth suffers, how humanity suffers, how those around you suffer, but you first must be free from your own suffering and ignorance and walk in the Truth of God's Love and truly be that active agent of change for God, the strength, the beauty, the wisdom and the love, manifesting in all its glorious ways in the world. We are here to guide you toward these ends, to be your support, your protection and to help you along the way. We continue, my friends. We continue.
 
 I am Orion and I love you so. I feel for your world, your lives and all that is so much out of harmony and we continue to dedicate ourselves in service of bringing harmony and balance back to the world. We are God's active agents, as are many and they are all here at your disposal. They are all here to help. Take advantage of the blessings and what is available to you. Open your eyes, let the scales peel away, my friends, so that you may truly see. Yes, you will see the horrors, but you will also see the light and the joy. God bless you, my friends. Orion loves you truly. Orion loves you. God bless you.
-
-2026-08-04-AF-Orion (T)
-

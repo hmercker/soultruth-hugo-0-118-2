@@ -45,6 +45,3 @@ Make it well trod and easily engaged with it. You will find us there, us and man
 Feel it, absorb it. Seek that highest of Love. All else will come into clear perspective and blessings for each of you. God bless you, my friends.
 
 I am Orion, your friend, the one who cares for you, the one who will never leave you, the one who is excited by the journey that you are taking and is there to help and support, to be with you upon that journey. God bless you, my friends. My love is with you. God bless you.
-
-2026-08-18-AF-Orion (T)
-

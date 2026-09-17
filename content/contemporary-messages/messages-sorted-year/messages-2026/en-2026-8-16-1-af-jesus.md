@@ -41,6 +41,3 @@ Remember this, my beloveds. It is that deep knowing that what you do is in harmo
 We gather around you. We, the angels of the Celestial Kingdom, we who serve God. We gather around you and we ascend into the Hall of Peace, that you may find respite and light, receive greater portions of the Father's Love and find peace there, the peace that passes all understanding. Shall we proceed, my brothers and sisters? Shall we go into greater light? I am with you, your brother and friend. I am Jesus and I lead the way to this place of blessings.
 
 God bless you, my beloveds. I love each and every one of you. I am with you, with you all the days of your life. I am with you, beloved instruments of God. God bless you, each one. God bless you.
-
-2026-08-16-AF-Jesus (G)
-

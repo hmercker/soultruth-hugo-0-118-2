@@ -25,10 +25,6 @@ You see, dear sisters, that the healing journey of the soul is one that is uniqu
 Our dear sisters, we thank you for your dedication and your offering of service. For your souls grow in your capacity as an instrument for light and love. We shall come to each one of you now, ministering healing, the blessings and the offerings that you put forward to God. Say a prayer, each one of you, for your own healing now and God will minister to you through the angels as we pray and prepare for our upcoming global healing together.
 
 May God’s great inflowing of Love reach you all. The showering and the blessings of peace, faith and humility be yours. I am Seretta Kem. I am happy to serve, happy to be with you as we all prepare for what is coming up. God bless you.
-
 <small>
 
 [^1]: **Note from medium:** Each month, before the Global Healing Experience, we gather for a preparation prayer. There is something about the message we received from Seretta Kem, and the way he addressed a recent incident in which a loved one was harmed and a soul transitioned as a result of the altercation, that prompted us to share it with the community.
-
-2026-06-12-MC-Seretta Kem (T)
-

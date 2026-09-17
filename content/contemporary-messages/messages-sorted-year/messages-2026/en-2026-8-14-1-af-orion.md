@@ -43,6 +43,3 @@ May you find your way, my friends. For you need to step forward, to grow, to dev
 Potentials that lie within are tremendous. Come and discover these things, my friends. Allow God to work through you, His beloved channels, to bring peace, harmony and light in the world, as well as truth and love. God bless you, my friends.
 
 I am Orion. I continue to dedicate myself to your journey of discovering who you are and expressing who you are, in service, in love and light. God bless you, my friends. Orion loves you deeply. God bless you.
-
-2026-08-14-AF-Orion (T)
-
