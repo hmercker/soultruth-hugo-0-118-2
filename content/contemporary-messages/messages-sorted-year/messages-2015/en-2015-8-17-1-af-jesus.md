@@ -9,13 +9,11 @@ weight: 287
 ---
 # The world is fast approaching a time of chaos.
 
-Date: 17 August 2015
+August 17<sup>th</sup>, 2015
 
-Spirit: Jesus
+Divine Love Retreat, Gibsons, BC, Canada
 
-Medium: Al Fike
-
-Gibsons, Canada.
+Jesus received by Al Fike
 
 Blessed are the children who seek to heal this world, Blessed are the children who long for the Father’s Love, Blessed are you my beloveds, for in many ways this gathering and these precious souls are the hope for the world.
 

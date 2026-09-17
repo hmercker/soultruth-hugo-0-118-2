@@ -20,7 +20,6 @@ Augustine | [Do not confuse the Divine Love with the natural Love](/contemporary
 Jesus | [You have a deep Purpose](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-1-12-2-bd-jesus/) | January 12<sup>th</sup>, 2015
 Augustine | [Do not compromise in your Thoughts and your Actions, but reach for the Highest](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-1-19-1-af-augustine/) | January 19<sup>th</sup>, 2015
 Mary | [Go with God](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-1-19-2-af-mary/) | January 19<sup>th</sup>, 2015
-John the Beloved | [How the Law of Compensation works using gossip as an example.](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-1-19-3-wv-john-the-beloved/) | January 19<sup>th</sup>, 2015
 Francis of Assisi | [Walk This World Guided By The Heavenly Father And His Angels](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-1-28-1-af-francis-of-assisi/) | January 28<sup>th</sup>, 2015
 Augustine | [You long to serve God](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-2-2-1-af-augustine/) | February 2<sup>nd</sup>, 2015
 Confucius | [Sing your Songs to God](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-2-2-2-af-confucius/) | February 2<sup>nd</sup>, 2015
@@ -102,9 +101,9 @@ Alec Gaunt | [Understand and follow the Will of God](/contemporary-messages/mess
 Faith Nyquist | [Do not underestimate the Will of God](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-12-2-af-faith-nyquist/) | June 12<sup>th</sup>, 2015
 Moses | [Do not stand in the Way of your own true and perfect Healing](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-12-3-af-moses/) | June 12<sup>th</sup>, 2015
 Confucius | [The many Benefits of praying in a Circle of Light](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-13-1-af-confucius/) | June 13<sup>th</sup>, 2015
-Jesus | [You will walk the path of the rebirth of the soul](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-14-1-af-jesus/) | June 14<sup>th</sup>, 2015
-Augustine | [Incrementally you come into closer alignment with God’s Will](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-14-2-af-augustine/) | June 14<sup>th</sup>, 2015
-Joseph Smith | [The imaginings and ideas of men create falsehoods and misinterpretations](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-15-1-af-joseph-smith/) | June 15<sup>th</sup>, 2015
+Jesus | [You will walk the Path of the Rebirth of the Soul](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-14-1-af-jesus/) | June 14<sup>th</sup>, 2015
+Augustine | [Incrementally you come into closer Alignment with God’s Will](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-14-2-af-augustine/) | June 14<sup>th</sup>, 2015
+Joseph Smith | [The imaginings and Ideas of Men create Falsehoods and Misinterpretations](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-15-1-af-joseph-smith/) | June 15<sup>th</sup>, 2015
 Faith Nyquist | [Walk in the Light and be the Beacon of Light despite the daily Challenges](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-15-2-af-faith-nyquist/) | June 15<sup>th</sup>, 2015
 Confucius | [How your Soul is changed by the Divine Love](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-20-1-af-confucius/) | June 20<sup>th</sup>, 2015
 Marjorie | [Al’s Grandmother](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-20-2-af-marjorie/) | June 20<sup>th</sup>, 2015
@@ -114,22 +113,22 @@ Goldie | [Wherever you are, Love will be present](/contemporary-messages/message
 Martin Luther | [God's Will cannot be thwarted by Man](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-21-3-af-martin-luther/) | June 21<sup>st</sup>, 2015
 Jesus | [Be my Disciples; Walk this Path of Love together](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-21-5-af-jesus/) | June 21<sup>st</sup>, 2015
 Augustine | [Seeking the Divine Love will bring many Rewards](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-24-1-af-augustine/) | June 24<sup>th</sup>, 2015
-Confucius | [Every soul has a Purpose and Gift to bring into the World](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-24-2-af-confucius/) | June 24<sup>th</sup>, 2015
+Confucius | [Every Soul has a Purpose and Gift to bring into the World](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-24-2-af-confucius/) | June 24<sup>th</sup>, 2015
 Andrew | [To Al on his Birthday](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-25-1-af-andrew/) | June 25<sup>th</sup>, 2015
 Goldie | [Birthday Blessings for Al](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-25-2-af-goldie/) | June 25<sup>th</sup>, 2015
 John the Beloved | [The Winds of Change blow upon this World](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-25-3-af-john-the-beloved/) | June 25<sup>th</sup>, 2015
-Augustine | [Guidance regarding the Retreat that is about to take place](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-27-1-af-augustine/) | June 27<sup>th</sup>, 2015
+Augustine | [Guidance regarding the Retreat that is about to take Place](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-27-1-af-augustine/) | June 27<sup>th</sup>, 2015
 Jesus | [Stand up and walk with me](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-27-2-af-jesus/) | June 27<sup>th</sup>, 2015
 Alec Gaunt | [Release the Pains of your Soul, for God needs you to be strong and clear](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-29-1-af-alec-gaunt/) | June 29<sup>th</sup>, 2015
 Confucius | [You must prepare yourselves for what is coming](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-29-2-af-confucius/) | June 29<sup>th</sup>, 2015
 Goldie | [No Time to waste](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-6-29-3-af-goldie/) | June 29<sup>th</sup>, 2015
-Alec Gaunt | [The world is changing](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-7-6-1-af-alec-gaunt/) | July 6<sup>th</sup>, 2015
+Alec Gaunt | [The World is changing](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-7-6-1-af-alec-gaunt/) | July 6<sup>th</sup>, 2015
 Augustine | [Embrace all who are coming](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-7-6-2-af-augustine/) | July 6<sup>th</sup>, 2015
 Augustine | [In the End you will come to that Place of Liberation that our Master speaks of](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-7-21-1-af-augustine/) | July 21<sup>st</sup>, 2015
 Jesus | [Your Prayers are necessary](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-7-21-2-af-jesus/) | July 21<sup>st</sup>, 2015
 Martin Luther | [Soul Transformation, Prayer and Longings](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-7-21-3-jb-martin-luther/) | July 21<sup>st</sup>, 2015
 Goldie | [Know the joy of God’s Love](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-7-25-2-af-goldie/) | July 25<sup>th</sup>, 2015
-John the Beloved | [The winds of change blow upon this world](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-7-25-1-af-john-the-beloved/) | July 25<sup>th</sup>, 2015
+John the Beloved | [The winds of Change blow upon this World](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-7-25-1-af-john-the-beloved/) | July 25<sup>th</sup>, 2015
 Augustine | [Remember that when the Father opens a Door for you to do a Task, Blessings come on many different Levels](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-7-27-1-af-augustine/) | July 27<sup>th</sup>, 2015
 Jesus | [Be steady on your Feet](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-7-27-2-af-jesus/) | July 27<sup>th</sup>, 2015
 Augustine | [Release those Conditions within you that hold you back](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-3-1-af-augustine/) | August 3<sup>rd</sup>, 2015
@@ -140,7 +139,7 @@ John the Beloved | [God has much for each of you to do](/contemporary-messages/m
 Augustine | [You all will receive your Guidance](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-13-1-af-augustine/) | August 13<sup>th</sup>, 2015
 Confucius | [Knowing God’s Will through Soul Awakening](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-13-2-af-confucius/) | August 13<sup>th</sup>, 2015
 Jesus | [I too encountered Difficulty in Teaching this simple Truth](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-13-3-af-jesus/) | August 13<sup>th</sup>, 2015
-Augustine | [Freedom through the activation of the soul mind](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-14-1-af-augustine/) | August 14<sup>th</sup>, 2015
+Augustine | [Freedom through the activation of the Soul Mind](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-14-1-af-augustine/) | August 14<sup>th</sup>, 2015
 James | [Blessings to help those who are engaged in the larger Circle of Light](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-14-2-af-james/) | August 14<sup>th</sup>, 2015
 Jesus | [I shall always be with you](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-15-1-af-jesus/) | August 15<sup>th</sup>, 2015
 Augustine | [Go deeper within your Souls and we will be there to support you](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-15-2-af-augustine/) | August 15<sup>th</sup>, 2015
@@ -156,7 +155,7 @@ Augustine | [Application of your spiritual Gifts is required](/contemporary-mess
 Augustine | [Bringing forward the Gift of yourselves in Service to God will bring many Rewards](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-16-3-af-augustine/) | August 16<sup>th</sup>, 2015
 Confucius | [Amendment to Augustine’s Guidance](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-16-4-af-confucius/) | August 16<sup>th</sup>, 2015
 Jesus | [Let go and discover your true Soul Purpose](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-16-5-af-jesus/) | August 16<sup>th</sup>, 2015
-Jesus | [The world is fast approaching a time of chaos.](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-17-1-af-jesus/) | August 17<sup>th</sup>, 2015
+Jesus | [The World is fast approaching a Time of Chaos](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-17-1-af-jesus/) | August 17<sup>th</sup>, 2015
 Confucius | [Sow Seeds of Love upon your Journey](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-17-2-af-confucius/) | August 17<sup>th</sup>, 2015
 Isaiah & Jesus | [The Power of the Love Bonds shared by those who pray for God’s Love together](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-17-3-af-isaiah-jesus/) | August 17<sup>th</sup>, 2015
 John the Beloved | [Drink deep these living Waters](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-17-4-af-john-the-beloved/) | August 17<sup>th</sup>, 2015
@@ -166,20 +165,20 @@ Seretta Kem | [A special Blessing to those at the Gibson’s Retreat](/contempor
 Various | [The Angels come to bless a Retreat gathering in Gibsons](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-17-8-af-various/) | August 17<sup>th</sup>, 2015
 Augustine | [Strengthen your Relationships, lean upon one another](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-17-9-af-augustine/) | August 17<sup>th</sup>, 2015
 Augustine | [The Road less traveled](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-18-1-af-augustine/) | August 18<sup>th</sup>, 2015
-Confucius | [Let your Soul Consciousness take precedence over your Minds](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-18-2-af-confucius/) | August 18<sup>th</sup>, 2015
+Confucius | [Let your Soul Consciousness take Precedence over your Minds](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-18-2-af-confucius/) | August 18<sup>th</sup>, 2015
 Augustine | [We embark on a Journey to change the World](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-19-2-af-augustine/) | August 19<sup>th</sup>, 2015
 Jesus | [Jesus comes to open and bless a Retreat Gathering](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-19-1-af-jesus/) | August 19<sup>th</sup>, 2015
 Seretta Kem | [Some Comments on what the Angels are doing to facilitate our Soul Growth](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-19-3-af-seretta-kem/) | August 19<sup>th</sup>, 2015
 Augustine | [The Father has given you a Gift](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-19-4-af-augustine/) | August 19<sup>th</sup>, 2015
-James Padgett | [Express the truth to others. Padgett talks of why this is so important](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-1-af-james-padgett/) | August 20<sup>th</sup>, 2015
-Francis of Assisi | [Be a beacon and a source of Light.](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-2-af-francis-of-assisi/) | August 20<sup>th</sup>, 2015
-Mary | [The change that is necessary for the world will start with the children.](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-3-af-mary/) | August 20<sup>th</sup>, 2015
+James Padgett | [Express the truth to others; Padgett talks of why this is so important](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-1-af-james-padgett/) | August 20<sup>th</sup>, 2015
+Francis of Assisi | [Be a Beacon and a Source of Light](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-2-af-francis-of-assisi/) | August 20<sup>th</sup>, 2015
+Mary | [The Change that is necessary for the World will start with the Children](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-3-af-mary/) | August 20<sup>th</sup>, 2015
 Andrew | [Encourages all to bring the Truth of God’s Love forward](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-4-af-andrew/) | August 20<sup>th</sup>, 2015
 Martin Luther | [Give to others but do not do so with an empty Basket](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-5-af-martin-luther/) | August 20<sup>th</sup>, 2015
 Keea Atta Kem | [Keea instructs to go to the Soul and live from that Place rather than the material Mind](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-6-af-keea-atta-kem/) | August 20<sup>th</sup>, 2015
 Faith Nyquist | [Encouragement to establish Centers of Light](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-7-af-faith-nyquist/) | August 20<sup>th</sup>, 2015
 Confucius | [The Power of Group Prayer](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-8-af-confucius/) | August 20<sup>th</sup>, 2015
-Augustine | [Augustine suggests that a Gift given in group Prayer will Benefit those praying the next Day](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-9-af-augustine/) | August 20<sup>th</sup>, 2015
+Augustine | [Augustine suggests that a Gift given in group Prayer will benefit those praying the next Day](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-9-af-augustine/) | August 20<sup>th</sup>, 2015
 Jesus | [Blessing](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-20-10-bd-jesus/) | August 20<sup>th</sup>, 2015
 Martin Luther | [Judge not your Brother, judge not your Sister, but Love them all](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-21-1-af-martin-luther/) | August 21<sup>st</sup>, 2015
 Andrew | [Pray together and support one another in loving Ways](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-21-2-af-andrew/) | August 21<sup>st</sup>, 2015
@@ -192,7 +191,7 @@ Augustine | [Augustine advises a Retreat Group to talk about their inner, Soul C
 Confucius | [Confucius urges Group Participants to start Circles of Light where they live](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-22-4-af-confucius/) | August 22<sup>nd</sup>, 2015
 Jesus | [Blessings](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-22-5-af-jesus/) | August 22<sup>nd</sup>, 2015
 John the Beloved | [John gives a Prayer for greater Enlightenment](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-22-6-af-john-the-beloved/) | August 22<sup>nd</sup>, 2015
-Jesus | [Your souls are awakening](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-23-1-af-jesus/) | August 23<sup>rd</sup>, 2015
+Jesus | [Your Souls are awakening](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-23-1-af-jesus/) | August 23<sup>rd</sup>, 2015
 Confucius | [Do not make this complicated](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-23-2-af-confucius/) | August 23<sup>rd</sup>, 2015
 Mary | [Love the Children](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-23-3-af-mary/) | August 23<sup>rd</sup>, 2015
 Various | [Messages of Reassurance and Comfort](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-8-23-4-af-various/) | August 23<sup>rd</sup>, 2015
@@ -219,14 +218,14 @@ Augustine | [Circle of Light, a Place of Peace, a Place of Respite, a Place wher
 Andrew | [Do not allow your Anxieties to cloud your pure Intentions](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-2-1-af-andrew/) | October 2<sup>nd</sup>, 2015
 Augustine | [Cherish this Light](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-5-1-af-augustine/) | October 5<sup>th</sup>, 2015
 Moses | [Journey upon the Waters of Life together](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-5-2-af-moses/) | October 5<sup>th</sup>, 2015
-Augustine | [The difference between the material mind and the soul mind](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-12-1-af-augustine/) | October 12<sup>th</sup>, 2015
+Augustine | [The Difference between the Material Mind and the Soul Mind](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-12-1-af-augustine/) | October 12<sup>th</sup>, 2015
 John the Beloved | [God will embrace all in Time](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-12-2-af-john-the-beloved/) | October 12<sup>th</sup>, 2015
 Mary | [Mary is with you](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-12-3-af-mary/) | October 12<sup>th</sup>, 2015
 Augustine | [Choose well your next Steps](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-19-1-af-augustine/) | October 19<sup>th</sup>, 2015
 Augustine | [These are the Days to learn how to love](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-19-2-af-augustine/) | October 19<sup>th</sup>, 2015
 Jesus | [You create Circles of Light in the World](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-19-3-af-jesus/) | October 19<sup>th</sup>, 2015
 John the Beloved | [You are becoming God’s Instruments and Channels of Love](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-19-4-af-john-the-beloved/) | October 19<sup>th</sup>, 2015
-Aman | [Reincarnation has never occurred.](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-26-1-af-aman/) | October 26<sup>th</sup>, 2015
+Aman | [Reincarnation has never occurred](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-26-1-af-aman/) | October 26<sup>th</sup>, 2015
 Faith Nyquist | [Guidance about our Choices in the Flow of God’s Love](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-10-26-2-af-faith-nyquist/) | October 26<sup>th</sup>, 2015
 Augustine | [Every day gives you new Opportunities to make the right Choices](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-11-2-1-af-augustine/) | November 2<sup>nd</sup>, 2015
 John the Beloved | [Release the Yoke of Error and lack of Self Love](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-11-2-2-af-john-the-beloved/) | November 2<sup>nd</sup>, 2015
@@ -236,7 +235,7 @@ Francis of Assisi | [Healing for this precious World is required](/contemporary-
 Alec Gaunt | [Do not hide away but express your Gifts in the World](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-11-16-1-af-alec-gaunt/) | November 16<sup>th</sup>, 2015
 Confucius | [Creating a Lattice of Light in the World](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-11-16-2-af-confucius/) | November 16<sup>th</sup>, 2015
 Goldie | [Be joyful and do not let the Worries of the World affect you](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-11-16-3-af-goldie/) | November 16<sup>th</sup>, 2015
-Jesus | [It shall start in the west and move around the world.](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-11-23-1-af-jesus/) | November 23<sup>rd</sup>, 2015
+Jesus | [It shall start in the West and move around the World](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-11-23-1-af-jesus/) | November 23<sup>rd</sup>, 2015
 Solomon | [King Solomon talks about how to obtain true Wisdom](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-11-23-2-af-solomon/) | November 23<sup>rd</sup>, 2015
 Professor Salyards | [Professor Salyards affirms the Truth spoken by King Solomon](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-11-23-3-af-professor-salyards/) | November 23<sup>rd</sup>, 2015
 White Cloud | [Be Warriors of Light](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-11-25-1-af-white-cloud/) | November 25<sup>th</sup>, 2015

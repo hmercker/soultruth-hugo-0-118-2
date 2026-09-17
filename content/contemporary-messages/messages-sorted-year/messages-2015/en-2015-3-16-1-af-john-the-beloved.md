@@ -5,17 +5,15 @@ description: "John the Beloved in Namibia - March 16th, 2015 - Struggling to mak
 date: 2017-02-16 03:59:47+00:00
 draft: False
 hidden: True
-weight: 251
+weight:
 ---
 # Struggling to make sense of the world.
 
-Date: 16 March 2015
+March 16<sup>th</sup>, 2015
 
-Spirit: John the Beloved
+Tour 2015, Swakopmund, Namibia
 
-Medium: Al Fike
-
-Swakopmund, Namibia.
+John the Beloved received by Al Fike
 
 I am John the Beloved. 
 

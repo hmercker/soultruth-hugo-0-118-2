@@ -514,6 +514,7 @@ George Washington | [Show them the Way with Truth and an open Heart](/contempora
 Jesus | [Allow the great Blessing of God’s Love to permeate your Being](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-6-1-jw-jesus/) | November 6<sup>th</sup>, 2025
 Judas | [You Must Listen](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-6-2-jw-judas/) | November 6<sup>th</sup>, 2025
 Copernicus | [Beyond the Material: Discovering the Many Layers of God's Creation](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-7-1-af-copernicus/) | November 7<sup>th</sup>, 2025
+Elizabeth Barret Browning | [So Much Awaits](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-7-2-jw-elizabeth-barret-browning/) | November 7<sup>th</sup>, 2025
 Orion | [A Lesson on Achieving Harmony Through Unity](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-8-1-af-orion/) | November 8<sup>th</sup>, 2025
 Judas | [The Spiritual Battle Won](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-10-1-jw-judas/) | November 10<sup>th</sup>, 2025
 Goldie, Augustine & Jesus | [The Power of Persistent Love: Awakening the Soul to God's Truth](/contemporary-messages/messages-sorted-year/messages-2025/en-2025-11-11-1-af-goldie-augustine-jesus/) | November 11<sup>th</sup>, 2025

@@ -1,5 +1,5 @@
 ﻿---
-title: "Every soul has a Purpose and Gift to bring into the World"
+title: "Every Soul has a Purpose and Gift to bring into the World"
 menu_title: ""
 description: "Every soul has a Purpose and Gift to bring into the World"
 date: 2026-09-16 00:00:00+00:00
@@ -8,7 +8,7 @@ hidden: True
 weight:
 ---
 
-# Every soul has a Purpose and Gift to bring into the World
+# Every Soul has a Purpose and Gift to bring into the World
 
 June 24<sup>th</sup>, 2015
 

@@ -8,7 +8,7 @@ hidden: True
 weight:
 ---
 
-# You will walk the path of the rebirth of the soul
+# You will walk the Path of the Rebirth of the Soul
 
 June 14<sup>th</sup>, 2015
 

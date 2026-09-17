@@ -14,7 +14,7 @@ May 18, 2015
 Prayer Circle, Gibsons, BC, Canada
 
 Augustine received by Al Fike
- 
+
 Do you recognize your two selves, the one which is human and the one which is your soul? When you are born these two selves are distinct, and as you grow in this world most of humanity develops the human qualities, the natural love, the mind, the appetites of the flesh. And these become hardened within yourselves, a steady and great influence upon your being. Yet you have come together to develop your souls, to seek the ascension of your souls within you by receiving God’s Love and abundance, by making your relationship with God the first and foremost part of yourselves, and this is what we who are with you in Love and support continue to encourage you to do. We walk with you each day. We are with you in your prayers. We pray for you and we make our efforts to support and teach you. 
 
 And now comes the time, my beloveds, where you are ready to bring your souls into a greater alignment of your consciousness, and to allow that human part of you to essentially fall away in harmony with your soul’s ascension, your connection with God. 
