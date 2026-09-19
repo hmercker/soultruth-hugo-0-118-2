@@ -148,8 +148,5 @@ Alec Gaunt | [As you grow within your soul, you will be able to receive the chan
 Jesus | [I come to take your burdens](/contemporary-messages/messages-sorted-year/messages-2016/i-come-to-take-your-burdens-af-21-dec-2016/) | 21st December, 2016
 Alec Gaunt | [Seek truth within your own soul](/contemporary-messages/messages-sorted-year/messages-2016/seek-truth-within-your-own-soul-af-28-dec-2016/) | 28th December, 2016
 Matthew | [Time to accept a new way of being](/contemporary-messages/messages-sorted-year/messages-2016/time-to-accept-a-new-way-of-being-af-29-dec-2016/) | 29th December, 2016
-  
-### [Link to Year 2017](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2017/)
 
-### [Link to Contemporary Messages by Year](/contemporary-messages/messages-sorted-year/)
-
+*Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2013/), or to [contemporary messages by year](/contemporary-messages/#a).*

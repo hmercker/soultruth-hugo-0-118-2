@@ -15,5 +15,4 @@ These are the spirit communications we have received in the year 1970. We have a
 ---|---|---  
 Keea Atta-Kem | [Healing Effect of Colours](/contemporary-messages/messages-sorted-year/messages-1970/healing-effect-of-colours-26-july-1970/) | July 26th, 1970  
   
-
-### [Link to Contemporary Messages by Year](/contemporary-messages/messages-sorted-year/)
+*Go to [contemporary messages by year](/contemporary-messages/#a).*

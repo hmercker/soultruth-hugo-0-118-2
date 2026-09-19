@@ -294,8 +294,4 @@ Seretta Kem | [Struggling With Evil - D.V.](/contemporary-messages/messages-sort
 Goldie | [Dance to the Music of God’s Love](/contemporary-messages/messages-sorted-year/messages-2017/dance-to-the-music-af-31-dec-2017/) | December 31st, 2017
 Samuel | [New Year’s Message](/contemporary-messages/messages-sorted-year/messages-2017/new-years-message-af-31-dec-2017/) | December 31st, 2019
   
-
-
-#### [Link to Year 2018](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2018/)
-
-#### [Link to Contemporary Messages by Year](/contemporary-messages/messages-sorted-year/)
+*Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2017/), or to [contemporary messages by year](/contemporary-messages/#a).*

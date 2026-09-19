@@ -265,8 +265,5 @@ Alec Gaunt | [Allow the Love in your Souls to open many Doors](/contemporary-mes
 Augustine | [Awakening of the Soul Mind](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-12-27-2-af-augustine/) | December 27<sup>th</sup>, 2015
 Confucius | [Accept the Changes that are coming](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-12-27-3-af-confucius/) | December 27<sup>th</sup>, 2015
 Alec Gaunt | [You have accomplished much in this past Year](/contemporary-messages/messages-sorted-year/messages-2015/en-2015-12-30-1-af-alec-gaunt/) | December 30<sup>th</sup>, 2015
-  
-### [Link to Year 2016](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2016/)
 
-### [Link to Contemporary Messages by Year](/contemporary-messages/messages-sorted-year/)
-
+*Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2015/), or to [contemporary messages by year](/contemporary-messages/#a).*

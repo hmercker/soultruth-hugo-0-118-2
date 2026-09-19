@@ -311,6 +311,4 @@ Seretta Kem | [You Continue to Build the Lattice of Light in Your World](/contem
 Mary | [Many believe that their Mind brings Soul Consciousness](/contemporary-messages/messages-sorted-year/messages-2018/many-believe-that-their-mind-brings-soul-conciousness-af-17-dec-2018/) | December 17th, 2018
 Keea Atta Kem | [The Lattice of Light is a Magnificent Support For Spiritual Growth](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-12-30-4-mc-keea-atta-kem/) | December 30<sup>th</sup>, 2018
 
-#### [Link to Year 2019](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2019/)
-
-#### [Link to Contemporary Messages by Year](/contemporary-messages/messages-sorted-year/)
+*Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2018/), or to [contemporary messages by year](/contemporary-messages/#a).*

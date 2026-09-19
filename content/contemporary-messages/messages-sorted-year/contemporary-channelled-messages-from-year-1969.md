@@ -16,6 +16,4 @@ These are the spirit communications we have received in the year 1969. We have a
 Goldie and Kentor | [Goldie and visitors from another Galaxy](/contemporary-messages/messages-sorted-year/messages-1969/goldies-and-visitors-from-another-galaxy-12-march-1969/) | March 12th, 1969  
 Kentor | [Kentor - Visitor from another Galaxy.](/contemporary-messages/messages-sorted-year/messages-1969/kentor-visitor-from-another-galaxy-12-august-1969/) | August 12th, 1969  
   
-
-
-### [Link to Contemporary Messages by Year](/contemporary-messages/messages-sorted-year/)
+*Go to [contemporary messages by year](/contemporary-messages/#a).*
