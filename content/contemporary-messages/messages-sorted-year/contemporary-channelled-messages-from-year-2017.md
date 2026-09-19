@@ -7,9 +7,9 @@ draft: False
 hidden: True
 weight: 389
 ---
-# Contemporary Channelled Messages - Year 2017#
+# Contemporary Channelled Messages - Year 2017
 
-These are the spirit communications we have received in the year 2017.
+These are the spirit communications received in the year 2017.
 
 **Author** | **Title** | **Date of Message**  
 ---|---|---   

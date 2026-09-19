@@ -9,7 +9,7 @@ weight: 389
 ---
 # Contemporary Channelled Messages - Year 2018
 
-These are the spirit communications received by Al Fike and Maureen Cardosa. This page is still getting messages added every few days. It will be several months before all of 2018 messages are here.
+These are the spirit communications received in the year 2018.
 
 **Author** | **Title** | **Date of Message**  
 ---|---|---    

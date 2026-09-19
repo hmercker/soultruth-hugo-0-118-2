@@ -9,7 +9,7 @@ weight: 287
 ---
 # Contemporary Channelled Messages - Year 2015
 
-These are the spirit communications we have received in the year 2015. 
+These are the spirit communications received in the year 2015. 
 
 Author | Title | Date of Message  
 ---|---|--- 

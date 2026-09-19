@@ -9,7 +9,7 @@ weight: 318
 ---
 # Contemporary Channelled Messages - Year 2019
 
-These are the spirit communications we have received in the year 2019.
+These are the spirit communications received in the year 2019.
 
 
 Author | Title | Date of Message  

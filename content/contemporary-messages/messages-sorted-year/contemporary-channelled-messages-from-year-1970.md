@@ -9,7 +9,7 @@ weight: 272
 ---
 # Contemporary Channelled Messages - Year 1970
 
-These are the spirit communications we have received in the year 1970. We have adopted the approach of concealing the identity and sometimes the location of the medium. This is for their own protection from undue criticism.
+These are the spirit communications received in the year 1970.
 
 **Author** | **Title** | **Date of Message**  
 ---|---|---  

@@ -9,7 +9,7 @@ weight:
 ---
 # Contemporary Channelled Messages - Year 2025
 
-These are the spirit communications we have received in the year 2025.
+These are the spirit communications received in the year 2025.
 
 Author | Title | Date of Message 
 ---|---|--- 

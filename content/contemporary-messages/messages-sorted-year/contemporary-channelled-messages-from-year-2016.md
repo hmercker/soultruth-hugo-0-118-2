@@ -9,7 +9,7 @@ weight: 287
 ---
 # Contemporary Channelled Messages - Year 2016
 
-These are the spirit communications received by Al Fike in the year 2016. 
+These are the spirit communications received in the year 2016. 
 
 Author | Title | Date of Message  
 ---|---|---  
@@ -149,4 +149,4 @@ Jesus | [I come to take your burdens](/contemporary-messages/messages-sorted-yea
 Alec Gaunt | [Seek truth within your own soul](/contemporary-messages/messages-sorted-year/messages-2016/seek-truth-within-your-own-soul-af-28-dec-2016/) | 28th December, 2016
 Matthew | [Time to accept a new way of being](/contemporary-messages/messages-sorted-year/messages-2016/time-to-accept-a-new-way-of-being-af-29-dec-2016/) | 29th December, 2016
 
-*Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2013/), or to [contemporary messages by year](/contemporary-messages/#a).*
+*Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2016/), or to [contemporary messages by year](/contemporary-messages/#a).*
