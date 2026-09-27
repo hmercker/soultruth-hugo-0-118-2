@@ -19,13 +19,13 @@ James | [How the soul perceives truth and the function of the Spirit of Truth](/
 Luke | [Shed those things that are not of Love](/contemporary-messages/messages-sorted-year/messages-2017/shed-those-things-that-are-not-of-love-af-11-jan-2017/) | 11<sup>th</sup> January, 2017
 Peter | [Earth Changes are Coming](/contemporary-messages/messages-sorted-year/messages-2017/earth-changes-are-coming-af-15-jan-2017/) | 15<sup>th</sup> January, 2017
 Keea-Atta-Kem | [Accept every unique soul, their differences will not harm you spiritually](/contemporary-messages/messages-sorted-year/messages-2017/accept-every-unique-soul-af-16-jan-2017/) | 16<sup>th</sup> January, 2016
-Alec | [The changes you will experience](/contemporary-messages/messages-sorted-year/messages-2017/the-changes-you-will-experience-af-23-jan-2017/) | 23<sup>rd<1/sup> January, 2017
+Alec | [The changes you will experience](/contemporary-messages/messages-sorted-year/messages-2017/the-changes-you-will-experience-af-23-jan-2017/) | 23<sup>rd</sup> January, 2017
 Alec | [How to Be With God](/contemporary-messages/messages-sorted-year/messages-2017/how-to-be-with-god-af-25-jan-2017/) | 25<sup>th</sup> January, 2017
 Augustine | [What Do You Pray For?](/contemporary-messages/messages-sorted-year/messages-2017/what-do-you-pray-for-af-30-jan-2017/) | 30<sup>th</sup> January, 2017
 Augustine | [The Power of Simultaneous Prayer Creates A Lattice of Light](/contemporary-messages/messages-sorted-year/messages-2017/the-power-of-simultaneous-prayer-af-12-feb-2017/) | 12<sup>th</sup> February, 2017
 Augustine | [Changes in the World](/contemporary-messages/messages-sorted-year/messages-2017/changes-in-the-world-af-17-february-2017/) | February 17<sup>th</sup>, 2017  
 Confucius | [Our soul and the Law of Attraction](/contemporary-messages/messages-sorted-year/messages-2017/our-soul-and-the-law-of-attraction-af-15-feb-2107/) | 15<sup>th</sup> February, 2017
-Andrew | [Seeking Love and Light](/contemporary-messages/messages-sorted-year/messages-2017/seeking-love-and-light-af-23-feb-2017/) | 23<sup>rd<1/sup> February, 2017
+Andrew | [Seeking Love and Light](/contemporary-messages/messages-sorted-year/messages-2017/seeking-love-and-light-af-23-feb-2017/) | 23<sup>rd</sup> February, 2017
 Luke | [Befriending Your Soul](/contemporary-messages/messages-sorted-year/messages-2017/befriending-the-soul-af-5-mar-2017/) | 5<sup>th</sup> March, 2017
 Confucius | [Drink Deep of God’s Love](/contemporary-messages/messages-sorted-year/messages-2017/drink-deep-of-gods-love-af-8-mar-2017) | 8<sup>th</sup> March, 2017
 Aekarius | [The Power of Astronomy and Astrology is Limited](/contemporary-messages/messages-sorted-year/messages-2017/the-power-of-astrology-and-astronomy-is-limited-af-9-march-2017/) | March 9<sup>th</sup>, 2017   
@@ -42,9 +42,9 @@ Andrew | [A Kiss of Love](/contemporary-messages/messages-sorted-year/messages-2
 Mahatma Gandhi | [You can Change the World](/contemporary-messages/messages-sorted-year/messages-2017/you-can-change-the-world-af-19-may-2017) | May 19<sup>th</sup>, 2017
 Laila | [Walk in His Light each day](/contemporary-messages/messages-sorted-year/messages-2017/walk-in-his-light-each-day-af-19-may-2017/) | May 19<sup>th</sup>, 2017
 Jesus | [	Drink Deep of the Waters of God's Love](/contemporary-messages/messages-sorted-year/messages-2017/drink-deep-of-gods-love-af-20-may-2017/) | May 20<sup>th</sup>, 2017
-Augustine | [Soul Longing is Prayer](/contemporary-messages/messages-sorted-year/messages-2017/soul-longing-is-prayer-af-21-may-2017/) | May 21<sup>st<1/sup>  2017 
-Mary | [I Will Bring You Together](/contemporary-messages/messages-sorted-year/messages-2017/i-will-bring-you-together-af-21-may-2017/) | May 21<sup>st<1/sup>  2017
-Icarious | [Come to Know Your Own Soul](/contemporary-messages/messages-sorted-year/messages-2017/come-to-know-your-own-soul-af-21-may-2017/) | May 21<sup>st<1/sup>  2017
+Augustine | [Soul Longing is Prayer](/contemporary-messages/messages-sorted-year/messages-2017/soul-longing-is-prayer-af-21-may-2017/) | May 21<sup>st</sup>  2017 
+Mary | [I Will Bring You Together](/contemporary-messages/messages-sorted-year/messages-2017/i-will-bring-you-together-af-21-may-2017/) | May 21<sup>st</sup>  2017
+Icarious | [Come to Know Your Own Soul](/contemporary-messages/messages-sorted-year/messages-2017/come-to-know-your-own-soul-af-21-may-2017/) | May 21<sup>st</sup>  2017
 Andrew | [Allow God to use you as His Channel of Love](/contemporary-messages/messages-sorted-year/messages-2017/allow-god-to-use-you-af-22-may-2017/) | May 22<sup>nd</sup>, 2017
 Seretta Kem | [Preparations for Direct Voice - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/preparations-for-direct-voice-af-25-may-2017) | May 25<sup>th</sup>, 2017
 Seretta Kem | [Direct Voice Guidance continued - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/direct-voice-guidance-continued-af-26-may-2017/) | May 26<sup>th</sup>, 2017
@@ -77,8 +77,8 @@ Confucius | [Truth Comes Through the Soul](/contemporary-messages/messages-sorte
 Jesus | [May your souls shine with the Father’s Love - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/may-your-souls-shine-af-30-dec-2017/) | July 30<sup>th</sup>, 2017
 Seretta Kem | [God will guide you to the parched lands of the world - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/god-will-guide-you-af-30-jul-2017/) | July 30<sup>th</sup>, 2017
 Augustine | [It Starts With a Simple Desire](/contemporary-messages/messages-sorted-year/messages-2017/it-starts-with-a-simple-desire-af-30-jul-2017/) | July 30<sup>th</sup>, 2017
-Andrew | [Sincere Prayer is a Longing From the Soul](/contemporary-messages/messages-sorted-year/messages-2017/sincere-prayer-is-a-longing-from-the-soul-af-31-jul-2017/) | July 31<sup>st<1/sup>  2017
-Augustine | [Accept God’s Calling](/contemporary-messages/messages-sorted-year/messages-2017/accept-gods-calling-af-1-aug-2017/) | August 1<sup>st<1/sup>  2017
+Andrew | [Sincere Prayer is a Longing From the Soul](/contemporary-messages/messages-sorted-year/messages-2017/sincere-prayer-is-a-longing-from-the-soul-af-31-jul-2017/) | July 31<sup>st</sup>  2017
+Augustine | [Accept God’s Calling](/contemporary-messages/messages-sorted-year/messages-2017/accept-gods-calling-af-1-aug-2017/) | August 1<sup>st</sup>  2017
 Augustine | [Progressing the soul and detecting changes - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/progressing-the-soul-and-detecting-changes-hem-2-aug-2017/) | August 2<sup>nd</sup>, 2017
 Jesus | [The advancing of the soul - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-advancing-of-the-soul-hem-5-aug-2017/) | August 5<sup>th</sup>, 2017
 Jesus | [On the Project of Direct Voice](/contemporary-messages/messages-sorted-year/messages-2017/en-2017-8-5-2-hm-jesus/) | August 5<sup>th</sup>, 2017
@@ -94,7 +94,7 @@ Augustine | [Be Honest With Yourselves - D.V.](/contemporary-messages/messages-s
 Confucius | [Love Dissolves All Barriers](/contemporary-messages/messages-sorted-year/messages-2017/love-dissolves-all-barriers-af-17-aug-2017/) | August 17<sup>th</sup>, 2017
 Augustine | [How your gifts will emerge - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/how-your-gifts-will-emerge-af-20-aug-2017/) | August 20<sup>th</sup>, 2017
 Seretta Kem | [Many gifts will emerge - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/many-gifts-will-emerge-af-20-aug-2017/) | August 20<sup>th</sup>, 2017
-Matthew | [Only the Soul Can Know God’s Love](/contemporary-messages/messages-sorted-year/messages-2017/only-the-soul-can-know-gods-love-af-21-aug-2017/) | August 21<sup>st<1/sup>  2017
+Matthew | [Only the Soul Can Know God’s Love](/contemporary-messages/messages-sorted-year/messages-2017/only-the-soul-can-know-gods-love-af-21-aug-2017/) | August 21<sup>st</sup>  2017
 Paul | [Restore the Harmony of Creation](/contemporary-messages/messages-sorted-year/messages-2017/restore-the-harmony-of-creation-af-12-sept-2017/) | September 10<sup>th</sup>, 2017  
 Seretta Kem | [The various purposes of the upcoming retreat - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-various-purposes-af-10-sep-2017/) | September 10<sup>th</sup>, 2017
 Augustine | [Invitation to Pray Daily With Lorraine To Receive Teachings](/contemporary-messages/messages-sorted-year/messages-2017/invitation-to-pray-daily-af-10-sep-2017/) | September 10<sup>th</sup>, 2017
@@ -116,7 +116,7 @@ Seretta Kem | [Healing and the Law of Harmony](/contemporary-messages/messages-s
 Samuel | [Today is the day you are serving God](/contemporary-messages/messages-sorted-year/messages-2017/today-is-the-day-you-are-serving-god-af-19-sep-2017/) | September 19<sup>th</sup>, 2017
 Keea Atta Kem | [The Colours of Gods Healing](/contemporary-messages/messages-sorted-year/messages-2017/the-light-of-gods-healing-af-20-sept-2017/) | September 20<sup>th</sup>, 2017  
 Augustine | [The Law of Desire (Popularly confused as the Law of Attraction)](/contemporary-messages/messages-sorted-year/messages-2017/law-of-desire-af-20-sep-2017/) | September 20<sup>th</sup>, 2017
-Seretta Kem | [Healing and the Law of Harmony Part 2](/contemporary-messages/messages-sorted-year/messages-2017/healing-and-the-law-of-harmony-part-2-af-21-sept-2017/) | September 21<sup>st<1/sup>  2017  
+Seretta Kem | [Healing and the Law of Harmony Part 2](/contemporary-messages/messages-sorted-year/messages-2017/healing-and-the-law-of-harmony-part-2-af-21-sept-2017/) | September 21<sup>st</sup>  2017  
 Augustine | [The Expression of Love via Service is Important](/contemporary-messages/messages-sorted-year/messages-2017/love-in-service-is-important-af-22-sep-2017/) | September 22<sup>nd</sup>, 2017
 Faith | [What is Faith?](/contemporary-messages/messages-sorted-year/messages-2017/what-is-faith-af-23-sep-2017/) | September 23rd, 2017
 Lotus Blossom | [Salvation of the World](/contemporary-messages/messages-sorted-year/messages-2017/salvation-of-the-world-af-24-sep-2017/) | September 24<sup>th</sup>, 2017
@@ -134,7 +134,7 @@ Judas | [Its not about the words](/contemporary-messages/messages-sorted-year/me
 White Cloud | [Love Will Awaken Your Soul](/contemporary-messages/messages-sorted-year/messages-2017/love-will-awaken-your-soul-af-28-sep-2017/) | September 28<sup>th</sup>, 2017
 Augustine | [Some discussion about mediumship - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/some-discussion-about-mediumship-af-30-sep-2017/) | September 30<sup>th</sup>, 2017
 Joshua | [Bridge Differences With Love - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/bridge-differences-with-love-af-30-sep-2017/) | September 30<sup>th</sup>, 2017
-Seretta Kem | [Guidance on D.V. Preparations - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/guidance-on-dv-preparations-af-1-oct-2017/) | October 1<sup>st<1/sup>  2017
+Seretta Kem | [Guidance on D.V. Preparations - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/guidance-on-dv-preparations-af-1-oct-2017/) | October 1<sup>st</sup>  2017
 Tahlia | [Walk in the Light Through Coming Upheavals - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/walk-in-the-light-through-the-changes-af-2-oct-2017/) | October 2<sup>nd</sup>, 2017
 Matthew | [The Purpose of Direct Voice - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-purpose-of-direct-voice-af-4-oct-2017/) | October 4<sup>th</sup>, 2017
 Seretta Kem and Jesus | [Direct Voice Instruction - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/direct-voice-instruction-af-8-oct-2017/) | October 8<sup>th</sup>, 2017
@@ -154,8 +154,8 @@ Goldie | [Don’t take yourselves too seriously- D.V.](/contemporary-messages/me
 Confucius | [H’s Arrival - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/helges-arrival-af-20-oct-2017/) | October 20<sup>th</sup>, 2017
 Goldie | [Love and Laughter with Goldie - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/love-and-laughter-af-20-oct-2017/) | October 20<sup>th</sup>, 2017
 Martin Luther | [Martin Luther Greets H - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/martin-luther-greets-h-af-20-oct-2017) | October 20<sup>th</sup>, 2017
-Mary | [Much work awaits - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/much-work-awaits-af-21-oct-2017/) | October 21<sup>st<1/sup>  2017
-Seretta Kem | [Preparing for Direct Voice to Begin](/contemporary-messages/messages-sorted-year/messages-2017/preparing-for-dv-to-begin-af-21-oct-2017/) | October 21<sup>st<1/sup>  2017
+Mary | [Much work awaits - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/much-work-awaits-af-21-oct-2017/) | October 21<sup>st</sup>  2017
+Seretta Kem | [Preparing for Direct Voice to Begin](/contemporary-messages/messages-sorted-year/messages-2017/preparing-for-dv-to-begin-af-21-oct-2017/) | October 21<sup>st</sup>  2017
 Augustine | [Let Go of Fears and Judgements - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/let-go-of-fears-judgements-af-22-oct-2017) | October 22<sup>nd</sup>, 2017
 Jesus | [I am with you - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/i-am-with-you-af-22-oct-2017/) | October 22<sup>nd</sup>, 2017
 Seretta Kem | [The Beginning - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-beginning-af-22-oct-2017/) | October 22<sup>nd</sup>, 2017
@@ -173,8 +173,8 @@ Thomas Aquinas | [At-onement with One another Brings a Powerful Harmony - D.V.](
 Lotus Blossom | [The Diamond Lights of your being - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-diamond-lights-of-your-being-af-29-0ct-2017/) | October 29<sup>th</sup>, 2017  
 James | [Earth Changes and your role - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/earth-changes-and-your-role-af-29-0ct-2017/) | October 29<sup>th</sup>, 2017
 Mahatma Gandhi | [This Is Your Job - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/this-is-your-job-af-30-oct-2017/) | October 30<sup>th</sup>, 2017
-Augustine | [Be Aware of the Conditions which Surround You - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/be-aware-of-the-conditions-af-31-oct-2017/) | October 31<sup>st<1/sup>  2017
-Seretta Kem | [Various Adjustments made within Your Bodies - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/various-adjustments-made-af-1-nov-2017/) | November 1<sup>st<1/sup>  2017
+Augustine | [Be Aware of the Conditions which Surround You - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/be-aware-of-the-conditions-af-31-oct-2017/) | October 31<sup>st</sup>  2017
+Seretta Kem | [Various Adjustments made within Your Bodies - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/various-adjustments-made-af-1-nov-2017/) | November 1<sup>st</sup>  2017
 Goldie | [Stand in the Flow - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/stand-in-the-flow-af-2-nov-2017/) | November 2<sup>nd</sup>, 2017
 Jesus | [Jesus is with us - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/jesus-is-with-us-af-2-nov-2017/) | November 2<sup>nd</sup>, 2017
 Seretta Kem | [The Blessings of His Love Will Wash Over You Like A Mighty Torrent - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-blessings-of-his-love-af-2-nov-2017/) | November 2<sup>nd</sup>, 2017
@@ -226,15 +226,15 @@ Sigmund Freud | [Love can Heal the Pain of Humanity - D.V.](/contemporary-messag
 Aldous Huxley | [Break the Chains of Error - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/break-the-chains-of-error-af-19-nov-2017/) | November 19<sup>th</sup>, 2017
 Albert Einstein | [Mankind is upon a precipice - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/mankind-is-upon-a-precipice-af-19-nov-2017/) | November 19<sup>th</sup>, 2017
 Louis XIV | [So much needs to be said - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/so-much-needs-to-be-said-af-19-nov-2017/) | November 19<sup>th</sup>, 2017
-Mary | [Be a Channel Carrying The Waters Of Love - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/be-a-channel-carrying-love-af-21-nov-2017/) | November 21<sup>st<1/sup>  2017
-Seretta Kem | [Bring To The Chamber Your Sense Of Playfulness - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/bring-a-sense-of-playfulness-af-21-nov-2017/) | November 21<sup>st<1/sup>  2017
-Ludwig von Beethoven | [The Gift of Music Shall Be a Part of This Plan - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-gift-of-music-is-part-of-the-plan-af-21-nov-2017/) | November 21<sup>st<1/sup>  2017
-Frederic Chopin | [I wish to Bring my Music to Humanity - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/i-wish-to-bring-my-music-af-21-nov-2017/) | November 21<sup>st<1/sup>  2017
-Rock Hudson | [No Need to Be Ashamed of who you are - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/no-need-to-be-ashamed-af-nov-21-2017/) | November 21<sup>st<1/sup>  2017
-Dame Nellie Melba | [The World Needs You - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-world-needs-you-af-21-nov-2017/) | November 21<sup>st<1/sup>  2017
-Marilyn Munroe | [Boy do I have a story to tell! - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/boy-do-i-have-a-story-af-21-nov-2017/) | November 21<sup>st<1/sup>  2017
-Elizabeth Taylor | [We wish to share these truths in beautiful ways - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/we-wish-to-share-truths-af-21-nov-2017/) | November 21<sup>st<1/sup>  2017
-Richard Wagner | [Much Awaits your efforts - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/much-awaits-your-efforts-af-21-nov-2017/) | November 21<sup>st<1/sup>  2017
+Mary | [Be a Channel Carrying The Waters Of Love - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/be-a-channel-carrying-love-af-21-nov-2017/) | November 21<sup>st</sup>  2017
+Seretta Kem | [Bring To The Chamber Your Sense Of Playfulness - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/bring-a-sense-of-playfulness-af-21-nov-2017/) | November 21<sup>st</sup>  2017
+Ludwig von Beethoven | [The Gift of Music Shall Be a Part of This Plan - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-gift-of-music-is-part-of-the-plan-af-21-nov-2017/) | November 21<sup>st</sup>  2017
+Frederic Chopin | [I wish to Bring my Music to Humanity - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/i-wish-to-bring-my-music-af-21-nov-2017/) | November 21<sup>st</sup>  2017
+Rock Hudson | [No Need to Be Ashamed of who you are - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/no-need-to-be-ashamed-af-nov-21-2017/) | November 21<sup>st</sup>  2017
+Dame Nellie Melba | [The World Needs You - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-world-needs-you-af-21-nov-2017/) | November 21<sup>st</sup>  2017
+Marilyn Munroe | [Boy do I have a story to tell! - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/boy-do-i-have-a-story-af-21-nov-2017/) | November 21<sup>st</sup>  2017
+Elizabeth Taylor | [We wish to share these truths in beautiful ways - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/we-wish-to-share-truths-af-21-nov-2017/) | November 21<sup>st</sup>  2017
+Richard Wagner | [Much Awaits your efforts - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/much-awaits-your-efforts-af-21-nov-2017/) | November 21<sup>st</sup>  2017
 Augustine | [The seeds of your soul - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-seeds-of-your-souls-af-23-nov-2017/) | November 23rd, 2017
 Gene Kelly | [May Your Heart Sing - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/may-your-heart-sing-af-23-nov-2017) | November 23rd, 2017
 Mother Teresa | [The Possibilities of Service - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-possibilities-of-service-af-23-nov-2017/) | November 23rd, 2017
@@ -249,8 +249,8 @@ Augustine | [Letting go of expectations - D.V.](/contemporary-messages/messages-
 Goldie | [Be Full of Joy - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/be-full-of-joy-af-29-nov-2017/) | November 29<sup>th</sup>, 2017
 John the Beloved | [Building Bridges of Love - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/building-the-network-of-love-af-29-nov-2017/) | November 29<sup>th</sup>, 2017
 Faith | [Trust in the wisdom of your souls - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/trust-in-the-wisdom-of-your-souls-af-30-nov-2017) | November 30<sup>th</sup>, 2017
-Jesus | [We are bonded eternally in this Love - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/we-are-bonded-af-1-dec-2017/) | December 1<sup>st<1/sup>  2017
-Isaiah | [God will bring forth new light into this world - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/god-will-bring-forth-new-light-af-1-dec-2017) | December 1<sup>st<1/sup>  2017
+Jesus | [We are bonded eternally in this Love - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/we-are-bonded-af-1-dec-2017/) | December 1<sup>st</sup>  2017
+Isaiah | [God will bring forth new light into this world - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/god-will-bring-forth-new-light-af-1-dec-2017) | December 1<sup>st</sup>  2017
 Seretta Kem | [Let Go of Intolerance - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/let-go-of-intolerance-af-2-dec-2017/) | December 2<sup>nd</sup>, 2017
 Thomas Aquinas | [A New Day Dawns - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/a-new-day-dawns-af-2-dec-2017/) | December 2<sup>nd</sup>, 2017
 Goldie | [Pixie Dust and Flowers - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/pixie-dust-and-flowers-af-3-dec-2017/) | December 3rd, 2017
@@ -293,7 +293,7 @@ Seretta Kem | [You Look to the Future - D.V.](/contemporary-messages/messages-so
 Martin Luther | [The Responsibility of Acting in Love Lies with You - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-responsibility-lies-with-you-af-18-dec-2017/) | December 18<sup>th</sup>, 2017
 Martha | [I Am Here to Help You - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/i-am-here-to-help-af-18-dec-2017/) | December 18<sup>th</sup>, 2017
 Seretta Kem | [Struggling With Evil - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/struggling-with-evil-af-23-dec-2017/) | December 23rd, 2017
-Goldie | [Dance to the Music of God’s Love](/contemporary-messages/messages-sorted-year/messages-2017/dance-to-the-music-af-31-dec-2017/) | December 31<sup>st<1/sup>  2017
-Samuel | [New Year’s Message](/contemporary-messages/messages-sorted-year/messages-2017/new-years-message-af-31-dec-2017/) | December 31<sup>st<1/sup>  2019
+Goldie | [Dance to the Music of God’s Love](/contemporary-messages/messages-sorted-year/messages-2017/dance-to-the-music-af-31-dec-2017/) | December 31<sup>st</sup>  2017
+Samuel | [New Year’s Message](/contemporary-messages/messages-sorted-year/messages-2017/new-years-message-af-31-dec-2017/) | December 31<sup>st</sup>  2019
   
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2017/), or to [contemporary messages by year](/contemporary-messages/#a).*
