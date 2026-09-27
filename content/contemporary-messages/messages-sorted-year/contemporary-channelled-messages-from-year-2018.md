@@ -99,10 +99,10 @@ Seretta Kem | [Trance Mediumship Compared With Physical Mediumship - D.V.](/cont
 Jesus | [Help Others Find the Truth of the Father’s Love](/contemporary-messages/messages-sorted-year/messages-2018/help-others-find-the-fathers-love-af-30-mar-2018/) | March 30<sup>th</sup>, 2018
 Jesus | [Jesus Brings a Blessing to F.U.S.C.](/contemporary-messages/messages-sorted-year/messages-2018/jesus-brings-a-blessing-af-1-apr-2018/) | April 1<sup>st</sup>, 2018
 Augustine | [Put Your Focus on Prayer for the Divine Love - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/put-your-focus-on-prayer-af-1-apr-2018) | April 1<sup>st</sup>, 2018
-Seretta Kem | [Guidance for Attaining the Gift of Direct Voice - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/guidance-for-attaining-direct-voice-af-15-apr-2018/) | April 15<sup>th</sup>, 2018
 Luke | [A Talk on the Sins of the Parents](/contemporary-messages/messages-sorted-year/messages-2018/the-sins-of-the-parents-af-4-apr-2018/) | April 4<sup>th</sup>, 2018
 Jesus | [God is Creating Sanctuaries of Light in Your World](/contemporary-messages/messages-sorted-year/messages-2018/god-is-creating-sanctuaries-af-6-apr-2018/) | April 6<sup>th</sup>, 2018
-Jesus | [Jesus comments on mediumistic experiences](/contemporary-messages/messages-sorted-year/messages-2018/prayer-for-divine-love-brings-jesus-af-11-april-2018/) | April 11<sup>th</sup>, 2018  
+Jesus | [Jesus comments on mediumistic experiences](/contemporary-messages/messages-sorted-year/messages-2018/prayer-for-divine-love-brings-jesus-af-11-april-2018/) | April 11<sup>th</sup>, 2018
+Seretta Kem | [Guidance for Attaining the Gift of Direct Voice - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/guidance-for-attaining-direct-voice-af-15-apr-2018/) | April 15<sup>th</sup>, 2018
 Augustine | [The Power of Prayer to bring about Change](/contemporary-messages/messages-sorted-year/messages-2018/the-power-of-prayer-af-16-apr-2018/) | April 16<sup>th</sup>, 2018
 Augustine | [God Needs All Souls Awakened in Love](/contemporary-messages/messages-sorted-year/messages-2018/god-needs-all-souls-awakened-af-26-apr-2018/) | April 26<sup>th</sup>, 2018
 Augustine | [Prepared for the Changes that are Coming - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/be-prepared-for-the-changes-that-are-coming-af-28-apr-2018/) | April 28<sup>th</sup>, 2018
@@ -235,7 +235,7 @@ Jesus | [A Day to be With God - D.V.](/contemporary-messages/messages-sorted-yea
 Keea-atta Kem | [Compassion For Self and Others During Soul Awakening - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/compassion-for-self-and-others-mc-11-oct-2018/) | October 11<sup>th</sup>, 2018
 Guru Ram Das | [A Blessing of Healing - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/a-blessing-of-healing-mc-11-oct-2018/) | October 11<sup>th</sup>, 2018
 Thomas Aquinas | [Know God with the Soul Mind - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/know-god-with-the-soul-mind-af-13-oct-2018/) | October 13<sup>th</sup>, 2018
-Jesus | [Seek for the Highe<sup>st</sup>, the Source of All Blessings](/contemporary-messages/messages-sorted-year/messages-2018/seek-for-the-highest-af-14-oct-2018/) | October 14<sup>th</sup>, 2018
+Jesus | [Seek for the Highest, the Source of All Blessings](/contemporary-messages/messages-sorted-year/messages-2018/seek-for-the-highest-af-14-oct-2018/) | October 14<sup>th</sup>, 2018
 Seretta Kem | [Service Awakens the Soul - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/service-awakens-the-soul-mc-14-oct-2018/) | October 14<sup>th</sup>, 2018
 Seretta Kem | [Seek Harmony in All Things - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/seek-harmony-in-all-things-af-15-oct-2018/) | October 15<sup>th</sup>, 2018
 Matthew | [The Awakening and Liberation of the Soul Through Love Divine - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/the-awakening-and-liberation-of-soul-af-15-oct-2018/) | October 15<sup>th</sup>, 2018

@@ -24,7 +24,7 @@ Augustine | [The Power of Prayer](/contemporary-messages/messages-sorted-year/me
 Augustine | [Lesson on Soul-desire](/contemporary-messages/messages-sorted-year/messages-2016/lesson-on-soul-desire-af-24-jan-2016/) | 24<sup>th</sup> January, 2016
 Peter | [A Sanctuary of Light](/contemporary-messages/messages-sorted-year/messages-2016/a-sanctuary-of-light-af-25-jan-2016/) | 25<sup>th</sup> January, 2016
 John the Beloved | [Do not falter upon your path](/contemporary-messages/messages-sorted-year/messages-2016/do-not-falter-upon-your-path-af-26-jan-2016/) | 26<sup>th</sup> January, 2016
-St. Francis of Assisi | [Walk This World Guided By The Heavenly Father And His Angels](/contemporary-messages/messages-sorted-year/messages-2016/walk-this-world-guided-by-father-af-28-january-2016/) | January 28th, 2016 
+St. Francis of Assisi | [Walk This World Guided By The Heavenly Father And His Angels](/contemporary-messages/messages-sorted-year/messages-2016/walk-this-world-guided-by-father-af-28-january-2016/) | January 28<sup>th</sup>, 2016 
 Jesus | [Allow God to Touch those wounded and dark recesses within your souls](/contemporary-messages/messages-sorted-year/messages-2016/allow-god-to-touch-your-souls-af-2-feb-2016/) | 2<sup>nd</sup> February, 2016
 Confucius | [Remember to nourish your soul](/contemporary-messages/messages-sorted-year/messages-2016/remember-to-nourish-your-souls-af-10-feb-2016/) | 10<sup>th</sup> February, 2016
 Augustine | [Forge that path to your souls and thereby to God](/contemporary-messages/messages-sorted-year/messages-2016/forge-that-path-to-your-souls-af-15-feb-2016/) | 15<sup>th</sup> February, 2016
@@ -78,7 +78,7 @@ Aman | [Aman speaks about the Heaven on Earth he experienced](/contemporary-mess
 Augustine | [Staying in the Light](/contemporary-messages/messages-sorted-year/messages-2016/staying-in-the-light-af-30-may-2016/) | 30<sup>th</sup> May, 2016
 Confucius | [Be strong in the Light and withstand the Challenges](/contemporary-messages/messages-sorted-year/messages-2016/be-strong-in-the-light-af-4-jun-2016/) | 4<sup>th</sup> June, 2016
 John the Beloved | [Continue on This Path](/contemporary-messages/messages-sorted-year/messages-2016/continue-on-this-path-af-6-jun-2016/) | 6<sup>th</sup> June, 2016
-James | [Breaking free of the shell around your soul](/contemporary-messages/messages-sorted-year/messages-2016/breaking-free-of-the-shell-around-your-soul-af-13-june-2016/) | June 13th, 2016  
+James | [Breaking free of the shell around your soul](/contemporary-messages/messages-sorted-year/messages-2016/breaking-free-of-the-shell-around-your-soul-af-13-june-2016/) | June 13<sup>th</sup>, 2016  
 Jesus | [On Receiving Guidance](/contemporary-messages/messages-sorted-year/messages-2016/on-receiving-guidance-af-4-jul-2016/) | 4<sup>th</sup> July, 2016
 St Francis of Assisi | [Love is the true currency of life](/contemporary-messages/messages-sorted-year/messages-2016/love-is-the-true-currency-af-4-jul-2016/) | 4<sup>th</sup> July, 2016
 Augustine | [Choose the Mind or the Soul for your spiritual journey](/contemporary-messages/messages-sorted-year/messages-2016/the-mind-or-the-soul-af-10-july-2016/) | 10<sup>th</sup> July, 2016  

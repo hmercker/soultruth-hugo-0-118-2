@@ -95,6 +95,7 @@ Confucius | [Love Dissolves All Barriers](/contemporary-messages/messages-sorted
 Augustine | [How your gifts will emerge - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/how-your-gifts-will-emerge-af-20-aug-2017/) | August 20<sup>th</sup>, 2017
 Seretta Kem | [Many gifts will emerge - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/many-gifts-will-emerge-af-20-aug-2017/) | August 20<sup>th</sup>, 2017
 Matthew | [Only the Soul Can Know God’s Love](/contemporary-messages/messages-sorted-year/messages-2017/only-the-soul-can-know-gods-love-af-21-aug-2017/) | August 21<sup>st</sup>  2017
+Martin Luther | [Greetings from Martin Luther](/contemporary-messages/messages-sorted-year/messages-2017/en-2017-8-22-1-af-martin-luther/) | August 22<sup>nd</sup>, 2017
 Paul | [Restore the Harmony of Creation](/contemporary-messages/messages-sorted-year/messages-2017/restore-the-harmony-of-creation-af-12-sept-2017/) | September 10<sup>th</sup>, 2017  
 Seretta Kem | [The various purposes of the upcoming retreat - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-various-purposes-af-10-sep-2017/) | September 10<sup>th</sup>, 2017
 Augustine | [Invitation to Pray Daily With Lorraine To Receive Teachings](/contemporary-messages/messages-sorted-year/messages-2017/invitation-to-pray-daily-af-10-sep-2017/) | September 10<sup>th</sup>, 2017
@@ -125,7 +126,7 @@ Seretta Kem | [Preparations by spirit continue - D.V.](/contemporary-messages/me
 Augustine | [The Gifts of Knowing the Truth of God’s Love](/contemporary-messages/messages-sorted-year/messages-2017/the-gifts-of-knowing-the-truth-of-gods-love-af-25-sep-2017) | September 25<sup>th</sup>, 2017
 Jesus | [All Is Done In Love - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/all-is-done-in-love-af-25-sep-2017/) | September 25<sup>th</sup>, 2017
 Matthew | [The Awakening of the Soul Giving Rise to the Harmonization of the Material Mind and the Soul - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/the-awakening-of-the-soul-af-25-sept-2017/) | September 25<sup>th</sup>, 2017 
-Alec Gaunt | [This is all in God's Timing - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/this-is-all-in-gods-timing-af-26-sep-2017/) | September 26<sup>th</sup>, 2017
+Alec Gaunt | [The world needs more like you](/contemporary-messages/messages-sorted-year/messages-2017/this-is-all-in-gods-timing-af-26-sep-2017/) | September 26<sup>th</sup>, 2017
 Augustine | [The Power of Free Will](/contemporary-messages/messages-sorted-year/messages-2017/the-power-of-free-will-af-26-sep-2017/) | September 26<sup>th</sup>, 2017
 Joseph | [You Prepare a Place for Many](/contemporary-messages/messages-sorted-year/messages-2017/you-prepare-a-place-for-many-af-27-sep-2017/) | September 27<sup>th</sup>, 2017
 Mary | [God Uses You as a Channel](/contemporary-messages/messages-sorted-year/messages-2017/god-uses-you-as-a-channel-af-27-sep-2017/) | September 27<sup>th</sup>, 2017
