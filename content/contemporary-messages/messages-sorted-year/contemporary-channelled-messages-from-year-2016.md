@@ -15,6 +15,7 @@ Author | Title | Date of Message
 ---|---|---  
 Confucius | [Accepting the new awarenesses of an opening soul](/contemporary-messages/messages-sorted-year/messages-2016/accepting-the-new-awarenesses-of-an-opening-soul-af-4-jan-2016/) | 4<sup>th</sup> January, 2016 
 Seretta Kem | [On being a comforter in this world](/contemporary-messages/messages-sorted-year/messages-2016/on-being-a-comforter-in-this-world-af-4-jan-2016/) | 4<sup>th</sup> January, 2016
+James | [Know the Truth Through Awakening Your Soul Faculties](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-1-4-3-af-james/) | January 4<sup>th</sup>, 2016
 Jesus | [Encouragement from Jesus](/contemporary-messages/messages-sorted-year/messages-2016/encouragement-from-jesus-af-8-jan-2016/) | 8<sup>th</sup> January, 2016
 Faith | [The simple journey awaits](/contemporary-messages/messages-sorted-year/messages-2016/the-simple-journey-awaits-af-9-jan-2016/) | 9<sup>th</sup> January, 2016
 Matthew | [The year ahead](/contemporary-messages/messages-sorted-year/messages-2016/the-year-ahead-af-11-jan-2016/) | 11<sup>th</sup> January, 2016
@@ -45,6 +46,7 @@ John the Beloved | [On service to God](/contemporary-messages/messages-sorted-ye
 Luke | [The Power of Prayer](/contemporary-messages/messages-sorted-year/messages-2016/the-power-of-prayer-af-mar-19-2016/) | 19<sup>th</sup> March, 2016
 Augustine | [The awakening of the soul](/contemporary-messages/messages-sorted-year/messages-2016/the-awakening-of-the-soul-af-21-mar-2016/) | 21<sup>st</sup> March, 2016
 Augustine | [The Importance of Prayer](/contemporary-messages/messages-sorted-year/messages-2016/the-importance-of-prayer-af-25-mar-2016/) | 25<sup>th</sup> March, 2016
+Mary | [With Love at Easter](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-3-25-2-af-mary/) | March 25<sup>th</sup>, 2016
 Andrew | [Service - Helping Others](/contemporary-messages/messages-sorted-year/messages-2016/service-helping-others-af-march-26-2016/) | 26<sup>th</sup> March, 2016  
 Seretta Kem | [Mediumship, Communication and Rapport](/contemporary-messages/messages-sorted-year/messages-2016/mediumship-communication-and-rapport-af-27-mar-2016/) | 27<sup>th</sup> March, 2016
 Joseph | [Joseph on the Power of Commitment](/contemporary-messages/messages-sorted-year/messages-2016/joseph-power-commitment-af-march-28-2016/) | 28<sup>th</sup> March, 2016 
@@ -59,6 +61,7 @@ Mahatma Gandhi | [Talk on Compassion and Service](/contemporary-messages/message
 Andrew | [Be the Purveyors of Joy](/contemporary-messages/messages-sorted-year/messages-2016/be-purveyors-of-joy-af-12-apr-2016/) | 12<sup>th</sup> April, 2016
 Augustine | [Expectations of the Mind - letting go.](/contemporary-messages/messages-sorted-year/messages-2016/expectation-of-the-mind-releasing-control-af-march-31-2016/) | 12<sup>th</sup> April, 2016  
 Moses | [Lesson on the Falsity of the Vicarious Atonement and the uncertain nature of personal truth](/contemporary-messages/messages-sorted-year/messages-2016/lesson-on-the-falsity-of-the-vicarious-atonement-af-12-apr-2016/) | 12<sup>th</sup> April, 2016
+Keea Atta Kem | [Talk on Receiving Guidance](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-4-12-4-af-keea-atta-kem/) | April 12<sup>th</sup>, 2016
 Seretta Kem | [The Use of Healing and other Energies](/contemporary-messages/messages-sorted-year/messages-2016/use-healing-energies-af-13-april-2016/) | 13<sup>th</sup> April, 2016  
 John the Beloved | [Each day has the potential to bring light given the right intentions](/contemporary-messages/messages-sorted-year/messages-2016/each-day-has-potential-af-14-apr-2016/) | 14<sup>th</sup> April, 2016
 Francis of Assisi | [The simple way of Love](/contemporary-messages/messages-sorted-year/messages-2016/the-simple-way-of-love-af-17-apr-2016/) | 17<sup>th</sup> April, 2016
@@ -81,14 +84,31 @@ John the Beloved | [Continue on This Path](/contemporary-messages/messages-sorte
 James | [Breaking free of the shell around your soul](/contemporary-messages/messages-sorted-year/messages-2016/breaking-free-of-the-shell-around-your-soul-af-13-june-2016/) | June 13<sup>th</sup>, 2016  
 Jesus | [On Receiving Guidance](/contemporary-messages/messages-sorted-year/messages-2016/on-receiving-guidance-af-4-jul-2016/) | 4<sup>th</sup> July, 2016
 St Francis of Assisi | [Love is the true currency of life](/contemporary-messages/messages-sorted-year/messages-2016/love-is-the-true-currency-af-4-jul-2016/) | 4<sup>th</sup> July, 2016
-Augustine | [Choose the Mind or the Soul for your spiritual journey](/contemporary-messages/messages-sorted-year/messages-2016/the-mind-or-the-soul-af-10-july-2016/) | 10<sup>th</sup> July, 2016  
-Seretta Kem | [Expiation and Purification of the Soul.](/contemporary-messages/messages-sorted-year/messages-2016/expiation-and-purification-of-the-soul-af-13-july-2016/) | 13<sup>th</sup> July, 2016  
+Augustine | [Choose the Mind or the Soul for your spiritual journey](/contemporary-messages/messages-sorted-year/messages-2016/the-mind-or-the-soul-af-10-july-2016/) | 10<sup>th</sup> July, 2016
+Seretta Kem | [Expiation and Purification of the Soul.](/contemporary-messages/messages-sorted-year/messages-2016/expiation-and-purification-of-the-soul-af-13-july-2016/) | 13<sup>th</sup> July, 2016
+Martin Luther | [Pursuit of Truth](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-7-18-1-af-martin-luther/) | July 18<sup>th</sup>, 2016
 Seretta Kem | [The Power of Prayers Multiplied](/contemporary-messages/messages-sorted-year/messages-2016/the-power-of-prayers-multiplied-af-13-july-2016/) | 25<sup>th</sup> July, 2016
+Confucius | [Be a Link in the Chain of God's Blessings to Others](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-7-27-1-af-confucius/) | July 27<sup>th</sup>, 2016
+Alec Gaunt | [Your Obstacles strengthen you in the Light ](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-8-11-1-af-alec-gaunt/) | August 11<sup>th</sup>, 2016
+Alec Gaunt | [The Reluctance to step fully into the Light](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-8-15-1-af-alec-gaunt/) | August 15<sup>th</sup>, 2016
 James | [Express the Potentials of your awakening Souls](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-8-16-1-af-james/) | August 16<sup>th</sup>, 2016
 James Padgett | [Each of you experiences God and Truth in a unique way](/contemporary-messages/messages-sorted-year/messages-2016/each-of-you-experiences-god-and-truth-uniquely-af-17-aug-2016/) | 17<sup>th</sup> August, 2016
 Matthew | [The difference between mind and soul](/contemporary-messages/messages-sorted-year/messages-2016/difference-between-soul-and-mind-af-25-aug-2016/) | 25<sup>th</sup> August, 2016
 Seretta Kem | [Group Prayer Multiplies Blessings](/contemporary-messages/messages-sorted-year/messages-2016/group-prayer-multiplies-blessings-af-1-sep-2016/) | 1<sup>st</sup> September, 2016
 Augustine | [Natural Love and Divine Love](/contemporary-messages/messages-sorted-year/messages-2016/natural-love-and-divine-love-af-2-sept-2016/) | 2<sup>nd</sup> September, 2016
+Confucius | [God has lit a Spark within you](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-2-2-af-confucius/) | September 2<sup>nd</sup>, 2016
+Jesus | [I am your Brother](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-2-3-af-jesus/) | September 2<sup>nd</sup>, 2016
+James | [Pray for Mankind](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-3-1-af-james/) | September 3<sup>rd</sup>, 2016
+Mary | [Love brings Resolution to Disturbances](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-3-2-af-mary/) | September 3<sup>rd</sup>, 2016
+Augustine | [Continue in your Service](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-4-1-af-augustine/) | September 4<sup>th</sup>, 2016
+John the Beloved | [God’s Love is the Key](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-4-2-af-john-the-beloved/) | September 4<sup>th</sup>, 2016
+Andrew | [Be secure upon the Path](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-5-1-af-andrew/) | September 5<sup>th</sup>, 2016
+Joseph | [Be with God](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-6-1-af-joseph/) | September 6<sup>th</sup>, 2016
+Mary | [You will be healed](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-6-2-af-mary/) | September 6<sup>th</sup>, 2016
+Confucius | [You are cradled in His Care](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-7-1-af-confucius/) | September 7<sup>th</sup>, 2016
+Jesus | [You are my Disciple here](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-8-1-af-jesus/) | September 8<sup>th</sup>, 2016
+Andrew | [Put away your Shield and Armour and lead with Love](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-9-1-af-andrew/) | September 9<sup>th</sup>, 2016
+Francis of Assisi | [Feeding the Soul](/contemporary-messages/messages-sorted-year/messages-2016/en-2016-9-9-2-af-francis-of-assisi/) | September 9<sup>th</sup>, 2016
 Augustine | [Divine Love will change the world, starting with you](/contemporary-messages/messages-sorted-year/messages-2016/divine-love-will-change-the-world-af-10-sept-2016/) | 10<sup>th</sup> September, 2016
 Andrew | [You have joined a network of Light](/contemporary-messages/messages-sorted-year/messages-2016/you-have-joined-a-network-of-light-af-10-sept-2016/) | 10<sup>th</sup> September, 2016
 Francis | [Many Are with You in Your Efforts](/contemporary-messages/messages-sorted-year/messages-2016/many-are-with-you-in-your-efforts-af-11-sept-2016/) | 11<sup>th</sup> September, 2016

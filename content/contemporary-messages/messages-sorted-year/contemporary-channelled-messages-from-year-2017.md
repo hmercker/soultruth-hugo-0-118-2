@@ -32,7 +32,9 @@ Aekarius | [The Power of Astronomy and Astrology is Limited](/contemporary-messa
 James | [Release self-will and embrace the perfect Will of God](/contemporary-messages/messages-sorted-year/messages-2017/release-self-will-af-27-mar-2017/) | 27<sup>th</sup> March, 2017 
 Jesus | [Help Others Find the Truth of the Father’s Love](/contemporary-messages/messages-sorted-year/messages-2017/en-2017-3-30-1-af-jesus/) | March 30<sup>th</sup>, 2017
 James | [Faculties of the Soul Compared to a Camera Lens](/contemporary-messages/messages-sorted-year/messages-2017/faculties-of-the-soul-compared-to-a-camera-lens-af-10-apr-2017/) | April 10<sup>th</sup>, 2017
+Confucius | [You Will Know When God Places a Soul Upon Your Path](/contemporary-messages/messages-sorted-year/messages-2017/en-2017-4-10-2-af-confucius/) | April 10<sup>th</sup>, 2017
 Augustine | [Choose to Embrace God’s Will - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/choose-to-embrace-gods-will-af-20-april-2017/) | April 20<sup>th</sup>, 2017
+Luke | [Lambs of God](/contemporary-messages/messages-sorted-year/messages-2017/en-2017-5-8-1-af-luke/) | May 8<sup>th</sup>, 2017
 Jesus | [Jesus speaks of the Pentecost](/contemporary-messages/messages-sorted-year/messages-2017/jesus-speaks-of-the-pentecost-af-11-may-2017/) | May 11<sup>th</sup>, 2017  
 Paramhansa Yogananda | [Accept the Diversity that God Created](/contemporary-messages/messages-sorted-year/messages-2017/accept-the-diversity-that-god-created-af-13-may-2017/) | May 13<sup>th</sup>, 2017  
 St. Francis | [The Beautiful Garden of Gods Love](/contemporary-messages/messages-sorted-year/messages-2017/the-beautiful-garden-of-gods-love-af-13-may-2017/) | May 13<sup>th</sup>, 2017 
@@ -48,6 +50,7 @@ Icarious | [Come to Know Your Own Soul](/contemporary-messages/messages-sorted-y
 Andrew | [Allow God to use you as His Channel of Love](/contemporary-messages/messages-sorted-year/messages-2017/allow-god-to-use-you-af-22-may-2017/) | May 22<sup>nd</sup>, 2017
 Seretta Kem | [Preparations for Direct Voice - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/preparations-for-direct-voice-af-25-may-2017) | May 25<sup>th</sup>, 2017
 Seretta Kem | [Direct Voice Guidance continued - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/direct-voice-guidance-continued-af-26-may-2017/) | May 26<sup>th</sup>, 2017
+Jesus | [God’s Blessing Through Jesus](/contemporary-messages/messages-sorted-year/messages-2017/en-2017-6-4-1-af-jesus/) | June 4<sup>th</sup>, 2017
 Stephen | [Pray for Love; Blossom in Love - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/pray-for-love-blossom-in-love-af-5-jun-2017/) | June 5<sup>th</sup>, 2017
 Seretta Kem | [You must be the rock of comfort in the coming times - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/you-must-be-the-rock-of-comfort-af-6-jun-2017/) | June 6<sup>th</sup>, 2017
 Augustine | [Release of Soul Wounds is A Free Will Choice - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/release-of-soul-wounds-is-a-freewill-choice-af-8-june-2017/) | June 8<sup>th</sup>, 2017 
@@ -71,6 +74,7 @@ Seretta Kem | [Encouragement and Guidance - a Blueprint for Change - D.V.](/cont
 Emi & Martin Luther | [Courage](/contemporary-messages/messages-sorted-year/messages-2017/en-2017-7-13-1-hm-emi-martin-luther/) | July 13<sup>th</sup>, 2017
 Seretta Kem | [You Are Jewels Beyond Price - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/you-are-jewels-beyond-price-af-16-jul-2017) | July 16<sup>th</sup>, 2017
 Keea Atta Kem and Goldie |[Guidance concerning your Guides - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/guidance-concerning-guides-af-16-jul-2017/) | July 16<sup>th</sup>, 2017
+Augustine | [Bring Your Soul into Alignment with God Through His Love](/contemporary-messages/messages-sorted-year/messages-2017/en-2017-7-17-1-af-augustine/) | July 17<sup>th</sup>, 2017
 Seretta Kem | [Confidentiality Guidance - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/confidentiality-guidance-af-22-jul-2017/) | July 22<sup>nd</sup>, 2017
 Andrew | [Much Awaits Your Soul Longings](/contemporary-messages/messages-sorted-year/messages-2017/much-awaits-your-soul-longings-af-24-jul-2017/) | July 24<sup>th</sup>, 2017
 Confucius | [Truth Comes Through the Soul](/contemporary-messages/messages-sorted-year/messages-2017/truth-comes-through-the-soul-af-29-jul-2017/) | July 29<sup>th</sup>, 2017
@@ -92,6 +96,8 @@ Lotus Blossom | [Personal for M - D.V.](/contemporary-messages/messages-sorted-y
 Confucius | [Confucius advises us to rest our minds - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/rest-your-minds-hem-12-aug-2017/) | August 12<sup>th</sup>, 2017
 Augustine | [Be Honest With Yourselves - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/be-honest-with-yourselves-af-13-aug-2017/) | August 13<sup>th</sup>, 2017
 Confucius | [Love Dissolves All Barriers](/contemporary-messages/messages-sorted-year/messages-2017/love-dissolves-all-barriers-af-17-aug-2017/) | August 17<sup>th</sup>, 2017
+Jesus | [The Coming Changes and Your Spiritual Preparation](/contemporary-messages/messages-sorted-year/messages-2017/en-2017-8-17-2-af-jesus/) | August 17<sup>th</sup>, 2017
+Martin Luther & Jesus  | [On the Name for the Divine Love Movement](/contemporary-messages/messages-sorted-year/messages-2017/en-2017-8-17-3-hm-martin-luther-jesus/) | August 17<sup>th</sup>, 2017
 Augustine | [How your gifts will emerge - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/how-your-gifts-will-emerge-af-20-aug-2017/) | August 20<sup>th</sup>, 2017
 Seretta Kem | [Many gifts will emerge - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/many-gifts-will-emerge-af-20-aug-2017/) | August 20<sup>th</sup>, 2017
 Matthew | [Only the Soul Can Know God’s Love](/contemporary-messages/messages-sorted-year/messages-2017/only-the-soul-can-know-gods-love-af-21-aug-2017/) | August 21<sup>st</sup>  2017
@@ -107,7 +113,8 @@ Confucius | [The Time Approaches](/contemporary-messages/messages-sorted-year/me
 Leytergus | [The Differences between the Sixth Sphere and the Celestial Spheres](/contemporary-messages/messages-sorted-year/messages-2017/difference-between-sixth-and-celestial-spheres-af-12-sep-2017/) | September 12<sup>th</sup>, 2017
 Goldie | [Together in the Joy of Love](/contemporary-messages/messages-sorted-year/messages-2017/in-the-joy-of-love-af-13-sep-2017/) | September 13<sup>th</sup>, 2017
 Keea Atta Kem | [Make Love Your Guiding Truth Through Earth Changes](/contemporary-messages/messages-sorted-year/messages-2017/make-love-your-guiding-truth-through-earth-changes-af-13-sept-2017/) | September 13<sup>th</sup>, 2017  
-Icarus | [The Soul Mind Should Complement The Material Mind](/contemporary-messages/messages-sorted-year/messages-2017/soul-mind-can-complement-material-mind-af-15-sept-2017/) | September 15<sup>th</sup>, 2017  
+Icarus | [The Soul Mind Should Complement The Material Mind](/contemporary-messages/messages-sorted-year/messages-2017/soul-mind-can-complement-material-mind-af-15-sept-2017/) | September 15<sup>th</sup>, 2017
+Yogananda | [Bring Awakening to other Parts of the World](/contemporary-messages/messages-sorted-year/messages-2017/en-2017-9-15-2-af-yogananda/) | September 15<sup>th</sup>, 2017
 Martin Luther | [What Brings Harmony in this World continued](/contemporary-messages/messages-sorted-year/messages-2017/what-brings-harmony-in-this-world-continued-af-16-sep-2017/) | September 16<sup>th</sup>, 2017
 Seretta Kem | [Much awaits you - D.V.](/contemporary-messages/messages-sorted-year/messages-2017/much-awaits-you-af-17-sep-2017/) | September 17<sup>th</sup>, 2017
 Helen Padgett | [Those Who Serve in Love Will Make Inroads into the World](/contemporary-messages/messages-sorted-year/messages-2017/those-who-serve-in-love-will-succeed-af-17-sep-2017/) | September 17<sup>th</sup>, 2017

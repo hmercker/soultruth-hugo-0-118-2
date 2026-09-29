@@ -1,0 +1,35 @@
+﻿---
+title: "God’s Love Will Strengthen and Guide You Forward"
+menu_title: ""
+description: "God’s Love Will Strengthen and Guide You Forward"
+date: 2026-09-29 00:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+
+# God’s Love Will Strengthen and Guide You Forward
+
+November 3<sup>rd</sup>, 2018
+
+Online Prayer Circles, Gibsons, BC, Canada
+
+Andrew received by Al Fike
+
+God bless you, I have come to teach you dear souls, I am Andrew. I have heard you speak and pray for changes in this world. As you are all well aware, change begins with each individual, each one who is a spark for the flames that will sweep your lands and bring renewed understanding and love. God tends to His beloveds, uplifts, comforts and pours His Blessing of Love within your souls. And in this, the flame within grows and the awakening of God’s Presence comes on the heels of His Touch. You may hope for change that comes with the exertion of your minds and your will. Humanity has done such for many, many millennia in their attempt to bring order and peace to your world. Yet you continue to be in a condition that lacks love to any great degree.
+
+Beloved souls, it is an act of faith to pray, to ask God to intervene in this world, to bring the blessings and the events forth on this planet so that the darkness is dissipated and love is present. The power of your prayers, beloveds, is what will bring change. In so doing, you bring within yourself the deep effects of change to your souls. By receiving the gift of Divine Love, you begin a revolutionary process that sparks your life, all that you are, and brings a deep healing, a flow of wisdom and love that will inevitably bring change. As you grow in this love, as you are receptive to the changes within you, so invariably you must express change around you. It is inevitable. For when your soul is awakened and the perceptions of the soul, the understandings of the soul come to your conscious self, you cannot go on living in the grayness, in that place so dominated by the mind and the intellect.
+
+You must walk forth with love. Love for yourselves, love for your brothers and sisters in this world, love and joy. Joy to be alive, to have the gift of your life, and awakening to your true selves. In this, many gifts will flow, many insights will come, much wisdom. And in this way, you may affect change in the world, by your very expression, by your beautiful soul.
+
+So it must be beloveds. Each soul who commits to its own awakening, enlivening itself with love through this gift from God, will in themselves be an agent of change and bring greater light and harmony to this world. You cannot do it alone, but with God and with your continued support of one another, and your continued outreach to many others, you begin a chain reaction in this world that will have its impact. The analogy of the stone thrown in the pond, rippling out further and further, is quite appropriate in this regard. But that stone must have substance. It must come alive with the spiritual energies of God, awakening and growing within.
+
+Yes, alone and through your own resources you may accomplish things in this world. But to do so in alignment with God, with your souls awakened, the effects that you have will be exponential. The power of God to guide, to teach, to awaken, to flow through you, is greater than anything that a human being may produce in this world in terms of bringing greater harmony and light.
+
+Remember beloved souls, you are not alone. That in this world of yours, to reach out to another in love, to support one another in love, and to be in the flow of God’s Love, there will be great effects, wondrous opportunities, beautiful outcomes that can and will change the world. Each of you has this opportunity. Each of you is capable of much. Many things are hidden within you that you are not aware of as yet. Develop your souls, beloveds. Come to know who you are truly, and what is within you, this universe of the soul, created by God, encouraged by His Love, awakened in light.
+
+This path that I speak of is the path of personal awakening and service to humanity. It is the path of knowing God and being in communion with the Source of All. It requires your efforts and faith, your prayers and your receptivity to receiving that which is not within you but from outside of yourself and comes from God. In this way what is within you grows, awakens, transforms, and brings forth many gifts and abilities that are of the soul.
+
+Many of the great teachers of the past have come to know this truth, have come to be a channel of love and truth in your world. Were they unique? Yes, for each soul is unique, but they are your equals in many ways, in terms of the potentials and possibilities that are within you. They sought to express their gifts and their particular wisdom. So you too, beloveds, may express what is within you if you are open and willing and strong enough and clear enough within yourself and committed enough to your relationship with God, to walk forward in this way and be a beautiful channel of love in the world. It is your choice. It is also a beautiful discovery and adventure. As your soul awakens, so you will understand these words that I speak and you will know the glory and wonderment, the joy and beauty, of your true selves, awakened in love.
+
+God bless you beloved souls, I am Andrew. And I continue to witness the growing lights within you, to help to facilitate the awakening, to be your guide and protector, along with many other angels. I say to you, may God bless you deeply, beloveds. May you indeed know the truth and understand the truth about yourselves. It awaits, it awaits you. And God awaits your efforts to be close. God bless you. God bless you, beloved souls. Andrew loves you. God bless you.

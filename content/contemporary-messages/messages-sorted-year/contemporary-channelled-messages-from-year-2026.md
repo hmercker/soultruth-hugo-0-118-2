@@ -235,10 +235,14 @@ Goldie | [The Joy of Being Loved by God](/contemporary-messages/messages-sorted-
 Orion | [Wondrous Things Will Come About Once You Are Completely Attuned to the Will of God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-14-1-af-orion/) | August 14<sup>th</sup>, 2026
 Aaron | [The Key to Healing Humanity Is Divine Love and Not Human Endeavour](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-14-2-af-aaron/) | August 14<sup>th</sup>, 2026
 Jesus | [Beloved Instruments of God: Walking in Love and Service](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-16-1-af-jesus/) | August 16<sup>th</sup>, 2026
+Goldie | [Boundless Joy, Boundless Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-16-2-mc-goldie/) | August 16<sup>th</sup>, 2026
 Judas | [Free Will and God’s Will](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-17-1-jw-judas/) | August 17<sup>th</sup>, 2026
 Orion | [You Have Tremendous Support Behind You](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-18-1-af-orion/) | August 18<sup>th</sup>, 2026
 Mary | [Faith, Service and the Blessings of Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-18-2-af-mary/) | August 18<sup>th</sup>, 2026
 Matthew | [The Sweetness of Progression](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-20-1-em-matthew/) | August 20<sup>th</sup>, 2026
+Orion | [A Lesson on the Three Minds: Material, Spirit and Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-22-1-af-orion/) | August 22<sup>nd</sup>, 2026
 Care Darby Walsh | [A Prayer from Care](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-24-1-jw-care-darby-walsh/) | August 24<sup>th</sup>, 2026
+Judas | [Lifting everyone in the Spiritual Collective of Divine Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-4-1-jw-judas/) | September 4<sup>th</sup>, 2026
+Inayat Khan  | [Listen with your Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-7-1-jw-inayat-khan/) | September 7<sup>th</sup>, 2026
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2026/), or to [contemporary messages by year](/contemporary-messages/#a).*

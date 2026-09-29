@@ -161,6 +161,7 @@ Confucius | [A Special Blessing Given](/contemporary-messages/messages-sorted-ye
 Jesus | [You Are at a Turning Point in Your Service to God](/contemporary-messages/messages-sorted-year/messages-2018/you-are-at-a-turning-point-af-31-jul-2018/) | July 31<sup>st</sup>, 2018
 Andrew | [Every Soul is Unique and flowers in the Truth of God’s Love](/contemporary-messages/messages-sorted-year/messages-2018/every-soul-is-unique-af-1-aug-2018/) | August 1<sup>st</sup>, 2018
 Luke and Seretta Kem | [D.V. Guidance (Seretta Kem) and Being of Service (Luke)](/contemporary-messages/messages-sorted-year/messages-2018/guidance-and-being-of-service-af-5-aug-2018/) | August 5<sup>th</sup>, 2018
+Solomon | [Trust in the Wisdom of the Soul](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-8-6-1-af-solomon/) | August 6<sup>th</sup>, 2018
 Mark | [The Choice to Know God is Yours to Take](/contemporary-messages/messages-sorted-year/messages-2018/the-choice-to-know-god-is-yours-af-8-aug-2018/) | August 8<sup>th</sup>, 2018
 Seretta Kem | [Bring your desires to serve to God - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/bring-your-desires-to-serve-god-af-8-aug-2018/) | August 8<sup>th</sup>, 2018
 Alec Gaunt | [Personal  Guidance for Divine Love Mediumship Retreat](/contemporary-messages/messages-sorted-year/messages-2018/personal-guidance-for-mediumship-retreat-af-8-aug-2018/) | August 8<sup>th</sup>, 2018
@@ -272,6 +273,7 @@ Jesus | [You Follow the Path That I Followed - D.V.](/contemporary-messages/mess
 Seretta Kem | [Seretta Kem’s Loving Reflections - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/seretta-kem-loving-reflections-af-27-oct-2018/) | October 27<sup>th</sup>, 2018
 Paul of Tarsus | [The Road Less Travelled](/contemporary-messages/messages-sorted-year/messages-2018/the-road-less-travelled-af-29-oct-2018/) | October 29<sup>th</sup>, 2018
 Matthew | [Live The Truth of God’s Love](/contemporary-messages/messages-sorted-year/messages-2018/live-the-truth-of-gods-love-af-3-nov-2018/) | November 3<sup>rd</sup>, 2018
+Andrew | [God’s Love Will Strengthen and Guide You Forward](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-11-3-2-af-andrew/) | November 3<sup>rd</sup>, 2018
 Augustine | [God Invites You to Awaken in His Love](/contemporary-messages/messages-sorted-year/messages-2018/god-invites-you-to-awaken-af-4-nov-2018/) | November 4<sup>th</sup>, 2018
 Goldie | [Goldie’s Gift](/contemporary-messages/messages-sorted-year/messages-2018/goldies-gift-af-4-nov-2018/) | November 4<sup>th</sup>, 2018
 Keea-atta Kem | [God’s Love Will Nurture Your Soul](/contemporary-messages/messages-sorted-year/messages-2018/gods-love-will-nurture-your-soul-af-4-nov-2018/) | November 4<sup>th</sup>, 2018
@@ -282,11 +284,14 @@ John Wesley | [Speak up for Truth and Change](/contemporary-messages/messages-so
 Augustine | [The Struggle of the Material Mind to be in Harmony With Love](/contemporary-messages/messages-sorted-year/messages-2018/the-struggle-of-the-material-mind-af-6-nov-2018/) | November 6<sup>th</sup>, 2018
 Mark | [Divine Love is the Key to Eternal Transformation](/contemporary-messages/messages-sorted-year/messages-2018/divine-love-is-the-key-mc-8-nov-2018/) | November 8<sup>th</sup>, 2018
 Augustine | [Release the Wounds and Burdens of Your Soul to God](/contemporary-messages/messages-sorted-year/messages-2018/release-the-wounds-and-burdens-mc-11-nov-2018/) | November 11<sup>th</sup>, 2018
+Keea Atta Kem | [Praying for Divine Love is Simple, Profound and All Changing](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-11-12-1-mc-keea-atta-kem/) | November 12<sup>th</sup>, 2018
 Seretta Kem | [Open Your Minds and Souls to God’s Guidance](/contemporary-messages/messages-sorted-year/messages-2018/open-your-minds-and-souls-af-14-nov-2018/) | November 14<sup>th</sup>, 2018
 Seretta Kem | [Soul Bonds of Love](/contemporary-messages/messages-sorted-year/messages-2018/soul-bonds-of-love-mc-14-nov-2018/) | November 14<sup>th</sup>, 2018
 Confucius | [Have Faith That Your Soul Awakens](/contemporary-messages/messages-sorted-year/messages-2018/have-faith-that-your-soul-awakens-af-15-nov-2018/) | November 15<sup>th</sup>, 2018
 Jams Reid | [We Work Together in Service to God](/contemporary-messages/messages-sorted-year/messages-2018/we-work-together-in-service-to-god-af-15-nov-2018/) | November 15<sup>th</sup>, 2018
+Goldie | [Great Love and Great Joy](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-11-17-1-mc-goldie/) | November 17<sup>th</sup>, 2018
 Michael Collier | [How to Bring the Truth to New Souls](/contemporary-messages/messages-sorted-year/messages-2018/how-to-bring-the-truth-to-new-souls-af-18-dec-2018/) | November 18<sup>th</sup>, 2018
+Mary | [Draw Hope as you begin to awaken](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-11-18-2-mc-mary/) | November 18<sup>th</sup>, 2018
 Andrew | [The Universe needs Variety](/contemporary-messages/messages-sorted-year/messages-2018/the-universe-needs-variety-af-19-nov-2018/) | November 19<sup>th</sup>, 2018
 Confucius | [Al & Jimbeau visit a Healer](/contemporary-messages/messages-sorted-year/messages-2018/visit-to-a-healer-af-20-nov-2018/) | November 20<sup>th</sup>, 2018
 Matthew | [Rest and Pray to Replenish Yourself](/contemporary-messages/messages-sorted-year/messages-2018/rest-and-pray-to-replenish-yourself-af-20-nov-2018/) | November 20<sup>th</sup>, 2018
@@ -305,10 +310,16 @@ Seretta Kem | [A Portal of Light is Established in Fitzroy Falls](/contemporary-
 Augustine | [All Truth Comes From the Soul](/contemporary-messages/messages-sorted-year/messages-2018/all-truth-comes-from-the-soul-af-28-nov-2018/) | November 28<sup>th</sup>, 2018
 Augustine | [Challenging Earth Changes Bring Greater Light and Harmony to Humanity](/contemporary-messages/messages-sorted-year/messages-2018/challenging-earth-changes-bring-greater-light-and-harmony-af-29-nov-2018/) | November 29<sup>th</sup>, 2018  
 Luke | [The Importance of Circles of Light](/contemporary-messages/messages-sorted-year/messages-2018/the-importance-of-circles-of-light-af-29-nov-2018/) | November 29<sup>th</sup>, 2018
+Abdullah Latif | [The power of prayer.](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-11-29-3-af-abdullah-latif/) | November 29<sup>th</sup>, 2018
 Andrew | [Still Time to Awaken Your souls Through God’s Love](/contemporary-messages/messages-sorted-year/messages-2018/still-time-to-awaken-your-souls-af-1-dec-2018/) | December 1<sup>st</sup>, 2018
 Augustine | [Discourse on Truth - Part 2](/contemporary-messages/messages-sorted-year/messages-2018/discourse-on-truth-part-2-af-2-dec-2018/) | December 2<sup>nd</sup>, 2018
+Keea Atta Kem | [Change is the One Constant in Life’s Experience](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-12-6-1-mc-keea-atta-kem/) | December 6<sup>th</sup>, 2018
 Seretta Kem | [You Continue to Build the Lattice of Light in Your World](/contemporary-messages/messages-sorted-year/messages-2018/you-continue-to-build-a-lattice-of-light-af-9-dec-2018/) | December 9<sup>th</sup>, 2018
+Confucius | [Prepare yourself for the times ahead.](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-12-16-1-af-confucius/) | December 16<sup>th</sup>, 2018
+Seretta Kem | [Earth Changes - What Comes Will Test Your Mettle and Reveal to Yourself the Power of Your Own Souls](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-12-16-2-af-seretta-kem/) | December 16<sup>th</sup>, 2018
 Mary | [Many believe that their Mind brings Soul Consciousness](/contemporary-messages/messages-sorted-year/messages-2018/many-believe-that-their-mind-brings-soul-conciousness-af-17-dec-2018/) | December 17<sup>th</sup>, 2018
+Augustine | [God Awaits Your Choice](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-12-17-2-af-augustine/) | December 17<sup>th</sup>, 2018
+Seretta Kem | [Meet The Coming Changes In The world With Prayer](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-12-30-1-af-seretta-kem/) | December 30<sup>th</sup>, 2018
 Keea Atta Kem | [The Lattice of Light is a Magnificent Support For Spiritual Growth](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-12-30-4-mc-keea-atta-kem/) | December 30<sup>th</sup>, 2018
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2018/), or to [contemporary messages by year](/contemporary-messages/#a).*
