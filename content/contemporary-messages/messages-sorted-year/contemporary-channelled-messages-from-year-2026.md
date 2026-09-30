@@ -244,5 +244,8 @@ Orion | [A Lesson on the Three Minds: Material, Spirit and Soul](/contemporary-m
 Care Darby Walsh | [A Prayer from Care](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-24-1-jw-care-darby-walsh/) | August 24<sup>th</sup>, 2026
 Judas | [Lifting everyone in the Spiritual Collective of Divine Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-4-1-jw-judas/) | September 4<sup>th</sup>, 2026
 Inayat Khan  | [Listen with your Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-7-1-jw-inayat-khan/) | September 7<sup>th</sup>, 2026
+Luke | [Healing](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-10-1-jw-luke/) | September 10<sup>th</sup>, 2026
+Arthur Conan Doyle | [Soul Detectives](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-13-1-jw-arthur-conan-doyle/) | September 13<sup>th</sup>, 2026
+George Vale Owen | [It is Time for the Spiritualist Churches to rise up in God’s Love ](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-14-1-jw-george-vale-owen/) | September 14<sup>th</sup>, 2026
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2026/), or to [contemporary messages by year](/contemporary-messages/#a).*
