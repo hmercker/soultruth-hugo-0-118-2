@@ -157,6 +157,7 @@ Seretta Kem | [Release Mind Patterns - D.V.](/contemporary-messages/messages-sor
 Jesus | [Birthday Blessing for Al](/contemporary-messages/messages-sorted-year/messages-2018/birthday-blessing-for-al-af-23-july-2018/) | July 23<sup>rd</sup>, 2018 
 Keea-atta Kem | [Loyalty to God and Your Soul - D.V.](/contemporary-messages/messages-sorted-year/messages-2018/loyalty-to-god-and-your-soul-mc-27-jul-2018/) | July 27<sup>th</sup>, 2018
 Keea-atta Kem | [Prayer and the Law of Activation](/contemporary-messages/messages-sorted-year/messages-2018/prayer-and-the-law-of-activation-af-30-jul-2018/) | July 30<sup>th</sup>, 2018
+Augustine | [The Awakening Soul](/contemporary-messages/messages-sorted-year/messages-2018/en-2018-7-30-2-mc-augustine/) | July 30<sup>th</sup>, 2018
 Confucius | [A Special Blessing Given](/contemporary-messages/messages-sorted-year/messages-2018/a-special-blessing-given-af-31-jul-2018/) | July 31<sup>st</sup>, 2018
 Jesus | [You Are at a Turning Point in Your Service to God](/contemporary-messages/messages-sorted-year/messages-2018/you-are-at-a-turning-point-af-31-jul-2018/) | July 31<sup>st</sup>, 2018
 Andrew | [Every Soul is Unique and flowers in the Truth of God’s Love](/contemporary-messages/messages-sorted-year/messages-2018/every-soul-is-unique-af-1-aug-2018/) | August 1<sup>st</sup>, 2018
@@ -188,9 +189,9 @@ Jesus | [Love is the Great Liberator](/contemporary-messages/messages-sorted-yea
 Keea-atta Kem | [Circles of Light](/contemporary-messages/messages-sorted-year/messages-2018/circles-of-light-af-30-aug-2018/) | August 30<sup>th</sup>, 2018
 Augustine | [The Awakening of Your Souls Brings The Message of Truth To Humanity](/contemporary-messages/messages-sorted-year/messages-2018/the-awakening-of-your-souls-af-1-sep-2018/) | September 1<sup>st</sup>, 2018
 Seretta Kem | [You Are Ready to Step Forward](/contemporary-messages/messages-sorted-year/messages-2018/you-are-ready-to-step-forward-af-1-sep-2018/) | September 1<sup>st</sup>, 2018
-Jesus | [Bring the light to the world](/contemporary-messages/messages-sorted-year/messages-2018/bring-the-light-to-the-world-js-1-sep-2018/) | September 1<sup>st</sup>, 2018
+Jesus | [Bring the Light to the World](/contemporary-messages/messages-sorted-year/messages-2018/bring-the-light-to-the-world-js-1-sep-2018/) | September 1<sup>st</sup>, 2018
 Goldie | [Be Cheerful on the last Day of the Retreat](/contemporary-messages/messages-sorted-year/messages-2018/be-cheerful-on-the-last-day-of-the-retreat-js-1-sep-2018/) | September 1<sup>st</sup>, 2018
-John the Baptist | [Encouragement to teach truth](/contemporary-messages/messages-sorted-year/messages-2018/encouragement-to-teach-truth-js-1-sep-2018) | September 1<sup>st</sup>, 2018
+John the Baptist | [Encouragement to teach Truth](/contemporary-messages/messages-sorted-year/messages-2018/encouragement-to-teach-truth-js-1-sep-2018) | September 1<sup>st</sup>, 2018
 Andrew | [Seek to Know God’s Love](/contemporary-messages/messages-sorted-year/messages-2018/seek-to-know-gods-love-af-2-sep-2018/) | September 2<sup>nd</sup>, 2018
 Augustine | [The Hierarchy of Heaven](/contemporary-messages/messages-sorted-year/messages-2018/the-heirarchy-of-heaven-8-sep-2018/) | September 8<sup>th</sup>, 2018
 Augustine | [Awaken Your Gifts Through Love](/contemporary-messages/messages-sorted-year/messages-2018/awaken-your-gifts-through-love-af-12-sep-2018/) | September 12<sup>th</sup>, 2018

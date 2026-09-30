@@ -1,14 +1,14 @@
 ﻿---
-title: "Prepare yourself for the times ahead."
+title: "Prepare yourself for the Times ahead"
 menu_title: ""
-description: "Prepare yourself for the times ahead."
+description: "Prepare yourself for the Times ahead"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True
 weight:
 ---
 
-# Prepare yourself for the times ahead.
+# Prepare yourself for the Times ahead
 
 December 16<sup>th</sup>, 2018
 

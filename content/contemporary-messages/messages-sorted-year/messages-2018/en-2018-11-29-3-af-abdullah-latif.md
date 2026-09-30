@@ -1,14 +1,14 @@
 ﻿---
-title: "The power of prayer."
+title: "The Power of Prayer"
 menu_title: ""
-description: "The power of prayer."
+description: "The Power of Prayer"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True
 weight:
 ---
 
-# The power of prayer.
+# The Power of Prayer
 
 November 29<sup>th</sup>, 2018
 
