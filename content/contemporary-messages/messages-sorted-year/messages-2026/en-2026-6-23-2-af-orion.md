@@ -1,0 +1,33 @@
+﻿---
+title: "Seek the Reality of God"
+menu_title: ""
+description: "Seek the Reality of God"
+date: 2026-10-01 00:00:00+00:00
+draft: False
+hidden: True
+weight:
+---
+
+# Seek the Reality of God
+
+June 23<sup>rd</sup>, 2026
+
+Direct Voice, Sechelt, BC, Canada
+
+Orion received by Al Fike
+
+God bless you, my friends. It is Orion. Each of you is eager to experience the subtleties and complexities of the Divine creation and the Divine Being. Each of you is eager to understand your own being and all that that entails. As you continue to grow within your soul, thereby exciting and developing the faculties within it, the capacity to understand these things of the universe will continue to expand and deepen, so that your consciousness will not be stuck within the limitations of the material. It will expand out into many other realms and realities that are part of the creation of God.
+
+Yet, it requires your effort. It is like any spiritual sojourn. Without your full commitment and application of truths understood, the opening up of your consciousness is not available to you. Until you are willing to be a part of that soul consciousness that is within you to such a degree that the awakening will be full fledged, the levels of reality, the levels of truth and the levels of being that are possible to experience and know will not come to be. Indeed, in this world of yours, it is hard work. It is often difficult to get beyond that earthly plane, that earthly condition and that material mind. Yet, as you continue to grow within your soul and the consciousness of soul, the consciousness of God, then you will have greater access to all of these things, the experiences of the soul and the reality of the soul.
+
+It will not come as a startling thing, something that will uproot you from your steadiness of being, but it will come in drips and drabs, bits and pieces, a little bit here, a little bit there, experience here and experience there. Yet, in time, you will be able to knit together all of these experiences and make it your reality. As I have said, it will not disturb you from moving through the world and being a part of this world, but rather it will inform you in terms of the complexities and layers that are part of God's creation. You will find yourself very much engaged in the world, for in the world will be the world of God, the world of your own soul, the world of light, the world of truth, the world of peace and the world of love. All of these things are truly a part of God's creation, are they not? You will find yourself engaged in many ways on many levels with God's creation. You will not be distracted nor confused, for in the world of God and upon the progression, the journey that is your soul's awakening, it comes at the pace and way that is in harmony with you and in harmony with what you desire.
+
+God respects every soul and what they desire to have, to be and to experience. It cannot be any other way. This is part of the Laws of Communication, Rapport and soul development. Indeed, there will be some surprises, some delights, even some horror in terms of what you will perceive regarding the conditions of the world, but would you not rather have the excitement and the engagement that comes with the awakened soul and the perceptions of the awakened soul? For so many now in the world are asleep. They have no true engagement with life. It is a mask, a veil, something contrived by humanity, the reality contrived that comes from your collective thought and consciousness.
+
+Yet, beyond that is so much more, so much that can be experienced and known. This will bring you joy. This will truly enlighten you, awaken you and uplift you. This is what is meant for each one of you. As you continue to grow in the Father's Love, you will find that this reality will emerge and that the levels and complexities of this reality will be understood, acknowledged and appreciated. For the soul desires to be in the reality of God's creation. The soul wants truth. The soul wants to live within the Truth of God's creation and so each of you has the opportunity to do so. What holds you back, my friends? Is it fear? Is it a lack of commitment or desire? I think within you, your soulful self, none of these things exist. Yet, within the mindful self, all of these things exist to some degree or another. It is for you to discern between what it is that your soul wants and is capable of experiencing and pulling into your consciousness, what it is that your mind wants, and how these two are often in conflict or diametrically opposed to one another.
+
+I urge you to continue to nurture the soul. Yes, we each must respect the material mind, or at least you on Earth need to. I do not have a material mind. I am all soul and soul mind. Yet, indeed, we must respect the process of this journey and be patient, willing, faithful, earnest and dedicated. You will get there, that place that I speak of, that is so exciting, so intricate and beautiful in its reality. It will come step by step, day by day, experience by experience, until you find yourself in a different world, a world governed by different laws, a world that is in harmony with God and a world which God wants humanity to discover and to live within. As you discover and ease within this world, you will be powerful teachers and examples of it. You will impart much to your brothers and sisters. There is much that you need to impart, for humanity is reluctant to take that leap of faith off that which they know so well into that that they do not know, but each soul is drawn to that place of unknown. Each soul wishes to truly be there, but the mind is predominant in your world and we have a great challenge here.
+
+Each of you is well aware of this, but you will find your way. It will come. Our hope is that it will come before you leave this planet, for the world does need its teachers, its examples, its lights, its channels of love, instruments of the Creator and friends of the angels, stellar friends and all. We will work together. We will find the ways and means of opening the doors of reality. It will come, as I say, step by step, but each of you is ready. Each of you can take that leap, will indeed find solid ground on the other side and be joyful and happy for the decision that you have made to be truly within the light of reality, God's creation of the real world and the real universe that awaits your engagement and inhabitation within it.
+
+God bless you, my friends. I am Orion. I love you so, my friends, intrepid travellers on the path of truth, of love, of reality. God bless you, my friends. God bless you.

@@ -112,9 +112,11 @@ Alec Gaunt | [Alec Gaunt Describes His Role in Creating Circles of Light and Exp
 Jesus | [Comes to Help Us to Acknowledge Our Calling](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-21-3-mc-jesus/) | March 21<sup>st</sup>, 2026
 Matthew | [Following Guidance to Come Together Makes for Great Possibilities](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-22-1-af-matthew/) | March 22<sup>nd</sup>, 2026
 Peter | [You Develop in the Ability to Express Soul Consciousness](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-22-2-mc-peter/) | March 22<sup>nd</sup>, 2026
+Jesus | [Be Instruments of Peace Through Divine Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-22-3-af-jesus/) | March 22<sup>nd</sup>, 2026
 Luke | [The Chrysalis](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-23-1-jw-luke/) | March 23<sup>rd</sup>, 2026
 Faith Nyquist | [Open Your Soul to Receive God’s Abundant Blessings](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-24-1-af-faith-nyquist/) | March 24<sup>th</sup>, 2026
 Orion | [Move Beyond the First Stage of Awakening and Lift Your Planet into Harmony](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-24-2-af-orion/) | March 24<sup>th</sup>, 2026
+Augustine | [In Accordance to Your Gifts You Will Receive the Support and Blessings of an Angel Friend with You](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-24-3-af-augustine/) | March 24<sup>th</sup>, 2026
 Christine & Jesus | [Becoming Instruments of Light in a Changing World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-27-1-af-christine-jesus/) | March 27<sup>th</sup>, 2026
 Orion | [The Nature of Reality](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-28-1-af-orion/) | March 28<sup>th</sup>, 2026
 Jesus | [The Time Is Now: Step Forward as a Light in the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-3-29-1-af-jesus/) | March 29<sup>th</sup>, 2026
@@ -134,6 +136,7 @@ Jesus | [Guided Meditation Followed by Blessing from Jesus](/contemporary-messag
 Luke | [The Universe is Contained in God's Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-12-3-mc-luke/) | April 12<sup>th</sup>, 2026
 Charlie Chaplin | [It is time now for us to collaborate](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-13-1-jw-charlie-chaplin/) | April 13<sup>th</sup>, 2026
 Andrew | [What Holds You Back from Fulfilling Your Soul's Purpose?](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-13-2-af-andrew/) | April 13<sup>th</sup>, 2026
+Moses | [A Lesson on Implementing the Will of God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-13-3-af-moses/) | April 13<sup>th</sup>, 2026
 Orion | [Orion Describes the Dimension Connecting All Souls in the Universe](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-14-1-af-orion/) | April 14<sup>th</sup>, 2026
 Ann Rollins | [Prayer, your Soul, and the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-15-1-jw-ann-rollins/) | April 15<sup>th</sup>, 2026
 Jesus | [Blessed Are Those Who Are Willing to Deliver the Word of God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-15-2-af-jesus/) | April 15<sup>th</sup>, 2026
@@ -147,12 +150,15 @@ Isaiah | [Choosing the Path of Divine Love and Soul Awakening](/contemporary-mes
 Yogananda | [A Change of Heart](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-25-1-jw-yogananda/) | April 25<sup>th</sup>, 2026
 Jesus | [Awaken, Receive and Become the Light](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-26-1-af-jesus/) | April 26<sup>th</sup>, 2026
 Keea Atta Kem | [Thoughts are Things: Be Intentional with Your Thinking](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-26-2-mc-keea-atta-kem/) | April 26<sup>th</sup>, 2026
+Judas | [The Power of Free Will to Reinforce or Counteract the Harmony of God's Universe](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-28-1-af-judas/) | April 28<sup>th</sup>, 2026
+Orion | [Persist in Reaching Those Who Are Lost in Distraction](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-4-28-2-af-orion/) | April 28<sup>th</sup>, 2026
 Christine | [Healing the World Through the Power and Simplicity of Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-1-1-af-christine/) | May 1<sup>st</sup>, 2026
 Hafiz | [Seven Grains of Truth](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-1-2-jw-hafiz/) | May 1<sup>st</sup>, 2026
 Orion | [Your Ability to Dispel The Darkness of This World is More Powerful Than You Think](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-2-1-af-orion/) | May 2<sup>nd</sup>, 2026
 Jesus | [The Door to God’s Love is Open to You](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-3-1-af-jesus/) | May 3<sup>rd</sup>, 2026
 Frederick Douglass | [Healing from Temporal and Spiritual Bondage](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-4-1-jw-frederick-douglass/) | May 4<sup>th</sup>, 2026
 John the Beloved | [Be an Island of Peace in a Troubled World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-5-1-af-john-the-beloved/) | May 5<sup>th</sup>, 2026
+Seretta Kem | [Allow All That You Are to Manifest in the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-5-2-af-seretta-kem/) | May 5<sup>th</sup>, 2026
 Keea Atta Kem & Augustine | [The Lattice of Light: Strengthening the Network of Divine Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-8-1-af-keea-atta-kem-augustine/) | May 8<sup>th</sup>, 2026
 Orion | [Orion Describes the Process of Receiving Divine Love on His Planet and Expresses Admiration for Our Tenacity](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-9-1-af-orion/) | May 9<sup>th</sup>, 2026
 Jesus | [Seek the Gift of Divine Love and Become a Light in the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-10-1-af-jesus/) | May 10<sup>th</sup>, 2026
@@ -170,6 +176,8 @@ Yogananda | [The Winged Joy](/contemporary-messages/messages-sorted-year/message
 Eileen Caddy | [The Deeper Meaning of Sanctuary](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-20-1-jw-eileen-caddy/) | May 20<sup>th</sup>, 2026
 Faith Nyquist | [The Unlimited Blessings of God’s Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-22-1-af-faith-nyquist/) | May 22<sup>nd</sup>, 2026
 Lotus Blossom | [Ask God to Show You Your Gifts](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-23-1-mc-lotus-blossom/) | May 23<sup>rd</sup>, 2026
+Keea Atta Kem | [How This Blessing of Love Creates Conscious Awareness of Your True Self](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-23-2-af-keea-atta-kem/) | May 23<sup>rd</sup>, 2026
+Mary | [God Never Intended For Suffering to Exist](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-23-3-af-mary/) | May 23<sup>rd</sup>, 2026
 Jesus | [The Pentecost is in The Works You May Accomplish: The Call to Be Disciples of Divine Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-24-1-af-jesus/) | May 24<sup>th</sup>, 2026
 Faith Nyquist | [What Is A Humble Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-24-2-mc-faith-nyquist/) | May 24<sup>th</sup>, 2026
 Lao Tzu | [A Single Step on the Endless Journey](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-25-1-jw-lao-tzu/) | May 25<sup>th</sup>, 2026
@@ -177,13 +185,19 @@ Andrew, Jesus & Mary | [Messages of Love, Guidance, and Companionship from Spiri
 Orion | [Encourages Us to Engage With the World and Confront Its Many Tests Head On](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-26-2-af-orion/) | May 26<sup>th</sup>, 2026
 Orion | [Soul Gifts Start As Small and Subtle Buds Before Blooming into Beautiful Flowers Unique to Each Individual](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-30-1-af-orion/) | May 30<sup>th</sup>, 2026
 Yogananda | [Allow Things of the Soul to be What Stimulates You](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-31-1-mc-yogananda/) | May 31<sup>st</sup>, 2026
+Mark | [Seek the Love of God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-31-2-af-mark/) | May 31<sup>st</sup>, 2026
+Percy Hayes | [The FUSC is a Refuge of Light](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-31-3-af-percy-hayes/) | May 31<sup>st</sup>, 2026
 Barbara Davies | [Being God’s Instruments of Love in the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-2-1-af-barbara-davies/) | June 2<sup>nd</sup>, 2026
 Orion | [Welcome All in Love and Use a Light Touch When Teaching Others This Truth](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-2-2-af-orion/) | June 2<sup>nd</sup>, 2026
+Jesus | [Each Soul Here Has the Light of God’s Love: Jesus Opens Johnson City Retreat](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-4-1-af-jesus/) | June 4<sup>th</sup>, 2026
 Lao Tzu | [Expectations are speculative, Faith is Certitude](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-5-1-jw-lao-tzu/) | June 5<sup>th</sup>, 2026
 Elijah | [The Time Comes When God’s Will Shall Be Done](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-5-2-af-elijah/) | June 5<sup>th</sup>, 2026
+Barbara Davies | [As You Awaken in Love and Act in Faith, the Path Forward Will Be Lit](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-6-1-af-barbara-davies/) | June 6<sup>th</sup>, 2026
+Confucius | [Your Journey Toward God and Soul is Amplified Through the Efforts of Your Celestial Friends](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-6-2-af-confucius/) | June 6<sup>th</sup>, 2026
 Judas | [God does the heavy Lifting](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-7-1-jw-judas/) | June 7<sup>th</sup>, 2026
 Seretta Kem | [The Law of Rapport and Communication and Preparing for Times Ahead](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-7-2-mc-seretta-kem/) | June 7<sup>th</sup>, 2026
 Mary | [Mary Tells Us in Time as the Love Takes Form in Our Soul Actions are Informed By Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-7-3-mc-mary/) | June 7<sup>th</sup>, 2026
+Andrew | [The Power of Love Bonds You as Brothers and Sisters on this Journey: Andrew Closes Johnson City Retreat](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-7-4-af-andrew/) | June 7<sup>th</sup>, 2026
 Elijah | [Be Flexible and Faithful as Necessary Change Comes to the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-8-1-af-elijah/) | June 8<sup>th</sup>, 2026
 Seretta Kem | [Beyond Earthly Life: God's Care for the Transitioned Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-12-1-mc-seretta-kem/) | June 12<sup>th</sup>, 2026
 Orion | [Acknowledge the Power of God’s Blessings Upon You](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-13-1-af-orion/) | June 13<sup>th</sup>, 2026
@@ -191,16 +205,19 @@ Jesus | [With Your Efforts and Commitments, God Will Bring to You the Hungering 
 Luke | [Seek From Your Soul to Know God's Truths](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-14-2-mc-luke/) | June 14<sup>th</sup>, 2026
 Lao Tzu | [The Way that is Spoken is not the Eternal Way](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-15-1-jw-lao-tzu/) | June 15<sup>th</sup>, 2026
 Orion | [Take the Leap and We Will Be Waiting for You on the Other Side](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-16-1-af-orion/) | June 16<sup>th</sup>, 2026
+Michael Collier | [Accept and Embrace the Coming Changes as God Restores Harmony to the Earth ](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-16-2-af-michael-collier/) | June 16<sup>th</sup>, 2026
 Barbara Davies | [Awaken the Soul to God’s Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-19-1-af-barbara-davies/) | June 19<sup>th</sup>, 2026
 Augustine | [This Truth Gives You the Opportunity to Change Your Perspective on Life](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-20-1-af-augustine/) | June 20<sup>th</sup>, 2026
 Jesus | [Prayer, Divine Love, and Being God’s Instruments in the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-21-1-af-jesus/) | June 21<sup>st</sup>, 2026
 Mary | [Acknowledges Fathers](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-21-2-mc-mary/) | June 21<sup>st</sup>, 2026
 Alexander the Pope | [All Things Given in Love are Blessed](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-22-1-jw-alexander-the-pope/) | June 22<sup>nd</sup>, 2026
 Mary & Jesus | [Mary Describes the Blessing of God’s Touch Upon Her, Jesus Blesses the Group](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-23-1-af-mary-jesus/) | June 23<sup>rd</sup>, 2026
+Orion | [Seek the Reality of God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-23-2-af-orion/) | June 23<sup>rd</sup>, 2026
 Jesus | [Receive the Abundant Gift of the Father’s Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-26-1-af-jesus/) | June 26<sup>th</sup>, 2026
 Orion | [The Transition from Material Mind to Soul Awakening Happens Gradually and is Beset by Many Challenges](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-27-1-af-orion/) | June 27<sup>th</sup>, 2026
 Copernicus & Jesus | [The Science of the Soul’s Awakening Through Divine Love & Blessing from Jesus](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-28-1-af-copernicus-jesus/) | June 28<sup>th</sup>, 2026
 Ann Rollins | [Engage Your Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-29-1-jw-ann-rollins/) | June 29<sup>th</sup>, 2026
+Alec Gaunt | [Overcoming Reluctance and Fear in Leadership and Service to God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-29-2-af-alec-gaunt/) | June 29<sup>th</sup>, 2026
 Faith Nyquist | [Prayer to God and Guidance on Serving as God’s Instrument](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-30-1-af-faith-nyquist/) | June 30<sup>th</sup>, 2026
 Orion | [Follow the Promptings of Your Soul to Seize Opportunities for Service](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-6-30-2-af-orion/) | June 30<sup>th</sup>, 2026
 Jesus | [Be a Channel for God in Every Way that is Possible](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-7-4-1-af-jesus/) | July 4<sup>th</sup>, 2026
