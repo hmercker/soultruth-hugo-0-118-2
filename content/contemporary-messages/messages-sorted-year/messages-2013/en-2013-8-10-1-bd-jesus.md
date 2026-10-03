@@ -1,14 +1,14 @@
 ﻿---
-title: "Your World needs you deerly"
+title: "Your World needs you dearly"
 menu_title: ""
-description: "Your World needs you deerly"
+description: "Your World needs you dearly"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True
 weight:
 ---
 
-# Your World needs you deerly
+# Your World needs you dearly
 
 August 10<sup>th</sup>, 2013
 

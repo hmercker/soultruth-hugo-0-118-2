@@ -12,7 +12,7 @@ weight:
 
 September 4<sup>th</sup>, 2026
 
-Online Circle of Light, Bassingham, UK
+Bassingham Retreat, Bassingham, UK
 
 Judas received by Jimbeau Walsh
 

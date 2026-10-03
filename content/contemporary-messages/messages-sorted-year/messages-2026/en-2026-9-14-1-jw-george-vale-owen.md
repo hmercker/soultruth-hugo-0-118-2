@@ -12,7 +12,7 @@ weight:
 
 September 14<sup>th</sup>, 2026
 
-Online Circle of Light, Wimbledon, London, UK
+Wimbledon Spiritualist Church Retreat, Wimbledon, London, UK
 
 George Vale Owen received by Jimbeau Walsh
 
@@ -20,7 +20,7 @@ It is I, George Vale Owen.
 
 Welcome to my home here when I visit, and I have visited many here. We welcome our friends new to this sanctuary who come on the path of Divine Love, a path that I not only am familiar with but a path that I am on, now an inhabitant of the celestial heavens. I am a transformed soul.
 
-In my writings, which many of you here are very familiar with, what I received was a soul’s journey through the spheres of spirit, what the environments consisted of, what souls were engaged in on their journey, and the Master coming down from his kingdom with a host of angels to bless a gathering, where individuals were being lifted into a higher sphere, not only because of their works, but because of their closeness to God.
+In [my writings](https://new-birth.net/other-stuff/books-we-love/books-on-life-after-death/), which many of you here are very familiar with, what I received was a soul’s journey through the spheres of spirit, what the environments consisted of, what souls were engaged in on their journey, and the Master coming down from his kingdom with a host of angels to bless a gathering, where individuals were being lifted into a higher sphere, not only because of their works, but because of their closeness to God.
 
 God's love is the great leaven that allows the bread to rise. When one prays from the soul with or without words, our loving Creator hears the intention and responds through His holy spirit by placing His love, His grace, His light into the recipient. It is time now for the churches in the spiritualist tradition to rise up, to bring God-centeredness to the fore and to continue to demonstrate and manifest spirit so that the many may know the spirit world is a reality. But for you who are the practitioners, the guardians, and the pastors of spiritualism, it is time to very much put the soul in ascendancy so that souls can be touched by the grace, by the love of God.
 

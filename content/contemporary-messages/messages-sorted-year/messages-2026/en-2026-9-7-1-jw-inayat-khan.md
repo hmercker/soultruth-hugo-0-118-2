@@ -12,7 +12,7 @@ weight:
 
 September 7<sup>th</sup>, 2026
 
-Online Circle of Light, Bassingham, UK
+Bassingham Retreat, Bassingham, UK
 
 Inayat Khan received by Jimbeau Walsh
 

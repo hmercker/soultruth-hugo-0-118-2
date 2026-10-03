@@ -56,7 +56,7 @@ Mary | [Many Opportunities and Experiences to come](/contemporary-messages/messa
 Confucius | [Have Compassion for those who are in a negative Condition](/contemporary-messages/messages-sorted-year/messages-2013/en-2013-7-13-1-af-confucius/) | July 13<sup>th</sup>, 2013
 Goldie | [Know that God loves you so very much](/contemporary-messages/messages-sorted-year/messages-2013/en-2013-7-13-2-af-goldie/) | July 13<sup>th</sup>, 2013
 Mary | [The Power of Divine Love is greater than any Blessing](/contemporary-messages/messages-sorted-year/messages-2013/en-2013-7-13-3-af-mary/) | July 13<sup>th</sup>, 2013
-Jesus | [Your World needs you deerly](/contemporary-messages/messages-sorted-year/messages-2013/en-2013-8-10-1-bd-jesus/) | August 10<sup>th</sup>, 2013
+Jesus | [Your World needs you dearly](/contemporary-messages/messages-sorted-year/messages-2013/en-2013-8-10-1-bd-jesus/) | August 10<sup>th</sup>, 2013
 Augustine | [All you need do is ask, and receive](/contemporary-messages/messages-sorted-year/messages-2013/en-2013-8-17-1-af-augustine/) | August 17<sup>th</sup>, 2013
 Confucius | [Be joyous, be sure, be courageous, and be humble](/contemporary-messages/messages-sorted-year/messages-2013/en-2013-8-17-2-af-confucius/) | August 17<sup>th</sup>, 2013
 Mary | [The Power of Prayer of a Group of Souls](/contemporary-messages/messages-sorted-year/messages-2013/en-2013-8-17-3-af-mary/) | August 17<sup>th</sup>, 2013

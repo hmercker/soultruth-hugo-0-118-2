@@ -12,7 +12,7 @@ weight:
 
 September 13<sup>th</sup>, 2026
 
-Spiritualist Church, Harrow, London, UK
+Harrow Spiritualist Church Retreat, Harrow, London, UK
 
 Arthur Conan Doyle received by Jimbeau Walsh
 
