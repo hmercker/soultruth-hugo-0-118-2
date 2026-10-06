@@ -258,7 +258,11 @@ Orion | [You Have Tremendous Support Behind You](/contemporary-messages/messages
 Mary | [Faith, Service and the Blessings of Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-18-2-af-mary/) | August 18<sup>th</sup>, 2026
 Matthew | [The Sweetness of Progression](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-20-1-em-matthew/) | August 20<sup>th</sup>, 2026
 Orion | [A Lesson on the Three Minds: Material, Spirit and Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-22-1-af-orion/) | August 22<sup>nd</sup>, 2026
+Jesus | [Be Ready and Prepared for the Imminent Shift in Humanity's Reality](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-23-1-af-jesus/) | August 23<sup>rd</sup>, 2026
 Care Darby Walsh | [A Prayer from Care](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-24-1-jw-care-darby-walsh/) | August 24<sup>th</sup>, 2026
+Lao Tzu | [A Lesson on the Wisdom of the Soul ](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-25-1-af-lao-tzu/) | August 25<sup>th</sup>, 2026
+Jesus | [From Mindful Confusion to Soul Wisdom](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-30-1-af-jesus/) | August 30<sup>th</sup>, 2026
+Augustine | [You Must Take Heed of Our Warnings and Prepare for the Storm of Change](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-1-3-af-augustine/) | September 1<sup>st</sup>, 2026
 Judas | [Lifting everyone in the Spiritual Collective of Divine Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-4-1-jw-judas/) | September 4<sup>th</sup>, 2026
 Inayat Khan  | [Listen with your Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-7-1-jw-inayat-khan/) | September 7<sup>th</sup>, 2026
 Luke | [Healing](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-10-1-jw-luke/) | September 10<sup>th</sup>, 2026
