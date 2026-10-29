@@ -25,6 +25,3 @@ This world is in transition. It is transforming into a more loving environment, 
 This is an important time in the life of this planet and the people on this planet. This is the time for the great change that many have talked about, foretold and have come to expect, regardless of their spiritual orientation. This is the time, so you who know the Truth of God's Love and all that that entails, pray deeply and sincerely for the salvation of humankind and the salvation and transformation of this world. You are co-creators in this effort to move from what has been a very dark place to a much lighter and much more love-filled place in which to live. Every moment of every day, send your love to God that He may respond.
 
 I thank you for listening. My prayers are with you and for you, as are the many, many Celestial Angels and others who are praying with you at this time. Go deep, dear children. Go very, very deep. God bless you. God bless you.
-
-2026-04-09-EM-Paul of Tarsus (G)
-

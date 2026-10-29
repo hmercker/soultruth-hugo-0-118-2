@@ -21,6 +21,3 @@ Feel His Love coming through us. Feel the strength of that Love and of that bles
 God bless you. I am your brother, Jesus. You have been bestowed with the Father's blessing and gifts with which to do your purpose upon this Earth. Go out into the world with His blessing and give your love. Touch those souls who are in need, who are seeking truth, who are looking, looking for God and show them the way. Thus, you are blessed with all that you need to perform this work.
 
 You are not alone. We go with you. We will be with you. Do not be afraid. All is in hand. All is of God. I am your brother, Jesus, and I too bless you, each one with my love. This retreat is blessed. You are all encircled and connected. My love is with each one of you as I kiss each one of you.
-
-2026-04-24-EM-Jesus (B)
-

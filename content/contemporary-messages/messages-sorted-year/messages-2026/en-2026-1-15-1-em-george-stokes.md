@@ -21,6 +21,3 @@ May the Father’s Love be with you in great abundance, dear children of God. I 
 Drink up, dear children. Let this Love cleanse you, absolve you, embrace you and hold you so close to the Father that you can feel His Love. This is a gift given to you to uphold you during these times of change, during these times where there is chaos, but you are secure in God’s Love. Allow yourselves the comfort and the joy of being upheld by God, your Creator, your Father, one who oversees all that you need, all that you can possibly care about, is being taken care of for you, so you may be worry free. Let His grace touch your souls and let your Love meet His Love and become one in this Love.
 
 This is a special blessing for all of you here in this Circle of Light. Drink up, drink up, dear true children and allow this blessing to be yours. I am your brother, George. My love is with you, as is the love of many, many transformed souls, surrounding you, touching you with their love, in combination with our Father’s Love. God bless you.
-
-2026-01-15-EM-George Stokes (B)
-

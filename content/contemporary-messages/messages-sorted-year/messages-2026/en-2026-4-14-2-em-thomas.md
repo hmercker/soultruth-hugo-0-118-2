@@ -23,6 +23,3 @@ You are instruments for God. That is why you will be receiving so much more of G
 Accept as much Love as possible and you will progress in relation to your willingness to be open and accepting of all that God desires to give to you. You are not giving up anything except those things that are harmful to you. You are gaining everything, everything beyond your wildest imaginings. Allow. Allow the Love to come in greater and greater abundance. Allow the blessings to flow into your lives, into your souls, into your beings and into your experiences. No expectations, dear children, no doubts, just open, wide open. Here, now, the Breath of God is upon you. He breathes deeply into your soul. Allow it, welcome it and embrace it as it transforms.
 
 God bless you. I am your brother, Thomas. The Love is all around you, in you, of you. Breathe it in. God bless you, beautiful souls, beautiful children of God.
-
-2026-04-14-EM-Thomas (G)
-

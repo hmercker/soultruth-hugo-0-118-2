@@ -29,6 +29,3 @@ Each of you has relatives for whom you have prayed, who have this Love in their 
 I am Barbara. I love you all very much and am happy to be with you today. God bless you again and again and again. I love you. God bless you.
 
 Thomas: I am Thomas. I believe some of you know me, or of me, I simply came to say, you know the truth. Belief is not part of that. You know what you know. Stand firm. Stand tall and be the truth that you are within your soul. God bless you. My love is with you also.
-
-2026-02-12-EM-Joan, Barbara Davies, Thomas (G)
-

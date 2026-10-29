@@ -25,6 +25,3 @@ Reflect on all that you have been given. Ask the Father to show you all that you
 As you travel to your homes, you will be accompanied by Celestial Angels who will keep you safe along the way and as you reflect upon all that has happened here, you will be inspired by Celestial Angels and you will always have angels by you. Take this in deeply and learn to work together with your angels.
 
 I now close this circle and leave behind this portal for future retreats, future prayers and future communions with our Father. May God bless you. With His mighty Hand, He blesses you. My love is with you. I am your brother, Jesus. I will be watching over you also. Bless you, dear, dear true children, my disciples, my apostles, my followers. God bless you.
-
-2026-04-26-EM-Jesus (B)
-

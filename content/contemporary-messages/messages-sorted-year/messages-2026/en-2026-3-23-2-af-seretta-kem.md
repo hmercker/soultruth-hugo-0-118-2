@@ -29,6 +29,3 @@ It comes one day at a time, one challenge, one triumph, one sliver of awakening,
 It happens day by day. Sometimes you hesitate. Sometimes that day is not remarkable and does not have any clear and acknowledged progress. Yet, indeed, the momentum is there and the direction will persist. You will find yourself, in a month's time, a year's time, several years down the road, a very changed and different being, one that is truly in alignment with God, one that has released the impediments to that alignment, one that is truly of light, truth and love. You are surrounded, beloveds, by the great Hand of God and those who are with that Hand, those who are an expression of God's Will, those who are truly of light and reside within the Celestial Kingdom. They surround you. You are protected. You are guided and the way is shown. So it shall be, my beautiful friends. So it shall be.
 
 I am Seretta Kem. My love for you is great. I honour you, the progress you have made thus far. I see through my soul's perceptions the journey that is ahead. It is magnificent, beautiful and full of many surprises, awakenings, joyful experiences, revelations and understandings. God bless you, my friends. We journey together, always and evermore. God bless you in His Love.
-
-2026-03-23-AF-Seretta Kem (G)
-

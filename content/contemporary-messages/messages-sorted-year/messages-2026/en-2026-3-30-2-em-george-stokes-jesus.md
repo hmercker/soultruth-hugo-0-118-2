@@ -23,4 +23,3 @@ George Stokes & Jesus received by Elizabeth Mack
 The Father gathers all around and brings them closer, closer as a loving father would. He blesses them all in ways, in ways and means that they may not even know, but will experience. His Love pours upon you all as you open and allow His Love to enter. Great is this work. Greater is His Love, bountiful for His children. May all these children receive the bounty of His glorious Love.
 
 God bless you all. God bless you all. My love is with you. I am your brother. I am Jesus. My love for you is so great and the Father's is incomprehensible. Stay open, dear children, as the Father continues to bless your siblings upon the Earth in many, many ways.
-

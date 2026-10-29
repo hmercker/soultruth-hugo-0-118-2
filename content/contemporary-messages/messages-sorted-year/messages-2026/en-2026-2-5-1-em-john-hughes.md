@@ -23,6 +23,3 @@ It is the Father's Will that we pray together wherever we are. The veil is thin,
 We thank you upon the Earth, those of you in the flesh, for the work that you do and we see the joy that your soul experiences as you do this work. It may not feel like work, but it is as the Father desires that this Love is spread across the Earth to all of His children. Those of you upon the Earth who are knowledgeable about this Divine Love, who are receiving this Divine Love, every time you pray, every time you think of God, every time you open to receive His blessings, are doing this work. You are sharing and expressing this love. It is joyous, is it not? Well, I just wanted to say that it makes my heart, my proverbial heart happy to gather again with my brothers and sisters upon the Earth.
 
 God bless you, dear true children of God. May you be open always to the blessings that are always available to you. God bless you. I am John Hughes, soulmate of this medium and great lover of our Heavenly Father.
-
-2026-02-05-EM-John Hughes (B)
-

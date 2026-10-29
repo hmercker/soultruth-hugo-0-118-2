@@ -25,6 +25,3 @@ We ask of you on this day of celebration that you pray for the world and all of 
 There is much that can be said about events upon the Earth, but that is not really the most important thing to say. The most important thing to say is that possessors of Divine Love, such as yourselves, along with all of us who are redeemed souls, can impact the lives of people upon this Earth. So pray. Pray for these souls upon the Earth that they turn toward God, learn the truth and live the Truth of God's Divine Love. Your prayers will benefit many. Do pray often, especially at those times when human beings are more receptive to prayer.
 
 May God bless you. We are with you. We are many who are with you in your prayers today and always. My love is with you. I am Andrew. May our Father bless each of you and all of you abundantly. My love is with you.
-
-2026-03-26-EM-Andrew (T)
-

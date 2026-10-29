@@ -23,6 +23,3 @@ This can be your focus. Pray for these souls who are so contorted that they trul
 So, dear ones, pray. Pray for these tender but greatly hurt souls who cannot find the way. Pray for them. Sometime in the future, your prayers will be answered for them. Hold on to that truth as things descend into more chaos. Stay true to your path. Stay true to God and true to your own being, which is becoming at one with God. This is where your focus is and will keep you in harmony as well as safe.
 
 May the Father bless you abundantly, this day and all days upon this Earth and beyond. I am your brother, Nathaniel (Bartholomew). I am here with you and will continue to be with you. My love for you is great for each and every one of you. May God bless you, my dear, dear children.
-
-2026-01-04-EM-Bartholomew (G)
-

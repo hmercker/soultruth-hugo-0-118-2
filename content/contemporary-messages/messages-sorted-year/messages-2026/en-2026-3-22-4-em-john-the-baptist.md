@@ -27,6 +27,3 @@ Children, use that love within your souls to touch the souls of your brothers an
 You have the answers for them. You can help them. You must, for the salvation of humanity. It was agreed upon before you entered this life, so do reach out. Speak to them, but lovingly. Touch their souls with your love for that is the power of God in your souls. We will be with you. We will help you. We are your friends. We are God's protectors of His children upon the Earth. We are your guardians.
 
 God bless you, true children of God. God bless you. Take to heart all that I have said and let it sink deep, deeply into your souls, so you will know the truth of what I say to you. May God bless you. May His Love fall upon you and may your soul drink up, drink up the nourishment that is His Love. I am John the Baptist. My love is with you. God bless you.
-
-2026-03-22-EM-John the Baptist (G)
-

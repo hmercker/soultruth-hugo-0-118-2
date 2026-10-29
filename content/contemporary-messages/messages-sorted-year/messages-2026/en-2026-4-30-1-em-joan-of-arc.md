@@ -23,6 +23,3 @@ These are the changes that you can expect to see upon the Earth. What else would
 You have prayed for more eyes to look to the Heavens, more souls to be opened and receive the gift of His Love. Know that your prayers are being answered. Every time you pray, there are children who receive this Love. What a beautiful work, what a beautiful group of souls who pray and ask God to care for the children upon this Earth and to even receive the greatest blessing that can be received.
 
 You are so blessed. You are so cherished. God has you in His Hands, protecting you, guiding you and bringing you closer and closer with each prayer. Continue on this way. Continue to be open. Continue to commune with your Father, whether by yourselves or in circles such as these. You are being blessed and blessed frequently and mightily. Allow those blessings to enter deep into your soul and pray to express all that you have been given while still in your human bodies. My love is with you. I am Joan, known to you as Joan of Arc. Our Father continues to bless you, even at this moment. May God's Will be done. (The peace of God is descending upon us.)
-
-2026-04-30-EM-Joan of Arc (T)
-

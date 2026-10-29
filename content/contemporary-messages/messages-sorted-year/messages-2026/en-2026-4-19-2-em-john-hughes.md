@@ -21,6 +21,3 @@ I am John Hughes. I come close, so very close that you will feel me. There is li
 This is what mankind has done with natural love. The expressions have become more important than the love itself. There are these disharmonies that exist and continue to exist in greater measure. Remember, the focus in any expression is on God. This is a practice for all of you and each of you to do to gain greater understanding of how to express your Divine Love while you are in the flesh. Pray to God to receive everything you need to know about Divine Love expressions while in the material flesh. Each one will be different because each one is unique.
 
 I come to offer this guidance to you. Focus on God in your expressions and pray that God guide you in your expressions. May God bless you. My love is with you and my dear sister, I love you.
-
-2026-04-19-EM-John Hughes (T/G)
-

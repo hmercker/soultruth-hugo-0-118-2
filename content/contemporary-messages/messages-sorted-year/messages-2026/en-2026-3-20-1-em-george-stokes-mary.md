@@ -25,4 +25,3 @@ Turn your thoughts to the Father. Feel His Love and let that Love be expressed t
 I am your brother, George. I have great love for you and great admiration for all that you are doing. May God bless you and may you feel the arms of all of us around you, encircling you, lifting you higher and higher above the Earth condition. God bless you. God bless you, dear, true children of God. God bless you.
 
 **Mary:** I am Mary, the mother of Jesus. I come forward to give you my love and my blessings. May you all walk tall in this love and express this love daily, moment to moment, that you may feel the love in you and being expressed. God bless you. My love is with you now and always. God bless you.
-

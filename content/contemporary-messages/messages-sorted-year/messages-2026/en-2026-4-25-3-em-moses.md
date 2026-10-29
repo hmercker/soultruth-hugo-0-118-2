@@ -23,6 +23,3 @@ My brethren, you each have work to do. Certainly, you know this within your soul
 You each are ministers of this Love, as you walk through this life and minister to those souls who come before you and help them advance in their Love and soul development. Thus, you move forward in your own true soul development as well. This is the gift that you have been given by God, to assist your brothers and sisters in your and their development of this Love. This is a gift and Father implores you, be open, dear children, all the time. Be open and allow that Love to flow through you, that your brothers and sisters may feel the Presence of God in their souls. Teach them. Teach them how to pray. Teach them to long, to desire to commune with their Creator and teach them to receive and allow this Love to flow into their souls. There can be no higher ministry, no higher goal, no greater work than to bring them to the Father in this Love.
 
 My love is with you. May God continue to bless you, guide you and develop your souls in this Love. I am Moses, your brother and also a leader of humankind. I am one with my Father, as you are becoming.
-
-2026-04-25-EM-Moses (T)
-
