@@ -14,9 +14,9 @@ June 22<sup>nd</sup>, 2026
 
 Online Circle of Light, Nashville, TN, USA
 
-Alexander the Pope received by Jimbeau Walsh
+Alexander the Poet received by Jimbeau Walsh
 
-Greetings, brothers, and sisters. I am your friend from the celestial kingdom. I am Alexander Pope, the poet.
+Greetings, brothers, and sisters. I am your friend from the celestial kingdom. I am Alexander, the poet.
 
 Brother Judas has encouraged me to step forward to speak this evening on a subject dear to my heart. On earth, I suffered from many ailments. I was somewhat, as they say, deformed, with a hunchback. I was also reviled at times for my religious beliefs, and so, I had a lot on my plate to process in my soul. I prayed deeply, I wrote from the depths of my soul, and I came to realize even on earth and as I wrote, *"to err is human, to forgive is divine."*
 
@@ -28,4 +28,4 @@ The love of God, of course, has no ebb and flow, and to love another with Divine
 
 I am so grateful for this opportunity to speak through my brother, and I thank all here for lending me an ear. I shall step back in your beautiful circle and be in prayer with you in God’s love. I am your brother and friend, in Christ.
 
-I am Alexander Pope. God bless you.
+I am Alexander the poet. God bless you.
