@@ -278,7 +278,6 @@ Faith Nyquist | [Keep Yourself in a Condition of Light and Love to Fuel Your Ins
 Orion | [Be Free of Your Own Human Condition to Become a True Agent of God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-4-2-af-orion/) | August 4<sup>th</sup>, 2026
 Orion | [True Instrumentality Requires Fearlessness and Faith](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-7-1-af-orion/) | August 7<sup>th</sup>, 2026
 Mylora | [Honouring and Accepting Our Place in a Changing World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-7-2-af-mylora/) | August 7<sup>th</sup>, 2026
-Orion | [True Instrumentality Requires Fearlessness and Faith](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-8-1-af-orion/) | August 8<sup>th</sup>, 2026
 Jesus | [The Eternal Path of Soul Awakening](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-9-1-af-jesus/) | August 9<sup>th</sup>, 2026
 Kahlil Gibran | [The Freedom of Eternity](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-10-1-jw-kahlil-gibran/) | August 10<sup>th</sup>, 2026
 Orion | [Become Aware of Your Reflexive and Unconscious Impediments ](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-8-11-1-af-orion/) | August 11<sup>th</sup>, 2026
@@ -337,6 +336,7 @@ Jesus | [Your Gathering Here is Divinely Blessed; Jesus Opens State College Retr
 Confucius | [Awakening and Transformation Come With Practice, Application, Prayer and Dedication](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-28-2-af-confucius/) | September 28<sup>th</sup>, 2026
 Keea Atta Kem | [God’s Will is Not a Mystery, But It is Something You Must Truly Desire to Know](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-28-3-mc-keea-atta-kem/) | September 28<sup>th</sup>, 2026
 Augustine | [Search Deeply Within to Determine Whether We Are Ready for What is Coming](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-29-1-af-augustine/) | September 29<sup>th</sup>, 2026
+Orion | [Q&A with Orion](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-9-30-1-af-orion/) | September 30<sup>th</sup>, 2026
 White Cloud | [Reverence for the Earth](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-10-2-1-af-white-cloud/) | October 2<sup>nd</sup>, 2026
 Keea Atta Kem | [Know the Instrument of Your Soul](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-10-2-2-mc-keea-atta-kem/) | October 2<sup>nd</sup>, 2026
 Orion | [When Changes Come, You Will Be Able to Rely on Interconnectivity Through the Lattice of Light](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-10-3-1-af-orion/) | October 3<sup>rd</sup>, 2026
@@ -355,7 +355,11 @@ Jesus | [Striding Forward Together: Fulfilling God's Plan](/contemporary-message
 Matthew | [The Gift of the Present: A Lesson on the Perception of Time and Consciousness](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-10-16-1-af-matthew/) | October 16<sup>th</sup>, 2026
 Mary | [The Clouds Are Parting and the Warmth of God’s Soul Shall Shine Upon the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-10-18-1-af-mary/) | October 18<sup>th</sup>, 2026
 Yogananda | [Real Peace beyond Fear](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-10-19-1-jw-yogananda/) | October 19<sup>th</sup>, 2026
+Joseph | [Blessings Are Abundant and Powerful During This Period of Change](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-10-20-1-af-joseph/) | October 20<sup>th</sup>, 2026
 Jesus | [Be Instruments of Truth, Light and Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-10-23-1-af-jesus/) | October 23<sup>rd</sup>, 2026
+Augustine | [Do Not Wait to Ignite Your Instrumentality; Progression Comes With Dedication](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-10-24-1-af-augustine/) | October 24<sup>th</sup>, 2026
 Jesus | [Love Without Judgment](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-10-25-1-af-jesus/) | October 25<sup>th</sup>, 2026
+Francis of Assisi | [The Seventh Sense and Prayer](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-10-26-1-jw-francis-of-assisi/) | October 26<sup>th</sup>, 2026
+Daniel Samuels | [Halloween, All Hallows, All Souls](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-10-28-1-jw-daniel-samuels/) | October 28<sup>th</sup>, 2026
 
 *Go to [top of table](/contemporary-messages/messages-sorted-year/contemporary-channelled-messages-from-year-2026/), or to [contemporary messages by year](/contemporary-messages/#a).*
