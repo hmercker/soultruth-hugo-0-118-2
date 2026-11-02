@@ -188,17 +188,22 @@ Christine | [Healing the World Through the Power and Simplicity of Love](/contem
 Hafiz | [Seven Grains of Truth](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-1-2-jw-hafiz/) | May 1<sup>st</sup>, 2026
 Orion | [Your Ability to Dispel The Darkness of This World is More Powerful Than You Think](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-2-1-af-orion/) | May 2<sup>nd</sup>, 2026
 Jesus | [The Door to God’s Love is Open to You](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-3-1-af-jesus/) | May 3<sup>rd</sup>, 2026
+Ann | [Receiving Divine Love Makes You At-One with God’s Will](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-3-2-em-ann/) | May 3<sup>rd</sup>, 2026
 Frederick Douglass | [Healing from Temporal and Spiritual Bondage](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-4-1-jw-frederick-douglass/) | May 4<sup>th</sup>, 2026
 John the Beloved | [Be an Island of Peace in a Troubled World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-5-1-af-john-the-beloved/) | May 5<sup>th</sup>, 2026
 Seretta Kem | [Allow All That You Are to Manifest in the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-5-2-af-seretta-kem/) | May 5<sup>th</sup>, 2026
+John Hughes | [Listen For the Truth That Is Conveyed with This Divine Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-7-1-em-john-hughes/) | May 7<sup>th</sup>, 2026
 Keea Atta Kem & Augustine | [The Lattice of Light: Strengthening the Network of Divine Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-8-1-af-keea-atta-kem-augustine/) | May 8<sup>th</sup>, 2026
 Orion | [Orion Describes the Process of Receiving Divine Love on His Planet and Expresses Admiration for Our Tenacity](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-9-1-af-orion/) | May 9<sup>th</sup>, 2026
 Jesus | [Seek the Gift of Divine Love and Become a Light in the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-10-1-af-jesus/) | May 10<sup>th</sup>, 2026
 Anna | [Acknowledges God's Creation of Woman on Mother's Day](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-10-2-mc-anna/) | May 10<sup>th</sup>, 2026
 Jesus | [Set Your Burdens Down at the Feet of God](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-10-3-mc-jesus/) | May 10<sup>th</sup>, 2026
 Clare of Assisi | [Attachments](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-11-1-jw-clare-of-assisi/) | May 11<sup>th</sup>, 2026
+Mary | [Expression of God’s Love Within You](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-11-2-em-mary/) | May 11<sup>th</sup>, 2026
 Augustine | [Take Responsibility for Your Condition and Stay Loyal to the Truth](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-12-1-af-augustine/) | May 12<sup>th</sup>, 2026
 Barbara Davies | [The Power of Love to Unite Souls and Heal the World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-12-2-af-barbara-davies/) | May 12<sup>th</sup>, 2026
+Joan of Arc | [Through You, We Will Be Working to Bring About More Harmony in This Earth](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-13-1-em-joan-of-arc/) | May 13<sup>th</sup>, 2026
+Jesus | [It Is Through You That God's Love Is Expressed in the Material World](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-14-2-em-jesus/) | May 14<sup>th</sup>, 2026
 Yogananda | [Purveyors of Light in a World of Chaos](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-15-1-af-yogananda/) | May 15<sup>th</sup>, 2026
 Augustine | [The Time is Now: Release Tired Habits, Leave Your Cocoon Behind and Step Forward to Fulfill Your Destiny](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-16-1-af-augustine/) | May 16<sup>th</sup>, 2026
 Jesus | [I Am with You: Awakening the Soul Through Divine Love](/contemporary-messages/messages-sorted-year/messages-2026/en-2026-5-17-1-af-jesus/) | May 17<sup>th</sup>, 2026
