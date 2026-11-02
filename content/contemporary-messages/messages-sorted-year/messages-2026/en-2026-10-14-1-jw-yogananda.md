@@ -18,9 +18,7 @@ Yogananda received by Jimbeau Walsh
 
 I am here, your brother, Yogananda.  I waited to come so that you could just be in God’s grace, and I wish to simply encourage you to make the longings of your souls paramount to your prayer circle.  Though you may describe your beliefs or your spiritual life in terms of Divine Love, Christianity, or Spiritualism, and though we are all followers of the master and his teaching, we do not wish you to attach your prayer offerings to any religion, to any group, but rather as a gift from God to those who come.
 
-If you really wish to describe this condition, I suppose you could use the words, a non -denominational prayer to our creator for the gift of divine love to be given to each soul freely
-
-for its transformation.  Perhaps you may even want to simplify that.  Is there anyone you want to discourage who seeks the Father’s love, who seeks to change? I do not think so.
+If you really wish to describe this condition, I suppose you could use the words, a non -denominational prayer to our creator for the gift of divine love to be given to each soul freely for its transformation.  Perhaps you may even want to simplify that.  Is there anyone you want to discourage who seeks the Father’s love, who seeks to change? I do not think so.
 
 And though I came out of my tradition, I, too, like many on earth, seek the great gift of God’s love, and in my case, as the many here, we did receive and do receive for the asking.  I hope you can use this advice in your offering to those who may not be familiar with this prayer and to those who may not share your point of view or beliefs but are open to being changed and open to the love of God given freely.
 
