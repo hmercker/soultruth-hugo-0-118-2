@@ -1,4 +1,13 @@
 {{ define "header_css" }}{{ end }}
+{{ define "meta_tags" }}
+    <meta name="description" content="{{ with .Description }}{{ . }}{{ else }}{{ .Title }}{{ end }}" />
+    <meta property="og:title" content="{{ .Title }}" />
+    <meta property="og:type" content="article" />
+    <meta property="og:url" content="{{ .Permalink }}" />
+    <meta property="og:image" content="{{ .Site.Params.homepage_meta_tags.meta_og_image }}" />
+    <meta property="og:description" content="{{ with .Description }}{{ . }}{{ else }}{{ .Title }}{{ end }}" />
+    <meta property="og:site_name" content="{{ .Site.Params.homepage_meta_tags.meta_og_site_name }}" />
+{{ end }}
 {{ define "body_classes" }}page-default-single{{ end }}
 
 {{ define "main" }}
