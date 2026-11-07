@@ -1,7 +1,7 @@
 ---
 title: "Know Your Purpose"
 menu_title: ""
-description: "Know Your Purpose"
+description: "James, received by Al Fike: “To live a life filled with purpose is to live a rich and bountiful life. When that purpose and sense of purpose comes from the …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

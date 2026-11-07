@@ -1,7 +1,7 @@
 ---
 title: "Blessing 1"
 menu_title: ""
-description: "Blessing 1"
+description: "Jesus, received by Al Fike: “Come, my brothers and sisters, come with me and bathe in the waters of God’s Love that we may immerse ourselves in this liquid …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

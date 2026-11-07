@@ -1,7 +1,7 @@
 ﻿---
 title: "In-Person DL Prayer Circles"
 menu_title: ""
-description: "In-Person DL Prayer Circles"
+description: "Judas & Luke, received by Jimbeau Walsh: “I would encourage you to invite those you may feel have a soul interest to your circle. For are you not offering …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

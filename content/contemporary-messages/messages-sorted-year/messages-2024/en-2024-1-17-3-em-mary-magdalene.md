@@ -1,7 +1,7 @@
 ---
 title: "Our Love Touches Your Souls"
 menu_title: ""
-description: "Our Love Touches Your Souls"
+description: "Mary Magdalene, received by Elizabeth Mack: “Deep within your souls, we are connected and all to our Father. You may trust this connection and as you dive …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

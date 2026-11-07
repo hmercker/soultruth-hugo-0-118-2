@@ -1,7 +1,7 @@
 ﻿---
 title: "Thoughts are Things: Be Intentional with Your Thinking"
 menu_title: ""
-description: "Thoughts are Things: Be Intentional with Your Thinking"
+description: "Keea Atta Kem, received by Maureen Cardoso: “May the peace that passes all understanding, this great Love that comes through the Holy Spirit, find its way …”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

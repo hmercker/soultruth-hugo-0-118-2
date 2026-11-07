@@ -1,7 +1,7 @@
 ---
 title: "God's Plan is that All will Come to Light"
 menu_title: ""
-description: "God's Plan is that All will Come to Light"
+description: "Michael Collier, received by Al Fike: “Have no fear beloved souls, for, God’s plan is that all will come to Light. For those who are willing to be an …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

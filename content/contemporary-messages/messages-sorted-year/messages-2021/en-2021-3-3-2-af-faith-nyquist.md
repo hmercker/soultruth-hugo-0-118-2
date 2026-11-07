@@ -1,7 +1,7 @@
 ---
 title: "You Rest in the Grace of God"
 menu_title: ""
-description: "You Rest in the Grace of God"
+description: "Faith Nyquist, received by Al Fike: “And I too am with you, my friends, I am Faith. I wish to tell you that many angels are with you tonight, that this …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

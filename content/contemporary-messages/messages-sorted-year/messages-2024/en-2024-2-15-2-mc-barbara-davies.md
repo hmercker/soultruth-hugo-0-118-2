@@ -1,7 +1,7 @@
 ---
 title: "Take Your Barriers to God"
 menu_title: ""
-description: "Take Your Barriers to God"
+description: "Barbara Davies, received by Maureen Cardoso: “This dear soul, waiting for her beloved friend to receive promptings from the angels, and I want her to know …”"
 date: 2025-05-19 07:21:03+11:00
 draft: False
 hidden: True

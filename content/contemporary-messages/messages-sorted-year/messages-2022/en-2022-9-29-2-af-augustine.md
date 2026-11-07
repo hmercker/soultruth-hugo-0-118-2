@@ -1,7 +1,7 @@
 ---
 title: "Be a Channel of God’s Love and Instrument of God’s Will"
 menu_title: ""
-description: "Be a Channel of God’s Love and Instrument of God’s Will"
+description: "Augustine, received by Al Fike: “…be a great boon to your souls, beloved souls. I greet you in this place that you have designated for prayer, and I want …”"
 date: 2025-07-22 07:21:03+00:00
 draft: False
 hidden: True

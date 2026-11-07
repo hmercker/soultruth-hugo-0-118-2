@@ -1,7 +1,7 @@
 ---
 title: "Prepare Yourselves for this Time Together"
 menu_title: ""
-description: "Prepare Yourselves for this Time Together"
+description: "Grace Jordan, received by Al Fike: “May God's Love be upon you. We have much work to do, my friends, much work indeed.”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

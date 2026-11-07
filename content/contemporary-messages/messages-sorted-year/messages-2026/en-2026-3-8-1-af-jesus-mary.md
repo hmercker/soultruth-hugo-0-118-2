@@ -1,7 +1,7 @@
 ---
 title: "The Power of Daily Prayer / A Blessing for God's Children"
 menu_title: ""
-description: "The Power of Daily Prayer / A Blessing for God's Children"
+description: "Jesus & Mary, received by Al Fike: “Jesus: I come to pray with you, my beloveds. As you pray to receive it, so you shall come closer to that time when you …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

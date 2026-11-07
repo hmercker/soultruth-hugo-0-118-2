@@ -1,7 +1,7 @@
 ---
 title: "Another Purpose for Which We Are Called"
 menu_title: ""
-description: "Another Purpose for Which We Are Called"
+description: "Matthew, received by Elizabeth Mack: “I live high up in the Celestial Heavens and I follow my master, Jesus, who is Master of the Celestial Heavens …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

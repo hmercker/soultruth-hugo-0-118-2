@@ -1,7 +1,7 @@
 ---
 title: "Invitation to many to pray with the Q&A Retreat"
 menu_title: ""
-description: "Invitation to many to pray with the Q&A Retreat"
+description: "Augustine, received by Al Fike: “I wish to convey a message through you to all who are part of your spiritual community and family.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

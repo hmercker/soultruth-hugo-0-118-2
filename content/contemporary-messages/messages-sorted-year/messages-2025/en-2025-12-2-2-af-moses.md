@@ -1,7 +1,7 @@
 ---
 title: "You Must Reconcile Mind and Soul to be God's Instruments in Times to Come"
 menu_title: ""
-description: "You Must Reconcile Mind and Soul to be God's Instruments in Times to Come"
+description: "Moses, received by Al Fike: “Every day is a test of faith. Every day presents its opportunities to be in alignment with God's Will.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Responds to Q&A About Evolution"
 menu_title: ""
-description: "Responds to Q&A About Evolution"
+description: "Augustine, received by Al Fike: “Minds of men are very active indeed. These points of interest have some bearing upon satisfying your curiosity about …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

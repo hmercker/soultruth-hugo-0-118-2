@@ -1,7 +1,7 @@
 ---
 title: "Be True to Yourself and Your Creator"
 menu_title: ""
-description: "Be True to Yourself and Your Creator"
+description: "Confusius, received by Al Fike: “…little daughter, beautiful soul that you are, forever eager to serve God and the truth. You need to know how loved you …”"
 date: 2025-04-08 07:21:03+00:00
 draft: False
 hidden: True

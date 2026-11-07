@@ -1,7 +1,7 @@
 ---
 title: "We Will Be with You in Your Travels"
 menu_title: ""
-description: "We Will Be with You in Your Travels"
+description: "Goldie, received by Al Fike: “And I will be with you dear daughter who travels. I will be with you, walking with you as will many of us who will be making …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

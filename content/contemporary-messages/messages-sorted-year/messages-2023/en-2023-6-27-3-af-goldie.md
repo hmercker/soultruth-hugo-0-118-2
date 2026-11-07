@@ -1,7 +1,7 @@
 ---
 title: "It's Important to Have Fun!"
 menu_title: ""
-description: "It's Important to Have Fun!"
+description: "Goldie, received by Al Fike: “Too many in your world are too serious. God created a world that is full of beauty and fun and joy, provided you accept and …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

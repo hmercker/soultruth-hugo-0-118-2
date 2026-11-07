@@ -1,7 +1,7 @@
 ﻿---
 title: "Incrementally you come into closer alignment with God’s Will"
 menu_title: ""
-description: "Incrementally you come into closer alignment with God’s Will"
+description: "Augustine, received by Al Fike: “We are pleased that you have heard our call to gather together in small and large groups, to be in prayer and conversation …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

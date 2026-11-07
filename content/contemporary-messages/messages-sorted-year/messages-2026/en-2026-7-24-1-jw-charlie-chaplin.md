@@ -1,7 +1,7 @@
 ﻿---
 title: "Present to the World the Love of God in a Way that resonates beyond Religion"
 menu_title: ""
-description: "Present to the World the Love of God in a Way that resonates beyond Religion"
+description: "Charlie Chaplin, received by Jimbeau Walsh: “I have come many times through my friend here and described my life as a pauper through times of famine …”"
 date: 2026-08-03 00:00:00+00:00
 draft: False
 hidden: True

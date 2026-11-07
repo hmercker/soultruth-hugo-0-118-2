@@ -1,7 +1,7 @@
 ---
 title: "Protection is an Actual Blessing"
 menu_title: ""
-description: "Protection is an Actual Blessing"
+description: "Mahatma Gandhi, received by Al Fike: “You wish for some teaching upon the act of protection from God. Indeed, my whole life I prayed for God’s protection …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Blessing 2"
 menu_title: ""
-description: "Blessing 2"
+description: "Jesus, received by Al Fike: “I have given each of you a blessing to lighten your burdens in this world and to increase your perception of your soul that …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

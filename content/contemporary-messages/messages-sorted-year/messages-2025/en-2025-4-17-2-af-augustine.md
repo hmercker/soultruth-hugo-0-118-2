@@ -1,7 +1,7 @@
 ---
 title: "Walk in Faith When Met With Obstructions"
 menu_title: ""
-description: "Walk in Faith When Met With Obstructions"
+description: "Augustine, received by Al Fike: “Your world is full of challenges, beloved souls. I know there are times when your plans do not reach fruition.”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

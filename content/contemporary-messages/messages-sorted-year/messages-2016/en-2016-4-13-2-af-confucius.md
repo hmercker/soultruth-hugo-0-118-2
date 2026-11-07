@@ -1,7 +1,7 @@
 ﻿---
 title: "Breath of God"
 menu_title: ""
-description: "Breath of God"
+description: "Confucius, received by Al Fike: “You must spread these wings, open yourselves to this Gift of Love and allow God to Touch you deeply so that you may know …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

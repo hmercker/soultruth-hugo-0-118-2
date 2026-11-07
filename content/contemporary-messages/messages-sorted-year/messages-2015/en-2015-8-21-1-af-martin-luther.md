@@ -1,7 +1,7 @@
 ﻿---
 title: "Judge not your Brother, judge not your Sister, but Love them all"
 menu_title: ""
-description: "Judge not your Brother, judge not your Sister, but Love them all"
+description: "Martin Luther, received by Al Fike: “You have received this in your prayers together. There is such diversity in this room.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

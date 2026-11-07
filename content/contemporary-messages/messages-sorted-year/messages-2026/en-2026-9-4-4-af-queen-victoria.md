@@ -1,7 +1,7 @@
 ﻿---
 title: "Queen Victoria Describes Her Journey in Spirit and Shares Her Hopes For God’s Truth to be Shared"
 menu_title: ""
-description: "Queen Victoria Describes Her Journey in Spirit and Shares Her Hopes For God’s Truth to be Shared"
+description: "Queen Victoria, received by Al Fike: “Indeed, may the Father's Love pour within your soul, changing you, healing you and transforming you.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Knowing God’s Will through Soul Awakening"
 menu_title: ""
-description: "Knowing God’s Will through Soul Awakening"
+description: "Confucius, received by Al Fike: “Did I not say that my precious birds will come together, to flock together? God draws you together, my beloveds, for a …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

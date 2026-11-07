@@ -1,7 +1,7 @@
 ﻿---
 title: "Go deeper within your Souls and we will be there to support you"
 menu_title: ""
-description: "Go deeper within your Souls and we will be there to support you"
+description: "Augustine, received by Al Fike: “You have been given much in these past days together, much in guidance, much in blessings.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

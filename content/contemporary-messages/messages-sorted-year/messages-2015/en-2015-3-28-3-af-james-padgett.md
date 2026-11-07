@@ -1,7 +1,7 @@
 ﻿---
 title: "Continue to work towards these Efforts to understand the Truth of Divine Love"
 menu_title: ""
-description: "Continue to work towards these Efforts to understand the Truth of Divine Love"
+description: "James Padgett, received by Al Fike: “The vision that this instrument has had regarding this building is correct. There will be a center here that will …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

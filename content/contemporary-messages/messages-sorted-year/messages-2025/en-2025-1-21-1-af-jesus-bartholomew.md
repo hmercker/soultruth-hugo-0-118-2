@@ -1,7 +1,7 @@
 ---
 title: "Auspicious Blessings of God’s Love for a Great Number of Souls on Both Sides of the Veil"
 menu_title: ""
-description: "Auspicious Blessings of God’s Love for a Great Number of Souls on Both Sides of the Veil"
+description: "Jesus & Bartholomew, received by Al Fike: “Jesus: Children of God, I come. For how many times and opportunities are there for these seeking souls to be a …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

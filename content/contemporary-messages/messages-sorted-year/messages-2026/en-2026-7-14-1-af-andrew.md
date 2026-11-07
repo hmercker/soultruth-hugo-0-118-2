@@ -1,7 +1,7 @@
 ﻿---
 title: "Acknowledge the Many Milestones Along the Divine Path"
 menu_title: ""
-description: "Acknowledge the Many Milestones Along the Divine Path"
+description: "Andrew, received by Al Fike: “The journey of growing within the soul with God's Love is endless. You begin this journey right at the beginning of your …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

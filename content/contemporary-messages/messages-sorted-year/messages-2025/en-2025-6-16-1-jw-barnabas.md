@@ -1,7 +1,7 @@
 ---
 title: "If you wish to serve the world"
 menu_title: ""
-description: "If you wish to serve the world"
+description: "Barnabas, received by Jimbeau Walsh: “May the love of God touch each soul. When I walked the earth so long ago with my brother Paul, preaching to the …”"
 date: 2025-06-21 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Overcoming Obstacles of Raising Children"
 menu_title: ""
-description: "Overcoming Obstacles of Raising Children"
+description: "Orion, received by Al Fike: “Your world is full of obstacles and barriers that prevent you from being in light, joy and happiness, something that God wants …”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

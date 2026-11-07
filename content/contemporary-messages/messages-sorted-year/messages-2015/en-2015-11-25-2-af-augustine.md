@@ -1,7 +1,7 @@
 ﻿---
 title: "Guidance and Reassurance regarding creating Centers of Light"
 menu_title: ""
-description: "Guidance and Reassurance regarding creating Centers of Light"
+description: "Augustine, received by Al Fike: “My students, I am Augustine, your teacher. You have asked for guidance regarding creating Centres of Light in the world.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

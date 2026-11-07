@@ -1,7 +1,7 @@
 ﻿---
 title: "We Ask You to Shine Bright as God’s Instruments"
 menu_title: ""
-description: "We Ask You to Shine Bright as God’s Instruments"
+description: "Jesus, received by Al Fike: “May the blessings of the Father’s Love continue to flow into your souls, my beloved brothers and sisters.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

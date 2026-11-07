@@ -1,7 +1,7 @@
 ---
 title: "The Need to Create a Strong Foundation and Follow God's Will"
 menu_title: ""
-description: "The Need to Create a Strong Foundation and Follow God's Will"
+description: "Seretta Kem, received by Al Fike: “May you have different ears to hear, my beloveds, different eyes to see and different faculties to understand.”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Allow Yourselves Love, Patience and Persistence"
 menu_title: ""
-description: "Allow Yourselves Love, Patience and Persistence"
+description: "Professor Salyards, received by Al Fike: “Oh my beautiful friends, if you could only spend a day in heaven and understand those things which we speak of.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

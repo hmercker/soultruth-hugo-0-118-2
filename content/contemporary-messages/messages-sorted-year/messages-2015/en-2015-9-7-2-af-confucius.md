@@ -1,7 +1,7 @@
 ﻿---
 title: "Take Time to come to firmer Ground"
 menu_title: ""
-description: "Take Time to come to firmer Ground"
+description: "Confucius, received by Al Fike: “Continue to pray together, my beloveds, to form this bond of Love in this Circle of Light.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Listen to Your Own Souls Rather Than to Advice from Others"
 menu_title: ""
-description: "Listen to Your Own Souls Rather Than to Advice from Others"
+description: "Augustine, received by Al Fike: “I urge you not to listen and take heed of the advice of others, but to go to your own soul and listen to the truth and the …”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

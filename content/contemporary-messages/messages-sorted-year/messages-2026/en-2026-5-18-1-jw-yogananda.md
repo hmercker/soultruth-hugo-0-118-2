@@ -1,7 +1,7 @@
 ﻿---
 title: "The Winged Joy"
 menu_title: ""
-description: "The Winged Joy"
+description: "Yogananda, received by Jimbeau Walsh: “My friends, it is I, your brother, Yogananda. Let us savor the moment, this moment that is blessed in light, as we …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

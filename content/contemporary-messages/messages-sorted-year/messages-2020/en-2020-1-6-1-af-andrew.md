@@ -1,7 +1,7 @@
 ---
 title: "The World Thirsts for Spiritual Sustenance"
 menu_title: ""
-description: "The World Thirsts for Spiritual Sustenance"
+description: "Andrew, received by Al Fike: “The world needs your prayers, beloveds. The world thirsts for spiritual sustenance.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

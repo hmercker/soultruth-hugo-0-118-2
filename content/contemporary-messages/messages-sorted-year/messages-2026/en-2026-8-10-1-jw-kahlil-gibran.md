@@ -1,7 +1,7 @@
 ﻿---
 title: "The Freedom of Eternity"
 menu_title: ""
-description: "The Freedom of Eternity"
+description: "Kahlil Gibran, received by Jimbeau Walsh: “My beautiful friends, it is I, your brother, Khalil Gibran. I was drawn to spending time with my brother here …”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

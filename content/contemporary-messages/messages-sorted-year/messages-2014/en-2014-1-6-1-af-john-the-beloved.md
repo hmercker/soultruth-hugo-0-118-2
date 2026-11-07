@@ -1,7 +1,7 @@
 ﻿---
 title: "No one can assess what God has put within your Souls"
 menu_title: ""
-description: "No one can assess what God has put within your Souls"
+description: "John the Beloved, received by Al Fike: “Let no one tell you differently, for no one can assess what God has put within your souls.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

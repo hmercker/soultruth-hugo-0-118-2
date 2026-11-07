@@ -1,7 +1,7 @@
 ﻿---
 title: "The Science of the Soul’s Awakening Through Divine Love & Blessing from Jesus"
 menu_title: ""
-description: "The Science of the Soul’s Awakening Through Divine Love & Blessing from Jesus"
+description: "Copernicus & Jesus, received by Al Fike: “Copernicus: Blessings to you, my friends. I have the honour today to bring a teaching to you, a teaching of the …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

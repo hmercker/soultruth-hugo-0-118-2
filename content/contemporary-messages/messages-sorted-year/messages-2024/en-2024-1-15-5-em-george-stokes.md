@@ -1,7 +1,7 @@
 ---
 title: "You are a Formidable Force on this Island"
 menu_title: ""
-description: "You are a Formidable Force on this Island"
+description: "George Stokes, received by Elizabeth Mack: “(I am George) and you have been told and are being told again that you are a formidable force of light upon …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

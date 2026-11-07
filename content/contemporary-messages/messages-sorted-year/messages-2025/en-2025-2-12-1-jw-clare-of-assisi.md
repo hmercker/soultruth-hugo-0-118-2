@@ -1,7 +1,7 @@
 ---
 title: "The Circle of Open Hearts"
 menu_title: ""
-description: "The Circle of Open Hearts"
+description: "Clare of Assisi, received by Jimbeau Walsh: “As you pray and thy eye becomes single, thy will aligned with the great will of the heavenly Father, one …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

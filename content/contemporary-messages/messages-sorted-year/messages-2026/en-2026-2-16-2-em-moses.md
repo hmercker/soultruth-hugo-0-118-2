@@ -1,7 +1,7 @@
 ﻿---
 title: "Fulfill Your Promise to God"
 menu_title: ""
-description: "Fulfill Your Promise to God"
+description: "Moses, received by Elizabeth Mack: “What a future, what an existence, what a joy, what peace, what happiness to know that forever we will exist and we will …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

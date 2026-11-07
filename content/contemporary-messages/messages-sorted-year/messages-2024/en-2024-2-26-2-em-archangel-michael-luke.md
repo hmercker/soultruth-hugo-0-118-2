@@ -1,7 +1,7 @@
 ---
 title: "Healing"
 menu_title: ""
-description: "Healing"
+description: "Archangel Michael & Luke, received by Elizabeth Mack: “Archangel Michael: All of you upon the Earth, who are the Almighty's children in your souls, are …”"
 date: 2025-07-20 07:21:03+11:00
 draft: False
 hidden: True

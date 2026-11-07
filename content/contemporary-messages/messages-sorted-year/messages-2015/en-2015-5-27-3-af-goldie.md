@@ -1,7 +1,7 @@
 ﻿---
 title: "A walk in the Garden"
 menu_title: ""
-description: "A walk in the Garden"
+description: "Goldie, received by Al Fike: “I have given you all a kiss because you are all beautiful flowers of God’s garden and I take great joy in walking through …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

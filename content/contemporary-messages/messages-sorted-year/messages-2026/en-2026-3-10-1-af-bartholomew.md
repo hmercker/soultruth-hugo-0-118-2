@@ -1,7 +1,7 @@
 ---
 title: "The Heartfelt Path of Prayer"
 menu_title: ""
-description: "The Heartfelt Path of Prayer"
+description: "Bartholomew, received by Al Fike: “May the blessing of the Father's Love enter into your souls abundantly and powerfully. Open your souls to this blessing …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

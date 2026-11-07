@@ -1,7 +1,7 @@
 ﻿---
 title: "Augustine suggests that a Gift given in group Prayer will Benefit those praying the next Day"
 menu_title: ""
-description: "Augustine suggests that a Gift given in group Prayer will Benefit those praying the next Day"
+description: "Augustine, received by Al Fike: “You have each received the Gift of the Father’s Love within your souls and you have each received a Gift that you will …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

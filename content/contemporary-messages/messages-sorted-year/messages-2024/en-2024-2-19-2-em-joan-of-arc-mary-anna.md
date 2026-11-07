@@ -1,7 +1,7 @@
 ---
 title: "This Light is Reaching Corners It Hasn’t Reached Before"
 menu_title: ""
-description: "This Light is Reaching Corners It Hasn’t Reached Before"
+description: "Joan of Arc, Mary & Anna, received by Elizabeth Mack: “My sister, I say to you, I will be with you. I will stand by your side and be with you.”"
 date: 2025-07-20 07:21:03+00:00
 draft: False
 hidden: True

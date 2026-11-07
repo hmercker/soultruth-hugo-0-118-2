@@ -1,7 +1,7 @@
 ---
 title: "Harmony, Love and Peace Are All Part of God’s Plan for His Children"
 menu_title: ""
-description: "Harmony, Love and Peace Are All Part of God’s Plan for His Children"
+description: "John Hughes, received by Elizabeth Mack: “The Earth is a beautiful place, and it is one of God’s creations, something special for the souls who come into …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

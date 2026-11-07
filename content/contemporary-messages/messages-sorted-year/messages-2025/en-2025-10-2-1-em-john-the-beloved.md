@@ -1,7 +1,7 @@
 ---
 title: "An Experience in Applying the Law of Divine Love"
 menu_title: ""
-description: "An Experience in Applying the Law of Divine Love"
+description: "John the Beloved, received by Elizabeth Mack: “The Truth of the Law of Divine Love is that it encompasses all other laws and creates a smooth, loving …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

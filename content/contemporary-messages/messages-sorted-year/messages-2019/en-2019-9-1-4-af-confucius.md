@@ -1,7 +1,7 @@
 ---
 title: "Healing, Peace, Blessings"
 menu_title: ""
-description: "Healing, Peace, Blessings"
+description: "Confucius, received by Al Fike: “You have had much to contemplate over these days together. We have chosen this time in prayer to give healing and peace …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

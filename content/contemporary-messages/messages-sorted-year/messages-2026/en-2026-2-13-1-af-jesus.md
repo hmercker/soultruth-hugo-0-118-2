@@ -1,7 +1,7 @@
 ---
 title: "Faith and the Soul 6: Have Faith in the Power of God's Love to Bring You into Communion with Angels and Alignment with God "
 menu_title: ""
-description: "Faith and the Soul 6: Have Faith in the Power of God's Love to Bring You into Communion with Angels and Alignment with God "
+description: "Jesus, received by Al Fike: “May the peace that passes all understanding be yours, my beloveds. You have complied with God’s Will and plan as you …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

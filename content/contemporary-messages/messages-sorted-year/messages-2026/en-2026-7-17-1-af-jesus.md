@@ -1,7 +1,7 @@
 ﻿---
 title: "Open Your Soul to the Gift of Divine Love"
 menu_title: ""
-description: "Open Your Soul to the Gift of Divine Love"
+description: "Jesus, received by Al Fike: “Blessed be the children who seek the Truth of God, that their souls may open and receive this great benediction of Love from …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

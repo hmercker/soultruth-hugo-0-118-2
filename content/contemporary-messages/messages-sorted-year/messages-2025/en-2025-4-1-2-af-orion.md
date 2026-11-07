@@ -1,7 +1,7 @@
 ---
 title: "Answer the Call"
 menu_title: ""
-description: "Answer the Call"
+description: "Orion, received by Al Fike: “At least for you upon this Earth, there are trials, tribulations, struggles and obstructions.”"
 date: 2025-04-08 07:21:03+11:00
 draft: False
 hidden: True

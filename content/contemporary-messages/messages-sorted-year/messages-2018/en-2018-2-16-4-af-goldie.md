@@ -1,7 +1,7 @@
 ---
 title: "Bring Music!"
 menu_title: ""
-description: "Bring Music!"
+description: "Goldie, received by Al Fike: “Bring music into this place. Bring those whose hearts are stirred by the beautiful sounds and voices, instruments of music …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

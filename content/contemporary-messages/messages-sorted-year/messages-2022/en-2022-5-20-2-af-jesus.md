@@ -1,7 +1,7 @@
 ---
 title: "Brings an Everlasting Gift to Our Souls"
 menu_title: ""
-description: "Brings an Everlasting Gift to Our Souls"
+description: "Jesus, received by Al Fike: “You are being given a gift, a gift to help ease your journey through life. A light that shall stay with you, beloveds, and …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

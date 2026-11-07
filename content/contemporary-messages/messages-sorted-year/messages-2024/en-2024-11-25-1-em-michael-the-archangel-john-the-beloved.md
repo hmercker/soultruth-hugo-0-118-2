@@ -1,7 +1,7 @@
 ---
 title: "Greatest Happiness Lies Between You and Our Heavenly Father"
 menu_title: ""
-description: "Greatest Happiness Lies Between You and Our Heavenly Father"
+description: "Michael the Archangel & John the Beloved, received by Elizabeth Mack: “I live very high up (above) the Celestial Spheres and I serve my Father in all …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

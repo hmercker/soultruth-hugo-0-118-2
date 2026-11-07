@@ -1,7 +1,7 @@
 ---
 title: "The Importance of Circles of Light and Our Callings"
 menu_title: ""
-description: "The Importance of Circles of Light and Our Callings"
+description: "Augustine, received by Al Fike: “Dear gracious souls, may His Love continue to flow into your soul awakening all of those beautiful parts that lie within …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

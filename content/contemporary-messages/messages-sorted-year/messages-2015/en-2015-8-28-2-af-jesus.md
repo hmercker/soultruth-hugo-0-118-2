@@ -1,7 +1,7 @@
 ﻿---
 title: "Be a Light and take Part in the Plan for the Salvation of Mankind"
 menu_title: ""
-description: "Be a Light and take Part in the Plan for the Salvation of Mankind"
+description: "Jesus, received by Al Fike: “You have learned much while you were here in this place of love. You have been given respite, your souls have been nurtured …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

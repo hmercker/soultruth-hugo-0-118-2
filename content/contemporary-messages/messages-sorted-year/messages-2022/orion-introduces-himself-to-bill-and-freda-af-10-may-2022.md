@@ -1,7 +1,7 @@
 ---
 title: "Orion introduces Himself to Bill and Freda"
 menu_title: ""
-description: "Orion introduces Himself to Bill and Freda"
+description: "Received by Al Fike: “I too greet you, my friends. There are many myths and many ideas, many things full of fear and projection and misunderstanding in …”"
 date: 2022-06-20 07:21:03+11:00
 draft: False
 hidden: True

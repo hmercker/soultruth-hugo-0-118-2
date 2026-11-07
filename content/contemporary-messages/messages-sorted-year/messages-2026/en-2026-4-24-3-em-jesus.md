@@ -1,7 +1,7 @@
 ﻿---
 title: "Tell City Pentecost"
 menu_title: ""
-description: "Tell City Pentecost"
+description: "Jesus, received by Elizabeth Mack: “Feel His Love coming through us. Feel the strength of that Love and of that blessing that is being bestowed upon us at …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

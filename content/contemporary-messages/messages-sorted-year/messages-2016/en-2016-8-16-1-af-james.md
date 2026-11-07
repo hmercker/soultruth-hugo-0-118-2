@@ -1,7 +1,7 @@
 ---
 title: "Express the Potentials of your awakening Souls"
 menu_title: ""
-description: "Express the Potentials of your awakening Souls"
+description: "James, received by Al Fike: “Oh this world is a noisy place is it not? So many distractions from your spiritual pursuits as the world busily goes about its …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

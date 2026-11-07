@@ -1,7 +1,7 @@
 ﻿---
 title: "Move Beyond the First Stage of Awakening and Lift Your Planet into Harmony"
 menu_title: ""
-description: "Move Beyond the First Stage of Awakening and Lift Your Planet into Harmony"
+description: "Orion, received by Al Fike: “The world is waiting for this, my friends. As we continue to make our progress, as we continue in our dedications, in our …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

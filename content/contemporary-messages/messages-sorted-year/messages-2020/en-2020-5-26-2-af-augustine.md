@@ -1,7 +1,7 @@
 ---
 title: "Your Souls Have Led You to this Circle"
 menu_title: ""
-description: "Your Souls Have Led You to this Circle"
+description: "Augustine, received by Al Fike: “You have each found your way to this Circle, not by happenstance, but because your souls have found their way to this …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

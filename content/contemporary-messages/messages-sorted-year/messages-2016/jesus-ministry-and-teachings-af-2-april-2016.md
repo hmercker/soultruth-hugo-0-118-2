@@ -1,7 +1,7 @@
 ---
 title: "Jesus’ Ministry and the Teachings of Divine Love"
 menu_title: "Jesus’ Ministry and the Teachings of Divine Love"
-description: "Jesus’ Ministry and the Teachings of Divine Love"
+description: "Received by Al Fike: “I have come to talk about my ministry, to talk about my life while I was here on this Earth, to talk about the fulfilment of those …”"
 date: 2016-04-24 23:18:20+00:00
 draft: False
 hidden: True

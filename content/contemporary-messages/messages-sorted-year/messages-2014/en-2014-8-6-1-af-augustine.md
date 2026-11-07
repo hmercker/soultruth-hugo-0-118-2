@@ -1,7 +1,7 @@
 ﻿---
 title: "I would urge my charges to continue in your prayers to seek the Father’s Love"
 menu_title: ""
-description: "I would urge my charges to continue in your prayers to seek the Father’s Love"
+description: "Augustine, received by Al Fike: “Blessed children of the Father’s Love, it is Augustine your teacher. And yes, they will arrive at their destination …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

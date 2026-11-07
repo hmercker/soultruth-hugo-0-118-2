@@ -1,7 +1,7 @@
 ---
 title: "Call on Us When You Are in Need"
 menu_title: ""
-description: "Call on Us When You Are in Need"
+description: "Judas, received by Jimbeau Walsh: “There are so many here and we wanted to allow our new brother to speak because what he wanted to contribute was within …”"
 date: 2025-04-08 07:21:03+11:00
 draft: False
 hidden: True

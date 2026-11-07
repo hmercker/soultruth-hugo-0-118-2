@@ -1,7 +1,7 @@
 ---
 title: "Have Faith and Be With God"
 menu_title: ""
-description: "Have Faith and Be With God"
+description: "Orion, received by Al Fike: “There are times when you seem overwhelmed with these conditions. You are so entrenched within them that you do not feel, hear …”"
 date: 2025-04-15 07:21:03+11:00
 draft: False
 hidden: True

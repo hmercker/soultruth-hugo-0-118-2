@@ -1,7 +1,7 @@
 ﻿---
 title: "Pray together and support one another in loving Ways"
 menu_title: ""
-description: "Pray together and support one another in loving Ways"
+description: "Andrew, received by Al Fike: “God has brought you together, my beloveds. He has orchestrated this time together.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

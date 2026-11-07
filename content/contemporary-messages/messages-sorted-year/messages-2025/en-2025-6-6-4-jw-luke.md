@@ -1,7 +1,7 @@
 ---
 title: "May you all be healed in the balm of God’s love"
 menu_title: ""
-description: "May you all be healed in the balm of God’s love"
+description: "Luke, received by Jimbeau Walsh: “Be at peace in the love of God. Allow your concerns to dissipate, and all these protective walls that you have erected to …”"
 date: 2025-06-18 07:21:03+00:00
 draft: False
 hidden: True

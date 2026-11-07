@@ -1,7 +1,7 @@
 ---
 title: "Through the Integration of Divine Love Into Every Aspect of Your Being, You Become a Powerful Emitter of God's Essence"
 menu_title: ""
-description: "Through the Integration of Divine Love Into Every Aspect of Your Being, You Become a Powerful Emitter of God's Essence"
+description: "Alec Gaunt, received by Maureen Cardoso: “As your souls continue to reach out to God, to be open and receptive, you receive a mighty inflowing of that …”"
 date: 2025-06-18 07:21:03+11:00
 draft: False
 hidden: True

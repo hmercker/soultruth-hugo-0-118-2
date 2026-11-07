@@ -1,7 +1,7 @@
 ﻿---
 title: "Cherish this Light"
 menu_title: ""
-description: "Cherish this Light"
+description: "Augustine, received by Al Fike: “You have each received the blessing of the Father’s Love within your souls. Take this Gift into your lives.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

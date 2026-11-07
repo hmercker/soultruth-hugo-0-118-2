@@ -1,7 +1,7 @@
 ﻿---
 title: "The Nature of Reality"
 menu_title: ""
-description: "The Nature of Reality"
+description: "Orion, received by Al Fike: “Again I come to speak to you and I thank you for the opportunity to do so. I wish to speak about the nature of reality.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

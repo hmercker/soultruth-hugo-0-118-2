@@ -1,7 +1,7 @@
 ---
 title: "Allow God to Uplift You"
 menu_title: ""
-description: "Allow God to Uplift You"
+description: "Jesus, received by Al Fike: “You are gifted with peace. You are gifted with an opportunity in your daily lives to be in communion with God, to have time in …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

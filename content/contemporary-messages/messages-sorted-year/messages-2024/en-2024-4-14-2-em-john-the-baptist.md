@@ -1,7 +1,7 @@
 ---
 title: "Touch Their Souls with That Sacred Gift That You Have"
 menu_title: ""
-description: "Touch Their Souls with That Sacred Gift That You Have"
+description: "John the Baptist, received by Elizabeth Mack: “Truth is a valuable commodity, especially on the Earth plane. You, dear children, carry within you the truth …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

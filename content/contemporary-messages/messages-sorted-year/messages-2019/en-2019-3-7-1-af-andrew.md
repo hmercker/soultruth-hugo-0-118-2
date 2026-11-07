@@ -1,7 +1,7 @@
 ---
 title: "We Are With You in This Circle of Light"
 menu_title: ""
-description: "We Are With You in This Circle of Light"
+description: "Andrew, received by Al Fike: “We are with each dear soul who is venturing forward to come. They will indeed have an angel with them.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

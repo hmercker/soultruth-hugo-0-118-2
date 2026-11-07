@@ -1,7 +1,7 @@
 ---
 title: "Trust and Change"
 menu_title: ""
-description: "Trust and Change"
+description: "Mahatma Gandhi, received by Maureen Cardoso: “I join you in your Circle of Light longing for the great blessing of God's Love. May I speak to you about …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

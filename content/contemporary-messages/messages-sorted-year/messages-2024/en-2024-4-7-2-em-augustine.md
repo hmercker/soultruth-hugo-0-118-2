@@ -1,7 +1,7 @@
 ---
 title: "Trust What You Have Been Given"
 menu_title: ""
-description: "Trust What You Have Been Given"
+description: "Augustine, received by Elizabeth Mack: “All of this you will appreciate more as you continue to grow in this love. Of these qualities and gifts, one which …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "God’s Universe is Filled with Love"
 menu_title: ""
-description: "God’s Universe is Filled with Love"
+description: "Orion, received by Al Fike: “That God created a universe filled with love and has created a universe that strives toward harmony, God also created a …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

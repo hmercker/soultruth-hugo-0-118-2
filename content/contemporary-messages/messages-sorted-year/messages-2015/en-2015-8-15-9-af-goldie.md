@@ -1,7 +1,7 @@
 ﻿---
 title: "I come to help you to laugh and to feel Joy"
 menu_title: ""
-description: "I come to help you to laugh and to feel Joy"
+description: "Goldie, received by Al Fike: “Although you’ve heard from few of us, know that there are many of us that come to you to support you and love you and bring …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

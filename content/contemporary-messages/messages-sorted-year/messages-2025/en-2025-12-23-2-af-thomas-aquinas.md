@@ -1,7 +1,7 @@
 ---
 title: "The True Meaning of Christmas is Love"
 menu_title: ""
-description: "The True Meaning of Christmas is Love"
+description: "Thomas Aquinas, received by Al Fike: “I do not speak often through this instrument, but today I have the privilege of doing so. It took some time for me to …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

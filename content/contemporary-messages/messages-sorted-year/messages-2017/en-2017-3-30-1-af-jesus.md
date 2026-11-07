@@ -1,7 +1,7 @@
 ---
 title: "Help Others Find the Truth of the Father's Love"
 menu_title: ""
-description: "Help Others Find the Truth of the Father's Love"
+description: "Jesus, received by Al Fike: “I wish to assure you that I did not suffer as greatly as you might imagine, that my Heavenly Father made sure that my body was …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

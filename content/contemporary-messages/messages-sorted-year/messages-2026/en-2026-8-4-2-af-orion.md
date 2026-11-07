@@ -1,7 +1,7 @@
 ﻿---
 title: "Be Free of Your Own Human Condition to Become a True Agent of God"
 menu_title: ""
-description: "Be Free of Your Own Human Condition to Become a True Agent of God"
+description: "Orion, received by Al Fike: “The consequences of human endeavour are quite plain to see, is it not, my friends? As fires rage and heat builds, conditions …”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

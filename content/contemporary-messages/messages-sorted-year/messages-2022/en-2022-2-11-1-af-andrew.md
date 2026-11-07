@@ -1,7 +1,7 @@
 ---
 title: "Prayers for the Transformation of our Souls and World"
 menu_title: ""
-description: "Prayers for the Transformation of our Souls and World"
+description: "Andrew, received by Al Fike: “The world will be uplifted in love. Despite all the heartaches and pains, challenges, and disappointments that come in your …”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Will Enter The Celestial Heavens Soon"
 menu_title: ""
-description: "Will Enter The Celestial Heavens Soon"
+description: "James Reid, received by Al Fike: “I've come because I wish to share with you a great triumph in my spiritual life in the world of spirit, and that is that …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

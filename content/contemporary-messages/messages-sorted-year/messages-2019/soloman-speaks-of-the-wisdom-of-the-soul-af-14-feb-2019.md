@@ -1,7 +1,7 @@
 ---
 title: "Solomon Speaks of Wisdom of the Soul"
 menu_title: ""
-description: "Solomon Speaks of Wisdom of the Soul"
+description: "Received by Al Fike: “On your Earth plane, you concern yourselves with the wisdom of your mind and wonder about the wisdom of your souls.”"
 date: 2020-08-17 07:21:03+11:00
 draft: False
 hidden: True

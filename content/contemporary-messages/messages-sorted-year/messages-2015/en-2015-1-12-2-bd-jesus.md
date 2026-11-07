@@ -1,7 +1,7 @@
 ﻿---
 title: "You have a deep Purpose"
 menu_title: ""
-description: "You have a deep Purpose"
+description: "Jesus, received by Barbara Davies: “There is so much pain and suffering with the lost. You must let this flow for all the lives you touch brings peace and …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

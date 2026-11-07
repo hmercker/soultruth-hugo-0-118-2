@@ -1,7 +1,7 @@
 ﻿---
 title: "Beyond Earthly Life: God's Care for the Transitioned Soul"
 menu_title: ""
-description: "Beyond Earthly Life: God's Care for the Transitioned Soul"
+description: "Seretta Kem, received by Maureen Cardoso: “You have prayed a significant prayer where you asked God to help you with the longings of the soul.”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

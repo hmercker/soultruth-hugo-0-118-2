@@ -1,7 +1,7 @@
 ---
 title: "The Power of Prayer"
 menu_title: ""
-description: "The Power of Prayer"
+description: "Keea Atta Kem, received by Al Fike: “And I urge you, my beloved and beautiful brothers and sisters, use the power of prayer to help save your world, to …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

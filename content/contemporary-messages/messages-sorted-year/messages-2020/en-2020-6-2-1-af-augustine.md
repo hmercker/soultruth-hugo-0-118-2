@@ -1,7 +1,7 @@
 ---
 title: "You Have Heard the Bell Toll and Responded"
 menu_title: ""
-description: "You Have Heard the Bell Toll and Responded"
+description: "Augustine, received by Al Fike: “How it uplifts our hearts to see each one of you step upon the Path Divine and that each of you are reaching out to your …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

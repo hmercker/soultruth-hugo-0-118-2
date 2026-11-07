@@ -1,7 +1,7 @@
 ﻿---
 title: "To be in good physical and spiritual Condition, helps to bring Blessings"
 menu_title: ""
-description: "To be in good physical and spiritual Condition, helps to bring Blessings"
+description: "Seretta Kem, received by Al Fike: “I have come to give you instructions for your journey. I would ask all of you who are planning to travel to make an …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

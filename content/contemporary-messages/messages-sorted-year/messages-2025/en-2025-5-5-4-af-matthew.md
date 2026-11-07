@@ -1,7 +1,7 @@
 ---
 title: "Have Compassion for the Lost Souls"
 menu_title: ""
-description: "Have Compassion for the Lost Souls"
+description: "Matthew, received by Al Fike: “As you have walked around this city (San Francisco) and you have encountered people engaged in life, do you see how they are …”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

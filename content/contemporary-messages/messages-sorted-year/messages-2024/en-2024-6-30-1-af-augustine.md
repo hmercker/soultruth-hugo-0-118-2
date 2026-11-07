@@ -1,7 +1,7 @@
 ---
 title: "Trust More, Gain Greater Consciousness"
 menu_title: ""
-description: "Trust More, Gain Greater Consciousness"
+description: "Augustine, received by Al Fike: “…invigorated by your prayers, beloved souls. Even though you sit as a small group, your efforts and prayers have touched …”"
 date: 2025-04-08 07:21:03+00:00
 draft: False
 hidden: True

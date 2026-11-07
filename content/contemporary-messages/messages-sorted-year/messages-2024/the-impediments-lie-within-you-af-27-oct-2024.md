@@ -1,5 +1,6 @@
 ---
 title: "The Impediments to Being With God Lie Within You"
+description: "Received by Al Fike: “Of all the history of humanity’s struggles, you live in a time where you are assured that your material needs are met.”"
 menu_title: "Augustine says The Impediments to Being With God Lie Within You"
 date: 2024-12-15 07:21:03+11:00
 draft: False

@@ -1,7 +1,7 @@
 ﻿---
 title: "I pray that you will hear my Words"
 menu_title: ""
-description: "I pray that you will hear my Words"
+description: "Martin Luther, received by Al Fike: “And each one here knows God within their hearts, understands this Love and is open to its influence and blessing.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

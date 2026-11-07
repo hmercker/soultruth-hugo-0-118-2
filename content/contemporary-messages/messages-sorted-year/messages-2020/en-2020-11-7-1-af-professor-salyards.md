@@ -1,7 +1,7 @@
 ---
 title: "Guidance for the University of the Soul"
 menu_title: ""
-description: "Guidance for the University of the Soul"
+description: "Professor Salyards, received by Al Fike: “You will be exploring new paradigms of thought and approach. You will be guided as to how to implement these new …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

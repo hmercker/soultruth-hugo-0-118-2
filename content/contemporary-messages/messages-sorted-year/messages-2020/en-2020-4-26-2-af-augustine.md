@@ -1,7 +1,7 @@
 ---
 title: "The Overriding Power of Divine Love is the True Force That Will Bring Change"
 menu_title: ""
-description: "The Overriding Power of Divine Love is the True Force That Will Bring Change"
+description: "Augustine, received by Al Fike: “As you well know, there are many forms of love in the world that humanity has been blessed with the capacity to love, in …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

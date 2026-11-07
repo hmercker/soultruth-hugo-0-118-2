@@ -1,7 +1,7 @@
 ---
 title: "To Be Open is a Gift"
 menu_title: ""
-description: "To Be Open is a Gift"
+description: "Elizabeth, received by Elizabeth Mack: “I watch as you grow in your love, as you grow and develop in your gifts, in your abilities to transmit to other …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

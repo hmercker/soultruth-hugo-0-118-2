@@ -1,7 +1,7 @@
 ---
 title: "Celebrates the Joy of Life!"
 menu_title: ""
-description: "Celebrates the Joy of Life!"
+description: "Orion, received by Al Fike: “… be yours, beautiful friends. The blessings of a soul yearning for God.”"
 date: 2025-05-19 07:21:03+11:00
 draft: False
 hidden: True

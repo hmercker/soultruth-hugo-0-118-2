@@ -1,7 +1,7 @@
 ---
 title: "Never Ending Joy and Bliss"
 menu_title: ""
-description: "Never Ending Joy and Bliss"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “In these times of great change upon the earth, you find yourselves needing to be in prayer, needing the …”"
 date: 2025-05-18 07:21:03+00:00
 draft: False
 hidden: True

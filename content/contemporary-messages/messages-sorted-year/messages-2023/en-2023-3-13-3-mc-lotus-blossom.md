@@ -1,7 +1,7 @@
 ---
 title: "Deep Blessing of Healing for Circle of Seven"
 menu_title: ""
-description: "Deep Blessing of Healing for Circle of Seven"
+description: "Lotus Blossom, received by Maureen Cardoso: “This allows more freedom and expression of the grace of your soul, the wisdom, the truths, and the desire to …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

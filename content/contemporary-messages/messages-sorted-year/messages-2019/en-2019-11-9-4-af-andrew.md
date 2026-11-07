@@ -1,7 +1,7 @@
 ---
 title: "May the Father's Love Wash Over You"
 menu_title: ""
-description: "May the Father's Love Wash Over You"
+description: "Andrew, received by Al Fike: “May the Father’s Love wash over each one of you. May you absorb His Love so that you may come to see that God has given each …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

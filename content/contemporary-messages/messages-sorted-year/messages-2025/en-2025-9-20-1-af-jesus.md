@@ -1,7 +1,7 @@
 ---
 title: "Carry the Flame of Love and Truth"
 menu_title: ""
-description: "Carry the Flame of Love and Truth"
+description: "Jesus, received by Al Fike: “Blessed are those who carry the flame of truth in a world that is dark. May you be strong and faithful and carry this flame …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

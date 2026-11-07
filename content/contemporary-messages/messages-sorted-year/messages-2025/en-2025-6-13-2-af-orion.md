@@ -1,7 +1,7 @@
 ---
 title: "The Destiny of Humanity in the Universe"
 menu_title: ""
-description: "The Destiny of Humanity in the Universe"
+description: "Orion, received by Al Fike: “May a tidal wave of God's Love wash over each one of you, washing you, uplifting you, bringing you into greater harmony with …”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

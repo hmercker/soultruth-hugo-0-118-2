@@ -1,7 +1,7 @@
 ---
 title: "A Gift Suggestion for Each Weary Traveller"
 menu_title: ""
-description: "A Gift Suggestion for Each Weary Traveller"
+description: "Goldie, received by Al Fike: “Can you give each one who comes through the door a little flower, a little gift, a ray of sunshine for them?”"
 date: 2025-07-01T00:00:00Z
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Mighty Blessing of Love"
 menu_title: ""
-description: "Mighty Blessing of Love"
+description: "Jesus, received by Al Fike: “May the peace that passes all understanding be yours, my beloved brethren. As you pray for this gift, so you long for …”"
 date: 2025-07-06 07:21:03+11:00
 draft: False
 hidden: True

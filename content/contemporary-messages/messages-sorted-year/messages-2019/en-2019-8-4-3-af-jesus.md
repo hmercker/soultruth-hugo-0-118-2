@@ -1,7 +1,7 @@
 ---
 title: "Blessed Are the Children of Light"
 menu_title: ""
-description: "Blessed Are the Children of Light"
+description: "Jesus, received by Al Fike: “Blessed are the children of Light who heed the call of God’s Love, who carry the lantern of God’s Truth, who seek to know …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

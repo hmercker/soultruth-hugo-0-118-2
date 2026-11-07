@@ -1,7 +1,7 @@
 ---
 title: "God will orchestrate the opportunities to connect"
 menu_title: ""
-description: "God will orchestrate the opportunities to connect"
+description: "Michael Collier, received by Al Fike: “I wish to commend you on your efforts for the last few days. I wish to commend all the angels that worked so very …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

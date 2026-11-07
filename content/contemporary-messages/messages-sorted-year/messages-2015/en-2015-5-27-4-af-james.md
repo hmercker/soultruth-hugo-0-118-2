@@ -1,7 +1,7 @@
 ﻿---
 title: "Choose to be in the Light of God’s Love"
 menu_title: ""
-description: "Choose to be in the Light of God’s Love"
+description: "James, received by Al Fike: “And in this flow of love, all that which is around you comes into harmony joining this joyful flow with you as this Light …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

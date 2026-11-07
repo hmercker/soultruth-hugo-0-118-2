@@ -1,7 +1,7 @@
 ---
 title: "We are 100% With You in Our Efforts to Keep You in the Light"
 menu_title: ""
-description: "We are 100% With You in Our Efforts to Keep You in the Light"
+description: "Orion, received by Al Fike: “I thank you for your dedication, your consistency and your prayers. For if the entire world were as dedicated as you, what a …”"
 date: 2025-03-24 07:21:03+11:00
 draft: False
 hidden: True

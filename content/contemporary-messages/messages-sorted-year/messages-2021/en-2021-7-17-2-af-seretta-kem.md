@@ -1,7 +1,7 @@
 ---
 title: "You Will Know When to Step Forward"
 menu_title: ""
-description: "You Will Know When to Step Forward"
+description: "Seretta Kem, received by Al Fike: “Don’t you feel the enthusiasm building within your souls as you come closer to that date where you will come together?”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

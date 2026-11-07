@@ -1,7 +1,7 @@
 ---
 title: "Orion Introduces Himself"
 menu_title: ""
-description: "Orion Introduces Himself"
+description: "Received by Al Fike: “I thank you for inviting me into your circle. Yet how unfortunate it is that so many of you upon this planet are blind and deaf and …”"
 date: 2022-06-10 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Q & A with Michael Collier"
 menu_title: ""
-description: "Q & A with Michael Collier"
+description: "Michael Collier, received by Al Fike: “Michael Collier: Blessings and greetings to you, my friends. Although where I reside, England does not exist.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

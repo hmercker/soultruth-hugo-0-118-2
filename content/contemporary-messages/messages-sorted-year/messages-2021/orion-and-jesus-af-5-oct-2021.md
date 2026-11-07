@@ -1,7 +1,7 @@
 ---
 title: "Orion Describes Himself and His Planet – Jesus Affirms Orion is Here to Help us on Earth"
 menu_title: ""
-description: "Orion Describes Himself and His Planet – Jesus Affirms Orion is Here to Help us on Earth"
+description: "Received by Al Fike: “I have come because you have spoken of me and are curious about me and my friends who come with me.”"
 date: 2021-10-13 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Earth Changes and Aloneness in Community"
 menu_title: ""
-description: "Earth Changes and Aloneness in Community"
+description: "Eileen Caddy, received by Jimbeau Walsh: “May the Love of God be upon us and in us and through us. As you have been told concerning the spirit world as …”"
 date: 2026-08-03 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "A Seeker Receives an Invitation"
 menu_title: ""
-description: "A Seeker Receives an Invitation"
+description: "Moses, received by Elizabeth Mack: “Of this Divine Love, I seek it far and wide and yet, I find it here, in this humble circle.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

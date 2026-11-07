@@ -1,7 +1,7 @@
 ---
 title: "Affirms Message from James Padgett"
 menu_title: ""
-description: "Affirms Message from James Padgett"
+description: "Dr Leslie Stone, received by Al Fike: “I wish to reinforce my beloved brother’s message. I too, want to encourage you on this path of service.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

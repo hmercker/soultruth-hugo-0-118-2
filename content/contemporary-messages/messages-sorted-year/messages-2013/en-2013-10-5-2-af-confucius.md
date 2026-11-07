@@ -1,7 +1,7 @@
 ﻿---
 title: "Seek the Love of God with every Breath, and you will know the Glory of Flight"
 menu_title: ""
-description: "Seek the Love of God with every Breath, and you will know the Glory of Flight"
+description: "Confucius, received by Al Fike: “My children, it is Confucius. And I love you and I bring my love and healing to you, my children.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "A Progress Report"
 menu_title: ""
-description: "A Progress Report"
+description: "Daniel, received by Elizabeth Mack: “You may be expecting much success and this will be accomplished. However, it will take Earth time to change the minds …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

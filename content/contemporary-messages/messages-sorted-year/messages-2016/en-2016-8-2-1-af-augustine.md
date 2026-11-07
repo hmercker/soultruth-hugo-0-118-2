@@ -1,7 +1,7 @@
 ﻿---
 title: "Teaching the Lesson of Love"
 menu_title: ""
-description: "Teaching the Lesson of Love"
+description: "Augustine, received by Al Fike: “I have been with you as you have worked today to bring about some lessons and teachings that you will spread over the …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

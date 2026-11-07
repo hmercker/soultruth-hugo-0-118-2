@@ -1,7 +1,7 @@
 ﻿---
 title: "Awaken, Receive and Become the Light"
 menu_title: ""
-description: "Awaken, Receive and Become the Light"
+description: "Jesus, received by Al Fike: “The door to God's Love is open to you. You have discovered the greatest and highest gift that God has to give to His children.”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Revealing the Existence of Stellar Friends Will Open Doors to Your Instrumentality"
 menu_title: ""
-description: "Revealing the Existence of Stellar Friends Will Open Doors to Your Instrumentality"
+description: "Orion, received by Al Fike: “The consciousness of soul is growing within each one of you. You are awakening to this reality, the power of this perception …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

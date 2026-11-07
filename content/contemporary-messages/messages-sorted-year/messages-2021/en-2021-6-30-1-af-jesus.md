@@ -1,7 +1,7 @@
 ---
 title: "Comes to Pray with Us"
 menu_title: ""
-description: "Comes to Pray with Us"
+description: "Jesus, received by Al Fike: “Nonetheless I have come through all of these ages of time to be with my brothers and sisters upon the Earth and shall continue …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

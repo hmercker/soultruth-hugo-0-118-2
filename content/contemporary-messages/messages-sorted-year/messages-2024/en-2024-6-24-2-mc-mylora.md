@@ -1,7 +1,7 @@
 ---
 title: "Awaken, Children of God"
 menu_title: ""
-description: "Awaken, Children of God"
+description: "Mylora, received by Maureen Cardoso: “Blessings from your souls to this world. God’s children have many blessings to share with all upon this Earth.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

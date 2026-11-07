@@ -1,7 +1,7 @@
 ---
 title: "I am Redeemed by the Gift of God's Love"
 menu_title: ""
-description: "I am Redeemed by the Gift of God's Love"
+description: "Yogananda, received by Al Fike: “You wonder, one such as I, whether I am in the Celestial Heavens where the teachings of Jesus reigns supreme.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Do not waste your Life in idle Pursuits"
 menu_title: ""
-description: "Do not waste your Life in idle Pursuits"
+description: "Confucius, received by Al Fike: “Wherever you are, my children, you are channels of light. Whatever you do, make this an expression of God’s will.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Be generous, do not judge but love, be joyous in your Work"
 menu_title: ""
-description: "Be generous, do not judge but love, be joyous in your Work"
+description: "James, received by Al Fike: “Continue in these efforts. Beseech your Heavenly Father for guidance with each day and make those efforts to be in good …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

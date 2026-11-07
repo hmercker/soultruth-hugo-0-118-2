@@ -1,7 +1,7 @@
 ---
 title: "Express the truth to others. Padgett talks of why this is so important"
 menu_title: "Express the truth to others."
-description: "Express the truth to others. Padgett talks of why this is so important"
+description: "James Padgett, received by Al Fike: “I have been asked to speak to you and it is my honor and privilege to do so in this gathering of beautiful souls.”"
 date: 2016-10-10 21:48:44+00:00
 draft: False
 hidden: True

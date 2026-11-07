@@ -1,7 +1,7 @@
 ---
 title: "Encouragement to Visit Sacred Sites When Travelling"
 menu_title: ""
-description: "Encouragement to Visit Sacred Sites When Travelling"
+description: "Eileen Caddy, received by Jimbeau Walsh: “Thank you for taking my prompt and your willingness to allow me to continue my conversation with the Divine Love …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

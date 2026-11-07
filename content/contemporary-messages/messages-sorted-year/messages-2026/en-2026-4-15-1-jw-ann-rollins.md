@@ -1,7 +1,7 @@
 ﻿---
 title: "Prayer, your Soul, and the World"
 menu_title: ""
-description: "Prayer, your Soul, and the World"
+description: "Ann Rollins, received by Jimbeau Walsh: “I wish you to consider a few things, whether you are new to this path or a sojourner of many years.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

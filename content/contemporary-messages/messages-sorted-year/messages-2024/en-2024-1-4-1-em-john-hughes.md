@@ -1,7 +1,7 @@
 ---
 title: "Soul, Spirit, Physical Body Will Be One Again"
 menu_title: ""
-description: "Soul, Spirit, Physical Body Will Be One Again"
+description: "John Hughes, received by Elizabeth Mack: “(Be) at one with your soul. God provides us with many expressions of His Love.”"
 date: 2025-07-19 07:21:03+11:00
 draft: False
 hidden: True

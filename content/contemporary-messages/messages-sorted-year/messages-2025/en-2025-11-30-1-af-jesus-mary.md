@@ -1,7 +1,7 @@
 ---
 title: "You Are Part of God's Plan for the Healing of the World"
 menu_title: ""
-description: "You Are Part of God's Plan for the Healing of the World"
+description: "Jesus & Mary, received by Al Fike: “Jesus: The world waits for healing and redemption. We are all connected to this world of yours, whether we live in the …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Be humble and true within yourself"
 menu_title: ""
-description: "Be humble and true within yourself"
+description: "Jesus, received by Al Fike: “…… and the kingdom is God’s Love. So simple my beloveds so simple, yet this is the most powerful truth of all, to know of the …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Healings and Blessings"
 menu_title: ""
-description: "Healings and Blessings"
+description: "Lotus Blossom, received by Al Fike: “I have brought to each of you many colors of healing for your needs, your physical needs, and your spiritual needs.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "God has you firmly in His Hands"
 menu_title: ""
-description: "God has you firmly in His Hands"
+description: "Goldie, received by Al Fike: “My friend does not like my sense of humour (giggles). But now you see your blessings coming and you have given up that which …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

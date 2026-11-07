@@ -1,7 +1,7 @@
 ---
 title: "Message to Padgett Study Group"
 menu_title: ""
-description: "Message to Padgett Study Group"
+description: "Yogananda, received by Jimbeau Walsh: “Our dear brother James Padgett has allowed me to step forward today. I should like to begin by saying that I was not …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

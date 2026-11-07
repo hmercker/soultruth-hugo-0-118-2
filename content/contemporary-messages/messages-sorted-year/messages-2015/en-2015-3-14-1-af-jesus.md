@@ -1,7 +1,7 @@
 ﻿---
 title: "Your Soul’s desire to serve God"
 menu_title: ""
-description: "Your Soul’s desire to serve God"
+description: "Jesus, received by Al Fike: “Such great joy I feel as you speak about the desire to serve your Heavenly Father, or is this not the essence of my teachings …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

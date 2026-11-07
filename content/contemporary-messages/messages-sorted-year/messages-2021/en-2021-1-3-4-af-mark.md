@@ -1,7 +1,7 @@
 ---
 title: "New Year Address at First Spiritualist Church"
 menu_title: ""
-description: "New Year Address at First Spiritualist Church"
+description: "Mark, received by Al Fike: “The one who works with all of you to bring greater light to your lives, to your beings. God will provide all the ways and means …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

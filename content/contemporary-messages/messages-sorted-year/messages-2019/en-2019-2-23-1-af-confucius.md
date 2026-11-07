@@ -1,7 +1,7 @@
 ---
 title: "May You Come to Know God's Blessings"
 menu_title: ""
-description: "May You Come to Know God's Blessings"
+description: "Confucius, received by Al Fike: “… be with you beloved souls. As you continue to journey forth in the world, may you come to know the deep blessings of …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

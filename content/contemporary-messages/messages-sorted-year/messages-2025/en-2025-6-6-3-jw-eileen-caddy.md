@@ -1,7 +1,7 @@
 ---
 title: "When you create for the sake of others in God’s love"
 menu_title: ""
-description: "When you create for the sake of others in God’s love"
+description: "Eileen Caddy, received by Jimbeau Walsh: “May God’s love infill your souls. When you come together as you have in this sacred circle, you draw many, many …”"
 date: 2025-06-18 07:21:03+00:00
 draft: False
 hidden: True

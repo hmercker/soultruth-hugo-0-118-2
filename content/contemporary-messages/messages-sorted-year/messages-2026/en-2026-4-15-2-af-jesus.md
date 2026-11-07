@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessed Are Those Who Are Willing to Deliver the Word of God"
 menu_title: ""
-description: "Blessed Are Those Who Are Willing to Deliver the Word of God"
+description: "Jesus, received by Al Fike: “The Breath of God has been upon you, my beloveds. You have felt the power of His Touch.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

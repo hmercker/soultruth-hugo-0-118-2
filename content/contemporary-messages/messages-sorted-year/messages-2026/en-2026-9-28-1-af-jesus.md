@@ -1,7 +1,7 @@
 ﻿---
 title: "Your Gathering Here is Divinely Blessed; Jesus Opens State College Retreat"
 menu_title: ""
-description: "Your Gathering Here is Divinely Blessed; Jesus Opens State College Retreat"
+description: "Jesus, received by Al Fike: “That your gathering here is significant, powerful and divinely blessed. Open yourselves fully to the blessing of the Father's …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "The Time will come when you will love yourself completely and thus love all Humanity"
 menu_title: ""
-description: "The Time will come when you will love yourself completely and thus love all Humanity"
+description: "John the Beloved, received by Al Fike: “And in this yearning, you all express yourselves to God and create a light amongst you that is powerful and …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Martha Counsels Harrow Spiritualist Church Volunteers and Members"
 menu_title: ""
-description: "Martha Counsels Harrow Spiritualist Church Volunteers and Members"
+description: "Martha, received by Al Fike: “For there are many of us who continue to work through this vessel of light, who continue to minister to those who come …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Choose to be Part of a More Harmonious World"
 menu_title: ""
-description: "Choose to be Part of a More Harmonious World"
+description: "Michael Collier, received by Al Fike: “The tide of change is coming, beloveds. It will sweep over you and everybody in this world.”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

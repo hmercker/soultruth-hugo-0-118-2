@@ -1,7 +1,7 @@
 ---
 title: "Divine Love Yoga"
 menu_title: ""
-description: "Divine Love Yoga"
+description: "Yogananda, received by Jimbeau Walsh: “I wish to speak a bit about Divine Love yoga, which is a subject I have touched on through my brother here a few …”"
 date: 2025-04-19 07:21:03+11:00
 draft: False
 hidden: True

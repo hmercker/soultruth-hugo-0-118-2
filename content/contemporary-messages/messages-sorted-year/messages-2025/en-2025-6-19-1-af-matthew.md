@@ -1,7 +1,7 @@
 ---
 title: "Consider With Patience and Flexibility the Different Levels of Guidance in Planning Efforts"
 menu_title: ""
-description: "Consider With Patience and Flexibility the Different Levels of Guidance in Planning Efforts"
+description: "Matthew, received by Al Fike: “My friends, it is Matthew. I wish to speak about the nature of guidance.”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

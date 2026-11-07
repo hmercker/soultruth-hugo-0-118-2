@@ -1,7 +1,7 @@
 ---
 title: "Drop by Drop"
 menu_title: ""
-description: "Drop by Drop"
+description: "Jesus, received by Helge Mercker: “In these blessings many things are happening within your being, most of all, the soul is stirred.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

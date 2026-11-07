@@ -1,7 +1,7 @@
 ---
 title: "Those Who Truly Seek God Shall Find Him"
 menu_title: ""
-description: "Those Who Truly Seek God Shall Find Him"
+description: "Matthew, received by Al Fike: “May the Love of God be your Love. May the Truth of God be your Truth.”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

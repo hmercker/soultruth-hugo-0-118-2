@@ -1,7 +1,7 @@
 ---
 title: "This Circle is Like a Necklace of Light"
 menu_title: ""
-description: "This Circle is Like a Necklace of Light"
+description: "Andrew, received by Al Fike: “May the Grace of God’s Love continue to infill your souls, increase your light, bring to you all that God wishes to bestow …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

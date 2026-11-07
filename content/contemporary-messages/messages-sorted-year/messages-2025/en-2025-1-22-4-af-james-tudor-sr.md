@@ -1,7 +1,7 @@
 ---
 title: "Expresses Disappointment with Cultural Changes in Barbados"
 menu_title: ""
-description: "Expresses Disappointment with Cultural Changes in Barbados"
+description: "James Tudor Sr., received by Al Fike: “I was with you, these four who came together to talk and discuss cultures and politics, all these things that I was …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

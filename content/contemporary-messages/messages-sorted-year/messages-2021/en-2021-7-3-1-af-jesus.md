@@ -1,7 +1,7 @@
 ---
 title: "Focus on What is Required"
 menu_title: ""
-description: "Focus on What is Required"
+description: "Jesus, received by Al Fike: “Your work is important, beloved souls. When you sit and pray as you do, you come together with intention and desire to serve God.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

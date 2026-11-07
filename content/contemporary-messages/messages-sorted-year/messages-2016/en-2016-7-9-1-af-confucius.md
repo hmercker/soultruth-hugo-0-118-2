@@ -1,7 +1,7 @@
 ﻿---
 title: "Pray daily for an Awakened Soul"
 menu_title: ""
-description: "Pray daily for an Awakened Soul"
+description: "Confucius, received by Al Fike: “Plunge deep within this place, for you are drawn to this Light that shall open the doors of Truth, of true understanding …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "God's Plan Will be Realized"
 menu_title: ""
-description: "God's Plan Will be Realized"
+description: "Faith Nyquist, received by Al Fike: “Now my beloveds, do you see how God works? That with patience and perseverence, with love, and the healings of your …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

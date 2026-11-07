@@ -1,7 +1,7 @@
 ---
 title: "Blessings From God Are With you"
 menu_title: ""
-description: "Blessings From God Are With you"
+description: "Augustine, received by Al Fike: “This time that you spend together, love will flow, light will cascade down from the heavenly realms.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

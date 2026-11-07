@@ -1,7 +1,7 @@
 ---
 title: "Blessing"
 menu_title: ""
-description: "Blessing"
+description: "Matthew, received by Al Fike: “The breath of God is upon each of you. Put aside your mindful thoughts and concerns.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

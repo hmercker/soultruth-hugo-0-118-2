@@ -1,7 +1,7 @@
 ---
 title: "Congratulates Mediumship Retreat Participants"
 menu_title: ""
-description: "Congratulates Mediumship Retreat Participants"
+description: "Barbara Davies, received by Al Fike: “I have overseen this production of souls coming together, laughing joyously, growing in their souls, loving one …”"
 date: 2025-03-15 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Welcome to New (Spirit) Souls to This Circle"
 menu_title: ""
-description: "Welcome to New (Spirit) Souls to This Circle"
+description: "John the Beloved, received by Elizabeth Mack: “I welcome you back to your Circle of Light, Sunday night. I welcome those new souls who have come and all of …”"
 date: 2025-07-19 07:21:03+11:00
 draft: False
 hidden: True

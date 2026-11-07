@@ -1,7 +1,7 @@
 ﻿---
 title: "Love Attracts - Your Prayers Have Touched Others - Be Truth"
 menu_title: ""
-description: "Love Attracts - Your Prayers Have Touched Others - Be Truth"
+description: "Joan of Arc, Barbara Davies & Thomas, received by Elizabeth Mack: “I believe she is now aware of my presence. Yet I come here because of the great Love …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

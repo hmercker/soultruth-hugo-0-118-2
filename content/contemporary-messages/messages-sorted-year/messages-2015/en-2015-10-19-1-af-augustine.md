@@ -1,7 +1,7 @@
 ﻿---
 title: "Choose well your next Steps"
 menu_title: ""
-description: "Choose well your next Steps"
+description: "Augustine, received by Al Fike: “You have asked for guidance and we would encourage you to speak from your souls and your hearts to allow the wisdom of …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

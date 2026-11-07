@@ -1,7 +1,7 @@
 ﻿---
 title: "Praying for Divine Love is Simple, Profound and All Changing"
 menu_title: ""
-description: "Praying for Divine Love is Simple, Profound and All Changing"
+description: "Keea Atta Kem, received by Maureen Cardoso: “The condition in this home is one of light and one of love. Each of you feel a sense of understanding to some …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

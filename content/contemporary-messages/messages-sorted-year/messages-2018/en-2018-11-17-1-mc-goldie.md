@@ -1,7 +1,7 @@
 ﻿---
 title: "Great Love and Great Joy"
 menu_title: ""
-description: "Great Love and Great Joy"
+description: "Goldie, received by Maureen Cardoso: “There is just so much joy here at this moment. I must come and let you know that I am with you.”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

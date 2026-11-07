@@ -1,7 +1,7 @@
 ---
 title: "This Is Your Time to Fulfill Your Purpose Upon This Earth"
 menu_title: ""
-description: "This Is Your Time to Fulfill Your Purpose Upon This Earth"
+description: "Andrew, received by Elizabeth Mack: “I, too, am thankful and desirous that you should continue to progress in this light of love.”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

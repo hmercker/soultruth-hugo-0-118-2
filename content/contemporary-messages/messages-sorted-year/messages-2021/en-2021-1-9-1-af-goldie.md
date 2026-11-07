@@ -1,7 +1,7 @@
 ---
 title: "The Beauty of the Flower"
 menu_title: ""
-description: "The Beauty of the Flower"
+description: "Goldie, received by Al Fike: “The beauty of the flower speaks more words of truth and of God than an entire book on the subject.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

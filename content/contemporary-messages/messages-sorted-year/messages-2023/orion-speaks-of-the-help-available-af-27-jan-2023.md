@@ -1,7 +1,7 @@
 ---
 title: "Orion speaks of the help available"
 menu_title: ""
-description: "Orion speaks of the help available"
+description: "Received by Al Fike: “Peace and love to you, my friends. We see things somewhat differently from you because we live in an environment that is not …”"
 date: 2023-01-30 07:21:03+11:00
 draft: False
 hidden: True

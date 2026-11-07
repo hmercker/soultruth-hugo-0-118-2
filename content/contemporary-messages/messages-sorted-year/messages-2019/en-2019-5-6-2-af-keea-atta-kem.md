@@ -1,7 +1,7 @@
 ---
 title: "The Blessings of God's Love"
 menu_title: ""
-description: "The Blessings of God's Love"
+description: "Keea Atta Kem, received by Al Fike: “How God does indeed bless you, beloved souls. How God brings these surprising blessings to you in your livesand in …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

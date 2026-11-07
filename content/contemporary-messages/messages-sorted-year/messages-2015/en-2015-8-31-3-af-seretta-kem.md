@@ -1,7 +1,7 @@
 ﻿---
 title: "The world is changing and needs many Souls in Service to God’s Will"
 menu_title: ""
-description: "The world is changing and needs many Souls in Service to God’s Will"
+description: "Seretta Kem, received by Al Fike: “Though this instrument is in pain, we are still able to communicate, for when Love envelopes you, the material …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

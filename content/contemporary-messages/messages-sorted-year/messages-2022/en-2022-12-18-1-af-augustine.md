@@ -1,7 +1,7 @@
 ---
 title: "The True Meaning of Christmas"
 menu_title: ""
-description: "The True Meaning of Christmas"
+description: "Augustine, received by Al Fike: “You are approaching a time where you celebrate the birth of our beloved Master Jesus, and I urge you to live his message …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

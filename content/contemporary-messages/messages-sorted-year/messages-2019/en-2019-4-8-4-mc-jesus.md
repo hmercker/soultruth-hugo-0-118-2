@@ -1,7 +1,7 @@
 ---
 title: "You Agreed to Receive and Share God's Love"
 menu_title: ""
-description: "You Agreed to Receive and Share God's Love"
+description: "Jesus, received by Maureen Cardoso: “May the Breath of God wash over each of you. May your light be illuminated by the gift of this Love.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

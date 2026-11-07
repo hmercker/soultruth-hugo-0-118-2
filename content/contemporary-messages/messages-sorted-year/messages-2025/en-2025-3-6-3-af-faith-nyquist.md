@@ -1,7 +1,7 @@
 ---
 title: "The Importance of Prayer"
 menu_title: ""
-description: "The Importance of Prayer"
+description: "Faith Nyquist, received by Al Fike: “It does my heart good to see friends come together in prayer. Praying in your world, in your cultures, is somewhat of …”"
 date: 2025-03-20 07:21:03+11:00
 draft: False
 hidden: True

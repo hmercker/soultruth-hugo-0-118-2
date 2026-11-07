@@ -1,7 +1,7 @@
 ﻿---
 title: "Beloved Instruments of God: Walking in Love and Service"
 menu_title: ""
-description: "Beloved Instruments of God: Walking in Love and Service"
+description: "Jesus, received by Al Fike: “The ways and means that that may be accomplished are many and the opportunities to do so are reflected by the gifts that you …”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

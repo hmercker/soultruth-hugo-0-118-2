@@ -1,7 +1,7 @@
 ---
 title: "You are to Continue to be an Instrument of God"
 menu_title: ""
-description: "You are to Continue to be an Instrument of God"
+description: "Augustine, received by Al Fike: “This instrument represents an example of how you are to continue to be an instrument of God.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

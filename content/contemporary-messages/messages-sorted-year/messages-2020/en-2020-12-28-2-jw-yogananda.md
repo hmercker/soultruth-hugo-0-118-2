@@ -1,7 +1,7 @@
 ---
 title: "Freeing yourself of Baggage"
 menu_title: ""
-description: "Freeing yourself of Baggage"
+description: "Yogananda, received by Jimbeau Walsh: “When you take a journey, you may bring things with you. Things you consider necessities, and so you have baggage.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

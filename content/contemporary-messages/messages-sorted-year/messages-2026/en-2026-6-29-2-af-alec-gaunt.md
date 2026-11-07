@@ -1,7 +1,7 @@
 ﻿---
 title: "Overcoming Reluctance and Fear in Leadership and Service to God"
 menu_title: ""
-description: "Overcoming Reluctance and Fear in Leadership and Service to God"
+description: "Alec Gaunt, received by Al Fike: “Note: This was a personal message, but it has been shared with the wider community with permission from those present as …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "You Must Heal Your Wounds to Move Forward"
 menu_title: ""
-description: "You Must Heal Your Wounds to Move Forward"
+description: "Orion, received by Al Fike: “Change is one constant in the universe. All is flowing toward greater harmony.”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

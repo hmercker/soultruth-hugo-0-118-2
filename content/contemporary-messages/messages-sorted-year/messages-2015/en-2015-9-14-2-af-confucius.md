@@ -1,7 +1,7 @@
 ﻿---
 title: "You are ready to open your Hearts to many"
 menu_title: ""
-description: "You are ready to open your Hearts to many"
+description: "Confucius, received by Al Fike: “The very poor and the very rich and all in between are welcome in God’s house in this Light, and you will have many …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

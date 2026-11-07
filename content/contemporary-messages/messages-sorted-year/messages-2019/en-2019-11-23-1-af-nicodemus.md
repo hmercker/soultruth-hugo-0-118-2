@@ -1,7 +1,7 @@
 ---
 title: "Faculties of the Soul are Very Different from the Mind"
 menu_title: ""
-description: "Faculties of the Soul are Very Different from the Mind"
+description: "Nicodemus, received by Al Fike: “I have come with my dear brother who is trying to explain to you his experiences of soul awareness and prayer.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

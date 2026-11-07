@@ -1,7 +1,7 @@
 ﻿---
 title: "Acknowledge the Power of God’s Blessings Upon You"
 menu_title: ""
-description: "Acknowledge the Power of God’s Blessings Upon You"
+description: "Orion, received by Al Fike: “Indeed, may God's blessings continue to befall upon you, my friends. God's blessings are great.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

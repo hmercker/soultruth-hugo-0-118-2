@@ -1,7 +1,7 @@
 ﻿---
 title: "Free Will - Free World - Nothing is Guaranteed"
 menu_title: ""
-description: "Free Will - Free World - Nothing is Guaranteed"
+description: "Augustine, received by Al Fike: “Your teacher Augustine here. So as you see the events of the world do not unfold to the Will of God but to the will of man.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "You Are Acknowledged by God"
 menu_title: ""
-description: "You Are Acknowledged by God"
+description: "Anna, received by Elizabeth Mack: “Usually, I stay in the background, but today I come to speak to the gentle-hearted souls who are quiet in their love …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

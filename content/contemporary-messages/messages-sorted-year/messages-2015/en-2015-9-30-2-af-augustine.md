@@ -1,7 +1,7 @@
 ﻿---
 title: "Circle of Light, a Place of Peace, a Place of Respite, a Place where the Soul is nurtured in the Flow of our Heavenly Father’s Love"
 menu_title: ""
-description: "Circle of Light, a Place of Peace, a Place of Respite, a Place where the Soul is nurtured in the Flow of our Heavenly Father’s Love"
+description: "Augustine, received by Al Fike: “And it gives us great joy when you embrace one another in Love, to open your arms and your hearts to those who come and …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

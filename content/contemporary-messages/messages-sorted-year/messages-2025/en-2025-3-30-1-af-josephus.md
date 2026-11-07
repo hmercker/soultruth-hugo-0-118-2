@@ -1,7 +1,7 @@
 ---
 title: "You Will Witness Great Changes Coming to this World"
 menu_title: ""
-description: "You Will Witness Great Changes Coming to this World"
+description: "Josephus, received by Al Fike: “You will all live to witness great changes in this world, because you have brought this world on the brink of collapse.”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

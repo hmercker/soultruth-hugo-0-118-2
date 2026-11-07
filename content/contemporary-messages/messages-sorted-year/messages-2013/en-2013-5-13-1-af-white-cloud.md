@@ -1,7 +1,7 @@
 ﻿---
 title: "So many in this World turn away from Truth"
 menu_title: ""
-description: "So many in this World turn away from Truth"
+description: "White Cloud, received by Al Fike: “Indeed, she has pulled a heavy load in her life. She has struggled and overcome many obstacles.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

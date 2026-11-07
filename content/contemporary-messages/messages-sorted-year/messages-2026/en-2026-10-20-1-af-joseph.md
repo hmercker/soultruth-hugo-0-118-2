@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings Are Abundant and Powerful During This Period of Change"
 menu_title: ""
-description: "Blessings Are Abundant and Powerful During This Period of Change"
+description: "Joseph, received by Al Fike: “Amongst all the darkness, the world is awaiting greater light. The world is on the edge of turmoil and disruption.”"
 date: 2026-11-01 00:00:00+00:00
 draft: False
 hidden: True

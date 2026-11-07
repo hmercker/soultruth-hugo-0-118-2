@@ -1,7 +1,7 @@
 ﻿---
 title: "Professor Salyards affirms the Truth spoken by King Solomon"
 menu_title: ""
-description: "Professor Salyards affirms the Truth spoken by King Solomon"
+description: "Professor Salyards, received by Al Fike: “True wisdom and an ability to understand the Truth can only be had through the soul and in order for this to be …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

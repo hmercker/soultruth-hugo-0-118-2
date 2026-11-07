@@ -1,7 +1,7 @@
 ---
 title: "Knowing the Wisdom of Your Soul Brings Greater Harmony to Your Life"
 menu_title: ""
-description: "Knowing the Wisdom of Your Soul Brings Greater Harmony to Your Life"
+description: "Augustine, received by Al Fike: “Now comes a time of great activity and effort to uphold your community, to uphold the truth of Divine Love, to uphold the …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Are You Ready to Serve? The Time to Choose is Now"
 menu_title: ""
-description: "Are You Ready to Serve? The Time to Choose is Now"
+description: "Orion, received by Al Fike: “The time for deep inner change, acceptance of that change and the expression of that change is upon you, my friends.”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

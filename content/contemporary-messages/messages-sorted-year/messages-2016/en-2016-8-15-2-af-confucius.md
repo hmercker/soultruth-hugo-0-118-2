@@ -1,7 +1,7 @@
 ﻿---
 title: "Every day can be filled with Light"
 menu_title: ""
-description: "Every day can be filled with Light"
+description: "Confucius, received by Al Fike: “How you love your sunny days, do you not? And what a beautiful day it is as you come together in love and joy.”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

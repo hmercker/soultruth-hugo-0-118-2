@@ -1,7 +1,7 @@
 ---
 title: "Within the Recesses of Your Soul is the Capacity to be in Unity Together"
 menu_title: ""
-description: "Within the Recesses of Your Soul is the Capacity to be in Unity Together"
+description: "Seretta Kem, received by Al Fike: “May Love continue to awaken you. May your hearts continue to glow with His Love and that Love expressed in the world …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

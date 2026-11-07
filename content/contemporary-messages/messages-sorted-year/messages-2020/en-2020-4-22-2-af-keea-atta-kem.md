@@ -1,7 +1,7 @@
 ---
 title: "The World Needs More Lightworkers"
 menu_title: ""
-description: "The World Needs More Lightworkers"
+description: "Keea Atta Kem, received by Al Fike: “We come because you pray and beseech God to bring Light to you and to this world. Such a simple but profound prayer …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jesus is with Us"
 menu_title: ""
-description: "Jesus is with Us"
+description: "Received by Al Fike: “Know that I am forever with you my beloveds and will never leave. You are in my embrace, my thoughts and prayers.”"
 date: 2020-05-13 12:20:28+11:00
 draft: False
 hidden: True

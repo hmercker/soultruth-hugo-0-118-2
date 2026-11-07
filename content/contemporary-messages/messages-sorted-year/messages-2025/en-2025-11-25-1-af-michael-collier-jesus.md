@@ -1,7 +1,7 @@
 ---
 title: "The Power of Soul-Light: A Lesson on Reaching Hearts Beyond Words"
 menu_title: ""
-description: "The Power of Soul-Light: A Lesson on Reaching Hearts Beyond Words"
+description: "Michael Collier & Jesus, received by Al Fike: “Michael Collier: Greetings to you, my friends. The question has been asked regarding how you may teach these …”"
 date: 2025-12-17 06:00:00+00:00
 draft: False
 hidden: True

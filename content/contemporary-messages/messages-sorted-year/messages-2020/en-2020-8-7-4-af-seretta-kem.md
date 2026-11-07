@@ -1,7 +1,7 @@
 ---
 title: "Angels Have Come to Assist"
 menu_title: ""
-description: "Angels Have Come to Assist"
+description: "Seretta Kem, received by Al Fike: “A retinue of angels who have come to assist you in your prayers have worked hard to clear away conditions around each …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

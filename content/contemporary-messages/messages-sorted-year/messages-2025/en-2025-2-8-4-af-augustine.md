@@ -1,7 +1,7 @@
 ---
 title: "Be Strong, Confident and Eager to Embrace a New World"
 menu_title: ""
-description: "Be Strong, Confident and Eager to Embrace a New World"
+description: "Augustine, received by Al Fike: “The world is about to open to you, beloved souls. You are well aware and cognisant of the material world.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

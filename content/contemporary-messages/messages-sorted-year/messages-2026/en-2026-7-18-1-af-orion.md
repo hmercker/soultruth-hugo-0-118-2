@@ -1,7 +1,7 @@
 ﻿---
 title: "Each Person Must Make Their Own Individual Choice to be in the Light and Earth Changes Will Facilitate This"
 menu_title: ""
-description: "Each Person Must Make Their Own Individual Choice to be in the Light and Earth Changes Will Facilitate This"
+description: "Orion, received by Al Fike: “You walk in a world where the ways of living often contradict the Laws of Creation and the Laws of Love.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "I urge you to pray for Gods plan"
 menu_title: ""
-description: "I urge you to pray for Gods plan"
+description: "Mylora, received by Al Fike: “For as you pray do you not feel within your heart your love for this world, an appreciation for all that God has created, a …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

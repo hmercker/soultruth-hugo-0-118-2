@@ -1,5 +1,6 @@
 ---
 title: "Blesses Travelers Spreading the Truths of God’s Love"
+description: "Received by Al Fike: “May the blessings of God be with you, beloved and beautiful, precious children of God. In fact, there will be times when I will rest …”"
 menu_title: "Blesses Travelers Spreading the Truths of God’s Love"
 date: 2024-11-27 07:21:03+11:00
 draft: False

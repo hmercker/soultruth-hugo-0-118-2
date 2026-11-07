@@ -1,7 +1,7 @@
 ---
 title: "Confirms Jesus is Blessing Each One in the Circle"
 menu_title: ""
-description: "Confirms Jesus is Blessing Each One in the Circle"
+description: "Matthew, received by Al Fike: “Jesus is in our midst, beloveds. He is blessing each one of you and he is pleased that you are together, seeking to support …”"
 date: 2025-05-20 07:21:03+11:00
 draft: False
 hidden: True

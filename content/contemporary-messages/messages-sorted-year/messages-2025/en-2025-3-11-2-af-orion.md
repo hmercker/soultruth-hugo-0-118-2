@@ -1,7 +1,7 @@
 ---
 title: "The Strength of Your Prayers Determines the Power of the Outcome"
 menu_title: ""
-description: "The Strength of Your Prayers Determines the Power of the Outcome"
+description: "Orion, received by Al Fike: “The more intense your prayer, the more powerful the result. The more sincere you are in your thoughts and desires; the clearer …”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

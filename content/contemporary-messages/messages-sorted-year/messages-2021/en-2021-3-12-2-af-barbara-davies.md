@@ -1,7 +1,7 @@
 ---
 title: "Know your Emotions for they are a Key to Opening the Door to God"
 menu_title: ""
-description: "Know your Emotions for they are a Key to Opening the Door to God"
+description: "Barbara Davies, received by Al Fike: “…I am Barbara and I am a mother to this son who speaks today. I wish to say that it is important to open your hearts …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

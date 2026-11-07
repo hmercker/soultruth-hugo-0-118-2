@@ -1,7 +1,7 @@
 ---
 title: "Step Forward in Faith"
 menu_title: ""
-description: "Step Forward in Faith"
+description: "John the Beloved, received by Al Fike: “God continues to send you upon these journeys of faith, to bring the good word of God’s Love to humanity and you do …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

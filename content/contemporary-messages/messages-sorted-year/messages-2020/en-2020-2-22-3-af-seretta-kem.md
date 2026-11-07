@@ -1,7 +1,7 @@
 ---
 title: "Begin with a Foundation of Knowing your Own Soul"
 menu_title: ""
-description: "Begin with a Foundation of Knowing your Own Soul"
+description: "Seretta Kem, received by Al Fike: “Throughout the ages, humanity has had an understanding and connection with the spirit world.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

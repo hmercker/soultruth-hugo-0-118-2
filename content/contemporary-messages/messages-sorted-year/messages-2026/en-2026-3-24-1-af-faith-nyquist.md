@@ -1,7 +1,7 @@
 ﻿---
 title: "Open Your Soul to Receive God’s Abundant Blessings"
 menu_title: ""
-description: "Open Your Soul to Receive God’s Abundant Blessings"
+description: "Faith Nyquist, received by Al Fike: “For God wants you to be in alignment with Him, not in a way that He insists or He pressures you, but He invites and He …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

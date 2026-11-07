@@ -1,7 +1,7 @@
 ---
 title: "The Process of Receiving Divine Love in Your Souls"
 menu_title: ""
-description: "The Process of Receiving Divine Love in Your Souls"
+description: "Augustine, received by Al Fike: “I wonder whether you have firmly in your mind the process of receiving the Father's Love. It does not come because you …”"
 date: 2025-07-22 00:00:00+00:00
 draft: False
 hidden: True

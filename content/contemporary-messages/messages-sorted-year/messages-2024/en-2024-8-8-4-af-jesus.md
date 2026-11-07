@@ -1,7 +1,7 @@
 ---
 title: "Welcomes All to the Love Boat Cruise"
 menu_title: ""
-description: "Welcomes All to the Love Boat Cruise"
+description: "Jesus, received by Al Fike: “May the blessings of God be with you. To clear the air, so to speak, so that we may come in greater purity and light.”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

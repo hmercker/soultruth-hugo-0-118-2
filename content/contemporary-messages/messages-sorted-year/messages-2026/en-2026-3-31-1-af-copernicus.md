@@ -1,7 +1,7 @@
 ﻿---
 title: "Beyond the Mind: The Soul’s Endless Journey to Know God’s Creation"
 menu_title: ""
-description: "Beyond the Mind: The Soul’s Endless Journey to Know God’s Creation"
+description: "Copernicus, received by Al Fike: “May the blessings of the Heavenly Father be yours, this great gift of Love, may it pour in in abundance.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

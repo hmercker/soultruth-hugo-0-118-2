@@ -1,7 +1,7 @@
 ﻿---
 title: "The Intensity of Prayer Brings One Closer to God"
 menu_title: ""
-description: "The Intensity of Prayer Brings One Closer to God"
+description: "Michael Collier, received by Al Fike: “Do you desire to be awake, awakened by God’s Love, awakened within your conscious self to the spiritual truths of …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

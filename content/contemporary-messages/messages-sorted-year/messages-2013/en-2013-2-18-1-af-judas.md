@@ -1,7 +1,7 @@
 ﻿---
 title: "This is a firm Foundation"
 menu_title: ""
-description: "This is a firm Foundation"
+description: "Judas, received by Al Fike: “And my prayer for you is that your souls open to a great inflowing of this Divine Essence, this beautiful blessing from the …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

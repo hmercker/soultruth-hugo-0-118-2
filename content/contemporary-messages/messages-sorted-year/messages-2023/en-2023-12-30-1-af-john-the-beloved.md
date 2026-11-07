@@ -1,7 +1,7 @@
 ﻿---
 title: "Introduces Himself to Jose Miguel Sanchez as His Guide"
 menu_title: ""
-description: "Introduces Himself to Jose Miguel Sanchez as His Guide"
+description: "John the Beloved, received by Al Fike: “May Divine Love fill your souls. I wish to reassure him that I am his guide, that I am close, that he has a destiny …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

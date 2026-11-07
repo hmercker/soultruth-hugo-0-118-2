@@ -1,7 +1,7 @@
 ---
 title: "Blessings and Healings"
 menu_title: ""
-description: "Blessings and Healings"
+description: "Confucius, received by Al Fike: “Blessings of love to you, beloveds. Many angels love you and attend to your needs and carry you within the conditions of …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

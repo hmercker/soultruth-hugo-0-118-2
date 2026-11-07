@@ -1,7 +1,7 @@
 ﻿---
 title: "Prayer, Divine Love, and Being God’s Instruments in the World"
 menu_title: ""
-description: "Prayer, Divine Love, and Being God’s Instruments in the World"
+description: "Jesus, received by Al Fike: “The laws are obeyed and I am a part of those laws, as are all the angels of heaven, to work diligently, to be with you, to …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

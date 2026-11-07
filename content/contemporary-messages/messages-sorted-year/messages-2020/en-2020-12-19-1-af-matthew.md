@@ -1,7 +1,7 @@
 ---
 title: "It Is For You to Know the Will of God"
 menu_title: ""
-description: "It Is For You to Know the Will of God"
+description: "Matthew, received by Al Fike: “The will of God is always with you, beloved souls, I am Matthew. Today you have listened to the Will of God, have you not?”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

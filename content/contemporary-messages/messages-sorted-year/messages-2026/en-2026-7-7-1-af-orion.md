@@ -1,7 +1,7 @@
 ﻿---
 title: "Maintain a High Intensity of Desire in Your Prayers and Purpose"
 menu_title: ""
-description: "Maintain a High Intensity of Desire in Your Prayers and Purpose"
+description: "Orion, received by Al Fike: “The dark conditions in your world continue to intensify the many challenges each of you faces in this world of yours.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

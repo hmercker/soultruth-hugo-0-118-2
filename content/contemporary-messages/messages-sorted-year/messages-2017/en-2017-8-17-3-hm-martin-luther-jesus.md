@@ -1,7 +1,7 @@
 ﻿---
 title: "On the Name for the Divine Love Movement"
 menu_title: ""
-description: "On the Name for the Divine Love Movement"
+description: "Martin Luther & Jesus, received by no name: “I have to giggle a bit because….. aren’t we human….aren’t we human in our approach, as for most things we like …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

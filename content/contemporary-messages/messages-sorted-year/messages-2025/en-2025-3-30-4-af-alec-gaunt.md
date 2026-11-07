@@ -1,7 +1,7 @@
 ---
 title: "His Dream for FUSC Has Come True"
 menu_title: ""
-description: "His Dream for FUSC Has Come True"
+description: "Alec Gaunt, received by Al Fike: “I once walked the halls of this church. Indeed, I will, and many others will, come and uphold you all, guide you and help …”"
 date: 2025-04-07 07:21:03+11:00
 draft: False
 hidden: True

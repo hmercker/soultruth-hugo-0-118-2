@@ -1,7 +1,7 @@
 ---
 title: "This Country is in Great Need of our Prayers"
 menu_title: ""
-description: "This Country is in Great Need of our Prayers"
+description: "Faith Nyquist, received by Al Fike: “This country is in need of your prayers. So many are suffering in their hearts and are in need of upliftment and hope …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Greatest Impediment to Light in Your World is Ignorance and Apathy"
 menu_title: ""
-description: "The Greatest Impediment to Light in Your World is Ignorance and Apathy"
+description: "Aaron, received by Al Fike: “Blessings to you, my beloved brothers and sisters. I acknowledge you, dearly beloved, and I'm with you often as you continue …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

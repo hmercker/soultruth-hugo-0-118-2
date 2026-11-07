@@ -1,7 +1,7 @@
 ---
 title: "Allow the Workings of Your Soul to Predominate"
 menu_title: ""
-description: "Allow the Workings of Your Soul to Predominate"
+description: "Orion, received by Al Fike: “Each of you has progressed greatly since we have begun these times together. Each of you is sincere in your efforts.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

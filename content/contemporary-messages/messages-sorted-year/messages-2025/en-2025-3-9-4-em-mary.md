@@ -1,7 +1,7 @@
 ---
 title: "Ask for What You Need"
 menu_title: ""
-description: "Ask for What You Need"
+description: "Mary, received by Elisabeth Mack: “I too bring blessings from our Father to you, children who walk this path of light. You are all nurtured along this path.”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

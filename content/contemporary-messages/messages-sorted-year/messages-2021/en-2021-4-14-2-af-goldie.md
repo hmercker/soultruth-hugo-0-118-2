@@ -1,7 +1,7 @@
 ---
 title: "Cultivate the Light of the Soul"
 menu_title: ""
-description: "Cultivate the Light of the Soul"
+description: "Goldie, received by Al Fike: “I brought a friend with me. He wishes to convey a message to his friends whom he has cultivated and prayed with over the …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

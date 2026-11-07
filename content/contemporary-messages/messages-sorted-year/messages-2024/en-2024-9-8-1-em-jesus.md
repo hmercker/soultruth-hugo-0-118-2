@@ -1,7 +1,7 @@
 ---
 title: "Know the Joy the Father Bestows Upon You"
 menu_title: ""
-description: "Know the Joy the Father Bestows Upon You"
+description: "Jesus, received by Elizabeth Mack: “The Love that the Father has gifted upon each one of you and many, many, many more. For this is what the Father …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

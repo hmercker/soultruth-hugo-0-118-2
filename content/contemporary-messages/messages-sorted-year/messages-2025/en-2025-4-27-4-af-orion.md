@@ -1,7 +1,7 @@
 ---
 title: "Q&A in Running Springs"
 menu_title: ""
-description: "Q&A in Running Springs"
+description: "Orion, received by Al Fike: “I have come because you have called me. I arrive because I am glad to be with you, beautiful souls of Earth, friends that I …”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

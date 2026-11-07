@@ -1,7 +1,7 @@
 ---
 title: "Divine Love Attributes"
 menu_title: ""
-description: "Divine Love Attributes"
+description: "Andrew, received by Elizabeth Mack: “Bless you with the Love of God entering your souls and all that that entails. I speak to you from the Celestial …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

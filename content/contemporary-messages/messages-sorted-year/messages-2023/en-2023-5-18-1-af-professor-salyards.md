@@ -1,7 +1,7 @@
 ---
 title: "Inspiration Continues to Bubble Forth"
 menu_title: ""
-description: "Inspiration Continues to Bubble Forth"
+description: "Professor Salyards, received by Al Fike: “Professor Salyards, as always, by your side. The enthusiasm and positivity of the thoughts that you have …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

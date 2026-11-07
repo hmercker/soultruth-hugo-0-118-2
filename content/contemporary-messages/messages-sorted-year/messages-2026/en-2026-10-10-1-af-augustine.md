@@ -1,7 +1,7 @@
 ﻿---
 title: "You Must Relinquish Your Need for Control and Align Yourself with God’s Will"
 menu_title: ""
-description: "You Must Relinquish Your Need for Control and Align Yourself with God’s Will"
+description: "Augustine, received by Al Fike: “Each of you has certain conditions and distractions in your life that often prevent you from focusing upon the spiritual.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

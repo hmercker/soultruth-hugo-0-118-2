@@ -1,7 +1,7 @@
 ---
 title: "God's Love is All Encompassing and Includes Mercy, Forgiveness and Compassion"
 menu_title: ""
-description: "God's Love is All Encompassing and Includes Mercy, Forgiveness and Compassion"
+description: "Jesus, received by Elizabeth Mack: “God’s Love is all encompassing. It includes many gifts within it.”"
 date: 2025-07-06 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Orion Introduces Himself and His Purpose to Poughkeepsie Retreat"
 menu_title: ""
-description: "Orion Introduces Himself and His Purpose to Poughkeepsie Retreat"
+description: "Received by Al Fike: “May universal light and love surround you all, my beautiful friends. For what is friendship but the power of love shared between …”"
 date: 2025-01-29 07:21:03+11:00
 draft: False
 hidden: True

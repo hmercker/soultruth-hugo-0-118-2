@@ -1,7 +1,7 @@
 ---
 title: "God’s Love is Your Birthright"
 menu_title: ""
-description: "God’s Love is Your Birthright"
+description: "Joan of Arc, received by Elizabeth Mack: “I see this great Love that is expressed in this room among all of you. Continue to seek this Love that God has …”"
 date: 2025-07-19 07:21:03+11:00
 draft: False
 hidden: True

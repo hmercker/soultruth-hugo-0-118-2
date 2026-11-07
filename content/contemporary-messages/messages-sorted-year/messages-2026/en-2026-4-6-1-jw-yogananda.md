@@ -1,7 +1,7 @@
 ---
 title: "The Now of God's Love"
 menu_title: ""
-description: "The Now of God's Love"
+description: "Yogananda, received by Jimbeau Walsh: “Let us abide in this holy presence. In the material world, beings live in linear time: past, present, and future.”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

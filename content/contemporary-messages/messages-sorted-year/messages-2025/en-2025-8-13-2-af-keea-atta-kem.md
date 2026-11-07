@@ -1,7 +1,7 @@
 ---
 title: "How to Pray Effectively"
 menu_title: ""
-description: "How to Pray Effectively"
+description: "Keea Atta Kem, received by Al Fike: “Soul development can be a very complex thing. When it is at its most potent, it is the result of all aspects of your …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

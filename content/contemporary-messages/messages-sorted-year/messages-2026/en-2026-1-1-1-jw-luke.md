@@ -1,7 +1,7 @@
 ---
 title: "The Healing Balm of the Love of God"
 menu_title: ""
-description: "The Healing Balm of the Love of God"
+description: "Luke, received by Jimbeau Walsh: “May the love of God be a healing balm to all those in need of healing, to all those feeling afflicted by the weight of …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

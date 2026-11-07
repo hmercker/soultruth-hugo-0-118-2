@@ -1,7 +1,7 @@
 ---
 title: "Free Will - God's Will"
 menu_title: ""
-description: "Free Will - God's Will"
+description: "Peter, received by Elizabeth Mack: “I bring you a message from your Heavenly Father from whom the love is great for all of His children.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,5 +1,6 @@
 ---
 title: "God’s Essence Will Be Given to Each One of You Mightily"
+description: "Received by Al Fike: “May you be blessed mightily with the great gift of the Father’s Love. The great breath of God shall sweep over each one of you and …”"
 menu_title: "Isaiah says God’s Essence Will Be Given to Each One of You Mightily"
 date: 2024-06-03 07:21:03+11:00
 draft: False

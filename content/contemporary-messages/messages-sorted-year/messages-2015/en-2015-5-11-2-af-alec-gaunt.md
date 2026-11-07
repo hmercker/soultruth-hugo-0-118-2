@@ -1,7 +1,7 @@
 ﻿---
 title: "As Your Intentions Are With God All Else Will Be Provided"
 menu_title: ""
-description: "As Your Intentions Are With God All Else Will Be Provided"
+description: "Alec Gaunt, received by Al Fike: “And so many of you have been loyal and consistent and I have been with you so very, very often as you have faced life’s …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

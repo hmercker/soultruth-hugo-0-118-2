@@ -1,7 +1,7 @@
 ﻿---
 title: "After this Period of Respite, It is Time for the Work to Begin"
 menu_title: ""
-description: "After this Period of Respite, It is Time for the Work to Begin"
+description: "Michael Collier & Jesus, received by Al Fike: “Michael Collier: The work continues, my friends. You have had the luxury of this respite, the generosity of …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

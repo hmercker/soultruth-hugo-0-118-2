@@ -1,7 +1,7 @@
 ---
 title: "You have Purpose"
 menu_title: ""
-description: "You have Purpose"
+description: "Jesus, received by Elizabeth Mack: “We bring you closer so that you may experience the love and conditions that you will be manifesting in the future as …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

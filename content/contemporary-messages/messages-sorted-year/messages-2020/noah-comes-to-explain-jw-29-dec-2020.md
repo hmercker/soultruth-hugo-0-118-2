@@ -1,7 +1,7 @@
 ---
 title: "Noah comes to Explain"
 menu_title: ""
-description: "Noah comes to Explain"
+description: "Received by Jimbeau Walsh: “My dear boy you ask about the flood and about the details and circumstances of my life on earth so long ago.”"
 date: 2021-01-03 07:21:03+11:00
 draft: False
 hidden: True

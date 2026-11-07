@@ -1,7 +1,7 @@
 ---
 title: "Know That There Is Much More to Come with Your Prayers, with Your Service, with Your Love Development"
 menu_title: ""
-description: "Know That There Is Much More to Come with Your Prayers, with Your Service, with Your Love Development"
+description: "James, received by Elisabeth Mack: “Blessings from above, true children of God, blessings for each one of your souls from the Father.”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

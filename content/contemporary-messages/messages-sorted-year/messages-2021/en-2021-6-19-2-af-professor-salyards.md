@@ -1,7 +1,7 @@
 ---
 title: "This is a Lifelong Commitment"
 menu_title: ""
-description: "This is a Lifelong Commitment"
+description: "Professor Salyards, received by Al Fike: “You will be surprised at what portals and doors and opportunities will open to you as you continue to progress …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

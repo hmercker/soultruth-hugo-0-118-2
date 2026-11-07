@@ -1,7 +1,7 @@
 ---
 title: "Soul-Healing"
 menu_title: ""
-description: "Soul-Healing"
+description: "Seretta Kem, received by Helge Mercker: “Through prayer and opening to God’s Love comes the healing and harmony that brings one’s soul to a place of …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

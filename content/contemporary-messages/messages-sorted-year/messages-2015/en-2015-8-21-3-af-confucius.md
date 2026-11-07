@@ -1,7 +1,7 @@
 ﻿---
 title: "Create Circles of Light wherever you go"
 menu_title: ""
-description: "Create Circles of Light wherever you go"
+description: "Confucius, received by Al Fike: “You did indeed come together to give healing to the world and healing to yourselves. (This was a Merkaba) And it was …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

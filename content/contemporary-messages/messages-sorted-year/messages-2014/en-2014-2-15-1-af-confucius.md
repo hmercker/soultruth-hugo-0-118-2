@@ -1,7 +1,7 @@
 ﻿---
 title: "A mighty Mission"
 menu_title: ""
-description: "A mighty Mission"
+description: "Confucius, received by Al Fike: “Indeed, the door is open for you, my children, the door is open for you. And your souls have brought you to this place.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

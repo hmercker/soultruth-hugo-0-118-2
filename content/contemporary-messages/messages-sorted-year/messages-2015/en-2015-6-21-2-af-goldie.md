@@ -1,7 +1,7 @@
 ﻿---
 title: "Wherever you are, Love will be present"
 menu_title: ""
-description: "Wherever you are, Love will be present"
+description: "Goldie, received by Al Fike: “The birds are singing and the sun is shining, and all is well in your world is it not, my beloveds?”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

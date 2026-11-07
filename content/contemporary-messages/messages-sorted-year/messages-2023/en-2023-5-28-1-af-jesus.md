@@ -1,7 +1,7 @@
 ---
 title: "Blessings from Jesus on Pentecost"
 menu_title: ""
-description: "Blessings from Jesus on Pentecost"
+description: "Jesus, received by Al Fike: “…Love shed upon you, beloveds. I urge you to contemplate this, to come to understand how it is that this great blessing came …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

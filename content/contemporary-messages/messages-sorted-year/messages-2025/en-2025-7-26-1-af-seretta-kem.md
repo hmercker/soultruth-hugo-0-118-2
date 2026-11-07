@@ -1,7 +1,7 @@
 ---
 title: "Guidance for the Road Less Travelled"
 menu_title: ""
-description: "Guidance for the Road Less Travelled"
+description: "Seretta Kem, received by Al Fike: “You observe your life and your continued progression in terms of earthly parameters and expectations.”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

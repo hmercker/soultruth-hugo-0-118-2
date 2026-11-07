@@ -1,7 +1,7 @@
 ---
 title: "Guidance for Divine Love Celebration Global Gathering"
 menu_title: ""
-description: "Guidance for Divine Love Celebration Global Gathering"
+description: "Prof Salyards, received by Al Fike: “I applaud your efforts to plan and to continue to consider the variables and situations which you must encounter when …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

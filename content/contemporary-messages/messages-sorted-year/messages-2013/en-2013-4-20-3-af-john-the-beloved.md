@@ -1,7 +1,7 @@
 ﻿---
 title: "The Understanding will grow and the Error will fall"
 menu_title: ""
-description: "The Understanding will grow and the Error will fall"
+description: "John the Beloved, received by Al Fike: “As you gather together the very light within you, of your souls, invokes the presence of the angels, of God’s Love …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

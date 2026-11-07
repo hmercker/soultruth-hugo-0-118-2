@@ -1,7 +1,7 @@
 ﻿---
 title: "The Power of Divine Love is greater than any other Blessing"
 menu_title: ""
-description: "The Power of Divine Love is greater than any other Blessing"
+description: "Augustine & Seretta Kem, received by Al Fike: “Augustine: And yes, the Heavenly Father has brought you together. And the others shall come into the circle …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

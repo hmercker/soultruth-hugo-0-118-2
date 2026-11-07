@@ -1,5 +1,6 @@
 ---
 title: "Jesus Takes Us to the Hall of Peace"
+description: "Received by Al Fike: “May the peace that passes all understanding be with you, beloveds. We draw you all into that great Hall of Peace, that beautiful …”"
 menu_title: "Jesus Takes Us to the Hall of Peace"
 date: 2024-12-15 07:21:03+11:00
 draft: False

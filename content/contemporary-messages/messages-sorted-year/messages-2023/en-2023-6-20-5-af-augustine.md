@@ -1,7 +1,7 @@
 ---
 title: "With Joyful Anticipation of Direct Voice Retreat"
 menu_title: ""
-description: "With Joyful Anticipation of Direct Voice Retreat"
+description: "Augustine, received by Al Fike: “From the joy within your hearts, my beloved friends, the anticipation of coming together in a few days hence, I am your …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

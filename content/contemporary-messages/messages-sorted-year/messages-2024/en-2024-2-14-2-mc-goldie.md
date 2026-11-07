@@ -1,7 +1,7 @@
 ---
 title: "The Substance of JOY!"
 menu_title: ""
-description: "The Substance of JOY!"
+description: "Goldie, received by Maureen Cardoso: “You are speaking about the attributes of the soul. I always bring joy into the circle.”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

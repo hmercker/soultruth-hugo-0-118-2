@@ -1,7 +1,7 @@
 ---
 title: "Seretta Kem Will Assist Those Who Feel Called"
 menu_title: ""
-description: "Seretta Kem Will Assist Those Who Feel Called"
+description: "Seretta Kem, received by Al Fike: “Love and light and all else will follow. You will come to know your true selves.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

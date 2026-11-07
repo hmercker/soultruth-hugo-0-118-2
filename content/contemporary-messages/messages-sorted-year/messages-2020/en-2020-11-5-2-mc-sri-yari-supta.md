@@ -1,7 +1,7 @@
 ---
 title: "This Preparation Time Is Very Important"
 menu_title: ""
-description: "This Preparation Time Is Very Important"
+description: "Sri Yari Supta, received by Maureen Cardoso: “Welcome once again to your circle, each one of you opening your souls to receive the great gift of the …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

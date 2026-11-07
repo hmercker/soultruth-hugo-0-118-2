@@ -1,7 +1,7 @@
 ---
 title: "Final Message to the World from Jesus"
 menu_title: ""
-description: "Final Message to the World from Jesus"
+description: "Received by Al Fike: “May the blessings of the Father’s Love continue to flow upon you, my beloved brothers and sisters.”"
 date: 2021-03-21 07:21:03+11:00
 draft: False
 hidden: True

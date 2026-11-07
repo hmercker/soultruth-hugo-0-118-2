@@ -1,7 +1,7 @@
 ﻿---
 title: "God Awaits Your Invitation & Receptivity to His Blessing"
 menu_title: ""
-description: "God Awaits Your Invitation & Receptivity to His Blessing"
+description: "Keea Atta Kem, received by Maureen Cardoso: “I greet my divine family, family of souls who long for God's Love, receiving this great blessing and inflowing …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

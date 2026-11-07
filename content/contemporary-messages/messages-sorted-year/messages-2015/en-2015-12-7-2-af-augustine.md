@@ -1,7 +1,7 @@
 ﻿---
 title: "Do not hide your Light"
 menu_title: ""
-description: "Do not hide your Light"
+description: "Augustine, received by Al Fike: “May God’s peace be with you, my beloveds, and may you carry the Light that you have received this night into the darkened …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

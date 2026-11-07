@@ -1,7 +1,7 @@
 ---
 title: "Many will want to participate in this Movement"
 menu_title: ""
-description: "Many will want to participate in this Movement"
+description: "Keea Atta Kem, received by Al Fike: “Dearly beloved souls, I merely want to comment that many women will be involved in this great effort and project.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

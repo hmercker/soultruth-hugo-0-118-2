@@ -1,7 +1,7 @@
 ---
 title: "A Healing Lesson for Our Development Circle"
 menu_title: ""
-description: "A Healing Lesson for Our Development Circle"
+description: "Keea Atta Kem, received by Al Fike: “Our dear daughter is experiencing a series of reactions that begin with the nerve within her neck that is connected to …”"
 date: 2025-06-18 07:21:03+11:00
 draft: False
 hidden: True

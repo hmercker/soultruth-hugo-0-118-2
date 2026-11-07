@@ -1,7 +1,7 @@
 ---
 title: "Express That Love That Is Within You"
 menu_title: ""
-description: "Express That Love That Is Within You"
+description: "John the Beloved, received by Elizabeth Mack: “Peace be upon your souls, your hearts, your minds. He is the Prince of Peace, and he exudes this peace as …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

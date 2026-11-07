@@ -1,7 +1,7 @@
 ﻿---
 title: "Earth Changes - What Comes Will Test Your Mettle and Reveal to Yourself the Power of Your Own Souls"
 menu_title: ""
-description: "Earth Changes - What Comes Will Test Your Mettle and Reveal to Yourself the Power of Your Own Souls"
+description: "Seretta Kem, received by Al Fike: “I welcome you all back into this fold, this time of prayer and your desire to serve God in these various ways, to …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

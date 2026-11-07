@@ -1,7 +1,7 @@
 ﻿---
 title: "Journey upon the Waters of Life together"
 menu_title: ""
-description: "Journey upon the Waters of Life together"
+description: "Moses, received by Al Fike: “My life was filled with journeys and I relied upon my Heavenly Father to guide me along my path and I sought His guidance and …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

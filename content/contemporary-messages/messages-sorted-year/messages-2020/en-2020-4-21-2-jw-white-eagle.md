@@ -1,7 +1,7 @@
 ---
 title: "Clarification of the Message on the Gathering of the Tribes"
 menu_title: ""
-description: "Clarification of the Message on the Gathering of the Tribes"
+description: "White Eagle, received by Jimbeau Walsh: “My brothers and sisters, I am come as a disciple of the Master. I wish to clarify my message on the gathering of …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

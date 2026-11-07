@@ -1,7 +1,7 @@
 ---
 title: "Guidance is given in Faith"
 menu_title: ""
-description: "Guidance is given in Faith"
+description: "Yogananda, received by Jimbeau Walsh: “I welcome you to this circle, this Divine Love prayer, this Divine Love yoga. As you relax your body and find the …”"
 date: 2025-06-17 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Live at Peace"
 menu_title: ""
-description: "Live at Peace"
+description: "Mahatma Gandhi, received by Jimbeau Walsh: “I came tonight with my brother Yogananda, and I was very pleased that the beautiful sister read my message.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

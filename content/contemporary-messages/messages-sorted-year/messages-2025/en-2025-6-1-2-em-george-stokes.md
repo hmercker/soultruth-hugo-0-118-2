@@ -1,7 +1,7 @@
 ---
 title: "You Have So Much to Look Forward To"
 menu_title: ""
-description: "You Have So Much to Look Forward To"
+description: "George Stokes, received by Elizabeth Mack: “We come to join you in this prayer, for we do love God and we do love to pray to God and receive His Divine …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

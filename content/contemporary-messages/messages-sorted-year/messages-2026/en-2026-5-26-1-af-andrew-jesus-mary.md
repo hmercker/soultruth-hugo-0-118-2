@@ -1,7 +1,7 @@
 ﻿---
 title: "Messages of Love, Guidance, and Companionship from Spirit"
 menu_title: ""
-description: "Messages of Love, Guidance, and Companionship from Spirit"
+description: "Andrew, Jesus & Mary, received by Al Fike: “Andrew: Indeed, may the Love pour into your souls, my friends. The world lacks clear direction, clear …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

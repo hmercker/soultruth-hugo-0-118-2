@@ -1,7 +1,7 @@
 ---
 title: "Who am I In God's Great Plan"
 menu_title: ""
-description: "Who am I In God's Great Plan"
+description: "Seretta Kem, received by Al Fike: “The journey ahead for each one of you will be an interesting journey. All is a great mystery and full of potential and …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

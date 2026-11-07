@@ -1,7 +1,7 @@
 ---
 title: "It’s Only the Love of God That Nurtures People"
 menu_title: ""
-description: "It’s Only the Love of God That Nurtures People"
+description: "Joan of Arc, received by Elizabeth Mack: “We are mighty in our spirits and gentle and it is only the love of God that nurtures, that upliftment that allows …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "The Key to this Light and Joy is God’s Love"
 menu_title: ""
-description: "The Key to this Light and Joy is God’s Love"
+description: "Confucius, received by Al Fike: “You are in the light of His presence. Be reassured, my children, that this dear soul will progress in light as he makes …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

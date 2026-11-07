@@ -1,7 +1,7 @@
 ---
 title: "Continue to Forge Ahead"
 menu_title: ""
-description: "Continue to Forge Ahead"
+description: "Andrew, received by Al Fike: “My brethren, you continue to forge ahead. Your desire for progression, for greater amounts of the Father's Love in your soul …”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

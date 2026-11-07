@@ -1,7 +1,7 @@
 ﻿---
 title: "Do not confuse the Divine Love with the natural Love"
 menu_title: ""
-description: "Do not confuse the Divine Love with the natural Love"
+description: "Augustine, received by Al Fike: “I have come expressly to teach the two new souls who come to this circle a fundamental truth, and that is that Godʼs Love …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

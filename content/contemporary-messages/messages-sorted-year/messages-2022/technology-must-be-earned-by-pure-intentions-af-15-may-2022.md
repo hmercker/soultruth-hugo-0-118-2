@@ -1,7 +1,7 @@
 ---
 title: "Technology from Orion’s Planet Must Be Earned by Pure Intentions"
 menu_title: ""
-description: "Technology from Orion’s Planet Must Be Earned by Pure Intentions"
+description: "Received by Al Fike: “My friends, there is much work that needs to be done upon your planet. We start at a very rudimentary level to help humanity.”"
 date: 2022-06-21 07:21:03+11:00
 draft: False
 hidden: True

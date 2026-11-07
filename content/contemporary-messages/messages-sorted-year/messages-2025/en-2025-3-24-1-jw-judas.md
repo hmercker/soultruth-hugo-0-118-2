@@ -1,7 +1,7 @@
 ---
 title: "Speak Truth to Power and Dreams"
 menu_title: ""
-description: "Speak Truth to Power and Dreams"
+description: "Judas, received by Jimbeau Walsh: “There is a saying, a contemporary saying, which encourages speaking truth to power. I wish to remind you that this is …”"
 date: 2025-04-04 07:21:03+11:00
 draft: False
 hidden: True

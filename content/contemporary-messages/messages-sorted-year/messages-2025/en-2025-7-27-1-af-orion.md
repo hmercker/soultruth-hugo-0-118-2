@@ -1,7 +1,7 @@
 ---
 title: "God’s Love Permeates the Universe"
 menu_title: ""
-description: "God’s Love Permeates the Universe"
+description: "Orion, received by Al Fike: “The continued development of your technologies and your perspectives on life bring you further away from God, your Creator.”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

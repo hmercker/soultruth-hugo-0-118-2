@@ -1,7 +1,7 @@
 ﻿---
 title: "You will walk the path of the rebirth of the soul"
 menu_title: ""
-description: "You will walk the path of the rebirth of the soul"
+description: "Jesus, received by Al Fike: “And may the Father’s Love find lodgment within your souls and His Peace be a mantle upon your shoulders.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

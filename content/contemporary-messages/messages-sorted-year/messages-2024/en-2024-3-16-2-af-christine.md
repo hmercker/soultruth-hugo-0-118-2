@@ -1,7 +1,7 @@
 ---
 title: "Introduces Herself"
 menu_title: ""
-description: "Introduces Herself"
+description: "Christine, received by Al Fike: “It comes from the Source of all. Infill your souls, my friends.”"
 date: 2025-06-18 07:21:03+11:00
 draft: False
 hidden: True

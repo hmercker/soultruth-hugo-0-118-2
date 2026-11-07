@@ -1,7 +1,7 @@
 ---
 title: "We Are Souls Like You"
 menu_title: ""
-description: "We Are Souls Like You"
+description: "Orion, received by Al Fike: “I say to you, “Am I any different from you?” Though I live in a place that is different, indeed, God created many souls to …”"
 date: 2025-07-01 07:21:03+00:00
 draft: False
 hidden: True

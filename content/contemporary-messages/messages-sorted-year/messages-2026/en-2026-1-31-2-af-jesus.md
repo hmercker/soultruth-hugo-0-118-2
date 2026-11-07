@@ -1,7 +1,7 @@
 ---
 title: "I am God's First Son Who Has Been Transformed by His Love into an Angel"
 menu_title: ""
-description: "I am God's First Son Who Has Been Transformed by His Love into an Angel"
+description: "Jesus, received by Al Fike: “Indeed, the gift of His Love, that redeeming grace from God, will transform you, heal you and bring you upon a road of love …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Invokes a Blessing of Divine love for the Guernesey Circle Portal at Les Chapel monnaie"
 menu_title: ""
-description: "Invokes a Blessing of Divine love for the Guernesey Circle Portal at Les Chapel monnaie"
+description: "Confucius, received by Al Fike: “Most upon your Earth begin their journey with the mind questioning the purpose of life, their own being and their …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

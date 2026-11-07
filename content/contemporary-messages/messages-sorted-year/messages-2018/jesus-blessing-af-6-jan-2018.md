@@ -1,7 +1,7 @@
 ---
 title: "Jesus’ Epiphany Blessing"
 menu_title: ""
-description: "Jesus’ Epiphany Blessing"
+description: "Received by Al Fike: “I have come at your call and as a result of your prayers for I feel your love for me and I wish for you to feel my love for you.”"
 date: 2018-06-24 22:05:29+00:00
 draft: False
 hidden: True

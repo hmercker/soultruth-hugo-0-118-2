@@ -1,7 +1,7 @@
 ﻿---
 title: "An Example of God’s loving Channel in the World"
 menu_title: ""
-description: "An Example of God’s loving Channel in the World"
+description: "Augustine, received by Al Fike: “Do you not see the wonderment of God’s Will to bring you to this place. The blessings that are bestowed upon you as you …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

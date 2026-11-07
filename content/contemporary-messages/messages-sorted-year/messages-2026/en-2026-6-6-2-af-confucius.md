@@ -1,7 +1,7 @@
 ﻿---
 title: "Your Journey Toward God and Soul is Amplified Through the Efforts of Your Celestial Friends"
 menu_title: ""
-description: "Your Journey Toward God and Soul is Amplified Through the Efforts of Your Celestial Friends"
+description: "Confucius, received by Al Fike: “May the power of the Father's Love change you as it is meant to do. May the power of the Father's Love awaken you as it is …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

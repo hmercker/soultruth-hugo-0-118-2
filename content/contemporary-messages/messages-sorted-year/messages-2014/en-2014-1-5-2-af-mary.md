@@ -1,7 +1,7 @@
 ﻿---
 title: "God increases the Fellowship, the Love, the Bonds"
 menu_title: ""
-description: "God increases the Fellowship, the Love, the Bonds"
+description: "Mary, received by Al Fike: “The beautiful blessing of God to bring you together. For each leads their lives; different lives, different places upon your …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

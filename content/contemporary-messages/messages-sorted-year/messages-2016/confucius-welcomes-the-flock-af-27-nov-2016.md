@@ -1,7 +1,7 @@
 ---
 title: "Confucius welcomes the flock"
 menu_title: ""
-description: "Confucius welcomes the flock"
+description: "Received by Al Fike: “My little birds you have flocked together once more and how we rejoice when this comes to be.”"
 date: 2016-05-29 22:02:46+00:00
 draft: False
 hidden: True

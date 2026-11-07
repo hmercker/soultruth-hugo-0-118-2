@@ -1,7 +1,7 @@
 ---
 title: "All Good Things that are of God and in Harmony Will Remain"
 menu_title: ""
-description: "All Good Things that are of God and in Harmony Will Remain"
+description: "Mark, received by Al Fike: “Bless you, beloved souls, with this great comfort and peace and love. All of those things that are of man and reflect the baser …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

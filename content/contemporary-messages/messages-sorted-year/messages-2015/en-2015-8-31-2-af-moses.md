@@ -1,7 +1,7 @@
 ﻿---
 title: "It is important for you to take Time each Day in Prayer"
 menu_title: ""
-description: "It is important for you to take Time each Day in Prayer"
+description: "Moses, received by Al Fike: “Yes indeed, God’s presence is here like a sunbeam parting the clouds, His Breath blowing away all of your material cares, His …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

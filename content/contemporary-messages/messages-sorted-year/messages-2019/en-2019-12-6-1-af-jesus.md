@@ -1,7 +1,7 @@
 ---
 title: "Prayer from Jesus"
 menu_title: ""
-description: "Prayer from Jesus"
+description: "Jesus, received by Al Fike: ““Gracious God, You are our keeper. You are the One who holds our souls within Your Hands and upholds us in the Light of Truth.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

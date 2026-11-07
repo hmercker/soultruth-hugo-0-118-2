@@ -1,7 +1,7 @@
 ---
 title: "Healing Blessing Following John"
 menu_title: ""
-description: "Healing Blessing Following John"
+description: "Confucius, received by Al Fike: “A Blessing of peace to you, beloveds. A touch of healing and comfort to your bodies and your minds, the grace of God …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

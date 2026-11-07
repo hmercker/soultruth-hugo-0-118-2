@@ -1,7 +1,7 @@
 ﻿---
 title: "Love brings Resolution to Disturbances"
 menu_title: ""
-description: "Love brings Resolution to Disturbances"
+description: "Mary, received by Al Fike: “When the daughter is creating a disturbance you must pray for her and send her your love. Put your love around her and ask for …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

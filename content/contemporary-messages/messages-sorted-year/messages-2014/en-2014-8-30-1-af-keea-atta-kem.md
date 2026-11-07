@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Keea Atta Kem, received by Al Fike: “I have not been with you to speak for a long time, but I have been with you very often, and I’m with you my dear, dear …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

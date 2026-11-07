@@ -1,7 +1,7 @@
 ﻿---
 title: "The Power of Love Bonds You as Brothers and Sisters on this Journey: Andrew Closes Johnson City Retreat"
 menu_title: ""
-description: "The Power of Love Bonds You as Brothers and Sisters on this Journey: Andrew Closes Johnson City Retreat"
+description: "Andrew, received by Al Fike: “The power of love will bond you forever, my beloveds. As your souls seek to grow and expand with this great gift of Divine …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

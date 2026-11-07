@@ -1,7 +1,7 @@
 ---
 title: "Al’s Impressions after DV Prayer"
 menu_title: ""
-description: "Al’s Impressions after DV Prayer"
+description: "Received by A.F: “The angels were behind us and then these two rings merge together. They are quite tall, they are all quite tall.”"
 date: 2020-05-19 07:55:19+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Surrendering to God's Will: The Path of the True Instrument of Love"
 menu_title: ""
-description: "Surrendering to God's Will: The Path of the True Instrument of Love"
+description: "Augustine & Jesus, received by Al Fike: “What is of the highest will in the universe? When you supplant your will with God's Will, what will be the results?”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Benefits of a Spiritual Life"
 menu_title: ""
-description: "The Benefits of a Spiritual Life"
+description: "Andrew & Grace Jordan, received by Al Fike: “So, God has blessed us with the presence of many who are associated with our host. These family members on the …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

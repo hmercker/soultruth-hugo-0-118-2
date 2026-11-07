@@ -1,7 +1,7 @@
 ---
 title: "Confucius Comes to Heal at the F.U.S.C. Retreat"
 menu_title: ""
-description: "Confucius Comes to Heal at the F.U.S.C. Retreat"
+description: "Received by Al Fike: “I will be in charge of healing for each one of you and those who are coming. I will attempt to bring to you healing energies that you …”"
 date: 2020-05-04 9:05:29+10:00
 draft: False
 hidden: True

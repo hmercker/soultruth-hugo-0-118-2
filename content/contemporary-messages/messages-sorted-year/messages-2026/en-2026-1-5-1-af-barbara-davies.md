@@ -1,7 +1,7 @@
 ---
 title: "Establish a Strong Foundation of Prayer and Avoid Rigidity to Become Effective Teachers"
 menu_title: ""
-description: "Establish a Strong Foundation of Prayer and Avoid Rigidity to Become Effective Teachers"
+description: "Barbara Davies, received by Al Fike: “The conditions on Earth will most certainly put up barriers and situations to try to thwart your efforts.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

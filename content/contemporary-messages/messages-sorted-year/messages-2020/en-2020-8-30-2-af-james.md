@@ -1,7 +1,7 @@
 ---
 title: "Awaken to the Soul"
 menu_title: ""
-description: "Awaken to the Soul"
+description: "James, received by Al Fike: “The world needs to awaken to the soul, that part of each individual, each of your brothers and sisters, each of yourselves …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

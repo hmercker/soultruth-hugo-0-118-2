@@ -1,7 +1,7 @@
 ﻿---
 title: "God’s Love is the Key"
 menu_title: ""
-description: "God’s Love is the Key"
+description: "John the Beloved, received by Al Fike: “Blessings to you, beloved souls, I am John the Beloved. If you had the eyes to see, beloved souls, you would see …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,5 +1,6 @@
 ---
 title: "God’s Love Permeates the Universe"
+description: "Received by Al Fike: “God’s Love is available throughout the universe. No matter the perspective, no matter where that soul resides, no matter the life …”"
 menu_title: "Yogananda says God’s Love Permeates the Universe"
 date: 2024-11-20 07:21:03+11:00
 draft: False

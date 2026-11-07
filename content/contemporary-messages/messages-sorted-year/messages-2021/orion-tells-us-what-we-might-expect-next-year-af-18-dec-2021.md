@@ -1,7 +1,7 @@
 ---
 title: "Orion Tells Us What We Might Expect Next Year"
 menu_title: ""
-description: "Orion Tells Us What We Might Expect Next Year"
+description: "Received by Al Fike: “Earth changes continue to be expressed in your world in many ways. You can expect this for the coming year and that indeed you will …”"
 date: 2022-04-14 07:21:03+11:00
 draft: False
 hidden: True

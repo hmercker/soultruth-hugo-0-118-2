@@ -1,7 +1,7 @@
 ﻿---
 title: "God will lift the Burdens from you"
 menu_title: ""
-description: "God will lift the Burdens from you"
+description: "Mary & Confucius, received by Al Fike: “Mary: Gentle breezes of God’s Love come through you and into your souls, adding to the light that burns bright …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

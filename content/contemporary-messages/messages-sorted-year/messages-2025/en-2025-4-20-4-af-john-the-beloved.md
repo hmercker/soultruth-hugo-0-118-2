@@ -1,7 +1,7 @@
 ---
 title: "With Tears of Joy the Masters Work Continues"
 menu_title: ""
-description: "With Tears of Joy the Masters Work Continues"
+description: "John the Beloved, received by Al Fike: “I have tears of joy, for the work continues and there are many hungering for this truth. I urge you to take …”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

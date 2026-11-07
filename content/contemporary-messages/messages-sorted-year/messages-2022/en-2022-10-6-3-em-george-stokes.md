@@ -1,7 +1,7 @@
 ---
 title: "Prayer is Vital"
 menu_title: ""
-description: "Prayer is Vital"
+description: "George Stokes, received by Elizabeth Mack: “You know me as George Stokes while I lived on the Earth. I will be with you, all of you, as a sponsor if you …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

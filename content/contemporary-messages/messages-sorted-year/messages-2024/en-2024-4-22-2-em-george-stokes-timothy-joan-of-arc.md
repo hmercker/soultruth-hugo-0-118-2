@@ -1,7 +1,7 @@
 ---
 title: "Continue in Your Progression, Knowing God’s Love Is With You"
 menu_title: ""
-description: "Continue in Your Progression, Knowing God’s Love Is With You"
+description: "George Stokes, Timothy & Joan of Arc, received by Elizabeth Mack: “You, and I speak to all in this circle, those of you upon the screen as well, have come …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Intention is the Key to Prayer"
 menu_title: ""
-description: "Intention is the Key to Prayer"
+description: "Josephus, received by Al Fike: “For God imbued in each soul, each individual, the capacity to choose and to be in the world, giving that individual all …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

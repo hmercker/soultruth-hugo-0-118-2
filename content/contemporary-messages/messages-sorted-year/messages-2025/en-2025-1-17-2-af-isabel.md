@@ -1,7 +1,7 @@
 ---
 title: "Introduces Herself as Sonja’s Guide on her Birthday"
 menu_title: ""
-description: "Introduces Herself as Sonja’s Guide on her Birthday"
+description: "Isabel, received by Al Fike: “I guide you and I love you. I have been with you all your life.”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

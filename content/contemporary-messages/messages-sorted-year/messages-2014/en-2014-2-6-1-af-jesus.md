@@ -1,7 +1,7 @@
 ﻿---
 title: "Do this Work of Light"
 menu_title: ""
-description: "Do this Work of Light"
+description: "Jesus, received by Al Fike: “For the doors shall open wide, my children. And the love and light shall flood through you and through this place and bring …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

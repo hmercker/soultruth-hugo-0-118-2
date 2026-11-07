@@ -1,7 +1,7 @@
 ---
 title: "The Voice of God Is in the Air"
 menu_title: ""
-description: "The Voice of God Is in the Air"
+description: "Keea Atta Kem, received by Al Fike: “The voice of God is in the air, beloved souls. He whispers into your ear giving you the sweet sounds and Truth of His …”"
 date: 2025-06-18 00:00:00+00:00
 draft: False
 hidden: True

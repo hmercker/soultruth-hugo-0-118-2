@@ -1,7 +1,7 @@
 ---
 title: "Spreading the Good and Joyous News"
 menu_title: ""
-description: "Spreading the Good and Joyous News"
+description: "Goldie, received by Al Fike: “You have called me forth and so I come to spread the good and joyous news that you are all loved, and that in this Love you …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

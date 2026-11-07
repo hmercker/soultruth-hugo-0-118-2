@@ -1,7 +1,7 @@
 ---
 title: "Introduces Himself to a Long-Time Follower and Changes He's Made in Spirit"
 menu_title: ""
-description: "Introduces Himself to a Long-Time Follower and Changes He's Made in Spirit"
+description: "Yogananda, received by Al Fike: “I know you well, dear daughter. How is it that, though they have not studied my teachings, at least the teachings that I …”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

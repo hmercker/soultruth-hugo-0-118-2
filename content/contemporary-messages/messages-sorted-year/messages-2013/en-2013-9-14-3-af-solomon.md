@@ -1,7 +1,7 @@
 ﻿---
 title: "The Chain of Love"
 menu_title: ""
-description: "The Chain of Love"
+description: "Solomon, received by Al Fike: “You seek earnestly the truth and light and goodness and service and righteousness, the light of Love.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

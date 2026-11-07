@@ -1,7 +1,7 @@
 ---
 title: "How Judgement Gets in the Way of Soul Progression"
 menu_title: ""
-description: "How Judgement Gets in the Way of Soul Progression"
+description: "Orion, received by Al Fike: “The world is indeed in turmoil. There is great need out there in the world, my friends.”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Joy Builds"
 menu_title: ""
-description: "The Joy Builds"
+description: "Goldie, received by Al Fike: “Feel the joy because it is building is it not? While you all anticipate coming together, the joy builds.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

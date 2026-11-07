@@ -1,7 +1,7 @@
 ---
 title: "Describes the Purpose of Celestial Messages"
 menu_title: ""
-description: "Describes the Purpose of Celestial Messages"
+description: "Augustine, received by Al Fike: “I wish to comment on the way in which we deliver our messages and for what reason. When we deliver a message, even when it …”"
 date: 2025-06-18 07:21:03+11:00
 draft: False
 hidden: True

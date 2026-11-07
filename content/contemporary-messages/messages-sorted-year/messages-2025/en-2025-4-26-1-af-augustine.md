@@ -1,7 +1,7 @@
 ---
 title: "Humility Before Ego"
 menu_title: ""
-description: "Humility Before Ego"
+description: "Augustine, received by Al Fike: “Our dear brother is eager to hear from me and so I am here. Of course, you as individuals could not, but as you pray to be …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Immerse Your Soul in Divine Love"
 menu_title: ""
-description: "Immerse Your Soul in Divine Love"
+description: "Jesus, received by Maureen Cardoso: “My brothers and my sisters, I come. Raise your hearts up to the Father, dear ones.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

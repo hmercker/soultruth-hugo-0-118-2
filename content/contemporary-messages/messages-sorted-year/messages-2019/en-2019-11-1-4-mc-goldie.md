@@ -1,7 +1,7 @@
 ---
 title: "Goldie Sprinkles All With Joy and Light"
 menu_title: ""
-description: "Goldie Sprinkles All With Joy and Light"
+description: "Goldie, received by Maureen Cardoso: “May I hear you laugh together in your joy, with song and upliftment in your heart. I tickle your behind your ear with …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

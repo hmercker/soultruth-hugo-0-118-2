@@ -1,7 +1,7 @@
 ---
 title: "Q&A with Wendy Zammit's Global Gatherine"
 menu_title: ""
-description: "Q&A with Wendy Zammit's Global Gatherine"
+description: "Orion, received by Al Fike: “Orion: Greetings to you, my friends. Is this not what you expect of me as an extra-terrestrial?”"
 date: 2025-03-24 07:21:03+11:00
 draft: False
 hidden: True

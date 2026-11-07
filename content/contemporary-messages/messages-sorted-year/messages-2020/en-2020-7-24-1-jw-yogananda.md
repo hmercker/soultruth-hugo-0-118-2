@@ -1,7 +1,7 @@
 ---
 title: "Path of the Soul"
 menu_title: ""
-description: "Path of the Soul"
+description: "Yogananda, received by Jimbeau Walsh: “As a Yogi I know very well the path of the pure soul, the perfected human and all the disciplines of fasting …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

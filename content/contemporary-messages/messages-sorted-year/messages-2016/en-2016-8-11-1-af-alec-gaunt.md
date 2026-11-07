@@ -1,7 +1,7 @@
 ﻿---
 title: "Your Obstacles strengthen you in the Light"
 menu_title: ""
-description: "Your Obstacles strengthen you in the Light"
+description: "Alec Gaunt, received by Al Fike: “For many years you have been given the knowledge and the guidance that you will travel the world to bring these truths to …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

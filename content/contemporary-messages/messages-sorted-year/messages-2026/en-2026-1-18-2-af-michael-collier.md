@@ -1,7 +1,7 @@
 ---
 title: "Describes How We May Prepare Ourselves to be Teachers and Lights in Times to Come"
 menu_title: ""
-description: "Describes How We May Prepare Ourselves to be Teachers and Lights in Times to Come"
+description: "Michael Collier, received by Al Fike: “The consciousness of men, of humanity, has been rudimentary through the ages, at least in the times that you are …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

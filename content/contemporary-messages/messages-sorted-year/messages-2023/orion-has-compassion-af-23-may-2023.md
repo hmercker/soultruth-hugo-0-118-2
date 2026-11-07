@@ -1,7 +1,7 @@
 ---
 title: "Orion Has Compassion for the Conditions We Live with on Earth"
 menu_title: ""
-description: "Orion Has Compassion for the Conditions We Live with on Earth"
+description: "Received by Al Fike: “May the blessings of our Father’s love awaken your souls, my beloved friends, I am Orion. Your world is filled with complications …”"
 date: 2023-09-05 07:21:03+11:00
 draft: False
 hidden: True

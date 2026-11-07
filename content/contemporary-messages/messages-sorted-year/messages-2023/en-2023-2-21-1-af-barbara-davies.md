@@ -1,7 +1,7 @@
 ---
 title: "Your Family Benefits From Your Efforts"
 menu_title: ""
-description: "Your Family Benefits From Your Efforts"
+description: "Barbara Davies, received by Al Fike: “Bless you, beloved family of God, I am Barbara. I wish to come and tell you about how you draw your loved ones to …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

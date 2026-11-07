@@ -1,7 +1,7 @@
 ﻿---
 title: "Allow God to guide"
 menu_title: ""
-description: "Allow God to guide"
+description: "Goldie, received by Al Fike: “Bring the daffodils into the room and there will be joy and laughter amongst you. Why do you not seek solid ground, and make …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

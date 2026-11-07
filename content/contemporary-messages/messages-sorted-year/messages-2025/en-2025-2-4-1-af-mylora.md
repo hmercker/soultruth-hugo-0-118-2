@@ -1,7 +1,7 @@
 ---
 title: "Closing Message Blessing of Healing"
 menu_title: ""
-description: "Closing Message Blessing of Healing"
+description: "Mylora, received by Al Fike: “The blessings of the Father's Love are upon you, beloveds. You have travelled to these islands of souls seeking, islands …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

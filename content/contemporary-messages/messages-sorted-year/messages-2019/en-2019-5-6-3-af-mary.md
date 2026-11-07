@@ -1,7 +1,7 @@
 ---
 title: "Bask in the Grace of God"
 menu_title: ""
-description: "Bask in the Grace of God"
+description: "Mary, received by Al Fike: “I want you to know there is great light here this night. We have brought many children who are in spirit to this circle.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

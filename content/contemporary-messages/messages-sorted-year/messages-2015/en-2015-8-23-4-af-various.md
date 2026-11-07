@@ -1,7 +1,7 @@
 ﻿---
 title: "Messages of Reassurance and Comfort"
 menu_title: ""
-description: "Messages of Reassurance and Comfort"
+description: "Various, received by Al Fike: “And I too come to bring my words of love and support for all of you for every soul that earnestly seeks the Truth and to …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

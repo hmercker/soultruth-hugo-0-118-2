@@ -1,7 +1,7 @@
 ﻿---
 title: "Continue to express these wonderful Truths in your Lives"
 menu_title: ""
-description: "Continue to express these wonderful Truths in your Lives"
+description: "Alec Gaunt, received by Al Fike: “Many of you have your feet firmly upon the Divine Path. You cannot be shaken off this Path and must move forward upon …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

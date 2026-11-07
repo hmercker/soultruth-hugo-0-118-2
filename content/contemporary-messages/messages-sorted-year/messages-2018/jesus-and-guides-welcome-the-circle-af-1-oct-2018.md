@@ -1,7 +1,7 @@
 ---
 title: "Jesus and Guides Welcome The Circle of Seven"
 menu_title: ""
-description: "Jesus and Guides Welcome The Circle of Seven"
+description: "Received by Al Fike: “And so you land upon these shores once more together again to pursue your dedications of service; to be in this flow of Love bringing …”"
 date: 2020-06-02 07:27:15+11:00
 draft: False
 hidden: True

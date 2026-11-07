@@ -1,7 +1,7 @@
 ---
 title: "The Wonder of Soul Awakening and Importance of Expiation"
 menu_title: ""
-description: "The Wonder of Soul Awakening and Importance of Expiation"
+description: "Thomas Aquinas, received by Al Fike: “Welcome, my brothers and sister to this Circle of Light. Something that is not particularly clear with many of you …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

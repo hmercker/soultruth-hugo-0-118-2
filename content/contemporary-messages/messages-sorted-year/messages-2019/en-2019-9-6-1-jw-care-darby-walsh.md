@@ -1,7 +1,7 @@
 ---
 title: "Feel the Glow of the Heavenly Father's Love"
 menu_title: ""
-description: "Feel the Glow of the Heavenly Father's Love"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “I wish for each one here, each heart to be open to Love, each soul to be changed. I know that is the deepest …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

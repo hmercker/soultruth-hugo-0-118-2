@@ -1,7 +1,7 @@
 ﻿---
 title: "A Lesson on Implementing the Will of God"
 menu_title: ""
-description: "A Lesson on Implementing the Will of God"
+description: "Moses, received by Al Fike: “God conferred to me, while I was on Earth, a task, a purpose, one that I felt unworthy to perform, inadequate in every way to …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

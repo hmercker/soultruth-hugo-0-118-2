@@ -1,7 +1,7 @@
 ---
 title: "Wake Up to Your Personal Responsibility"
 menu_title: ""
-description: "Wake Up to Your Personal Responsibility"
+description: "White Cloud, received by Al Fike: “I ask the Creator to open your souls, awaken what is within you with the great Love that is the Source of all things.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

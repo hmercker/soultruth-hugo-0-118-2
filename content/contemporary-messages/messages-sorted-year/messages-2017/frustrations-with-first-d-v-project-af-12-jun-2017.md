@@ -1,7 +1,7 @@
 ---
 title: "Alec shares his frustrations with the first D. V. project"
 menu_title: ""
-description: "Alec shares his frustrations with the first D. V. project"
+description: "Received by Al Fike: “So you have wanted to hear from your old friend, Alec? I will keep my comments short as you must now realize, Seretta Kem, who is …”"
 date: 2019-01-26 23:21:03+00:00
 draft: False
 hidden: True

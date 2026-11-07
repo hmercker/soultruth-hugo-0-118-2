@@ -1,7 +1,7 @@
 ---
 title: "A Tribute to the Sanctuary"
 menu_title: ""
-description: "A Tribute to the Sanctuary"
+description: "Francis of Assisi, received by Jimbeau Walsh: “When I walked the Earth with my friends in the hills around Assisi, we sang and prayed with so much joy to …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

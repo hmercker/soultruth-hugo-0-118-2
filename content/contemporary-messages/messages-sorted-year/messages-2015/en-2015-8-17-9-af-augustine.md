@@ -1,7 +1,7 @@
 ﻿---
 title: "Strengthen your Relationships, lean upon one another"
 menu_title: ""
-description: "Strengthen your Relationships, lean upon one another"
+description: "Augustine, received by Al Fike: “Augustine here, your teacher. You have each contributed, you have each been blessed, you each walk the path to greater …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

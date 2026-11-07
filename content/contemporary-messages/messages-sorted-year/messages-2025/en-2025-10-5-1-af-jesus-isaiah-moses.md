@@ -1,7 +1,7 @@
 ﻿---
 title: "Disciples of Truth and Harbingers of God's Love"
 menu_title: ""
-description: "Disciples of Truth and Harbingers of God's Love"
+description: "Jesus, Isaiah & Moses, received by Al Fike: “Jesus: Yes, I come, my beloveds. We rejoice at your gathering, your efforts and your prayers, the desire to …”"
 date: 2025-11-02 06:00:00+00:00
 draft: False
 hidden: True

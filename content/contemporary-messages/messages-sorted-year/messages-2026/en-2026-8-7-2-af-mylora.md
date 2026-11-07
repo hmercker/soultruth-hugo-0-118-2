@@ -1,7 +1,7 @@
 ﻿---
 title: "Honouring and Accepting Our Place in a Changing World"
 menu_title: ""
-description: "Honouring and Accepting Our Place in a Changing World"
+description: "Mylora, received by Al Fike: “We too have concerns for your Earth, the changes that are happening now and the changes that will come.”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

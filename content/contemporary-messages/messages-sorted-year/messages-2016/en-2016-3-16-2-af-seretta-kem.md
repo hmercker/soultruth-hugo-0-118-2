@@ -1,7 +1,7 @@
 ﻿---
 title: "I will attempt to reiterate this Message"
 menu_title: ""
-description: "I will attempt to reiterate this Message"
+description: "Seretta Kem, received by Al Fike: “I will attempt to reiterate this message which you were so taken with but I must do so at some time in the future.”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

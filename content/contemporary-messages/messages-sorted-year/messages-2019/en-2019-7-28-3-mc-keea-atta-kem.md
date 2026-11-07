@@ -1,7 +1,7 @@
 ---
 title: "Encouragement as You Step Out in the World and Share the Good News of Divine Love"
 menu_title: ""
-description: "Encouragement as You Step Out in the World and Share the Good News of Divine Love"
+description: "Keea Atta Kem, received by Maureen Cardoso: “My message today is one of encouragement, encouraging each of you as you are guided to step out onto the …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

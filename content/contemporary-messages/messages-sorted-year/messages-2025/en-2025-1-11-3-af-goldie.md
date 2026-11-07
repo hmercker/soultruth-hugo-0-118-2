@@ -1,7 +1,7 @@
 ---
 title: "Release the Prattle of Your Minds to Let the Fun and Freedom Begin!"
 menu_title: ""
-description: "Release the Prattle of Your Minds to Let the Fun and Freedom Begin!"
+description: "Goldie, received by Al Fike: “When the mind is released from the prattle, as our dear friend says, the fun begins. The joy begins and the freedom begins.”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

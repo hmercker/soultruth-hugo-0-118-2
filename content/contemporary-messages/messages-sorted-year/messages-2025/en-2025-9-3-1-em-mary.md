@@ -1,7 +1,7 @@
 ---
 title: "Much Work to be Accomplished Touching Souls"
 menu_title: ""
-description: "Much Work to be Accomplished Touching Souls"
+description: "Mary, received by Elizabeth Mack: “I will be with you today, all of you. There is much work to do today and much compassion to be shown to your brothers …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Jesus, received by Al Fike: “Blessings to you, my beloved brothers. Blessings to you, my beloved sisters.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

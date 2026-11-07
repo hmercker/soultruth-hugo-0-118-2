@@ -1,7 +1,7 @@
 ﻿---
 title: "Bring Awakening to other Parts of the World"
 menu_title: ""
-description: "Bring Awakening to other Parts of the World"
+description: "Yogananda, received by Al Fike: “I have come to reinforce my guidance that I gave some time ago about traveling in my homeland of India.”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

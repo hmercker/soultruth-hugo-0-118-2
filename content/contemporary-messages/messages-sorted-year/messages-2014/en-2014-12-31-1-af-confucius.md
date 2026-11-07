@@ -1,7 +1,7 @@
 ﻿---
 title: "The World is in desperate need for Light and Truth"
 menu_title: ""
-description: "The World is in desperate need for Light and Truth"
+description: "Confucius, received by Al Fike: “As you enter this new beginning, I wish to remind you that God has much work waiting for you.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

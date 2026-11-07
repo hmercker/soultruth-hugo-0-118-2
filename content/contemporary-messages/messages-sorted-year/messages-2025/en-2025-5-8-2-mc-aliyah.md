@@ -1,7 +1,7 @@
 ---
 title: "The Promise of Divine Love"
 menu_title: ""
-description: "The Promise of Divine Love"
+description: "Aliyah, received by Maureen Cardoso: “To my dear friends on Earth, I come to you from the Celestial Heavens where God's Love reigns supreme and this Love …”"
 date: 2025-06-18 00:00:00+00:00
 draft: False
 hidden: True

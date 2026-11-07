@@ -1,5 +1,6 @@
 ---
 title: "We Are All Needed as Harbingers to Hold Up the Tent of Truth"
+description: "Received by Al Fike: “May the mighty blessings of the Father’s Love be with us all. I thank you dear child for your heartfelt prayer, for every word rang …”"
 menu_title: "Moses and Jesus on We Are All Needed as Harbingers to Hold Up the Tent of Truth"
 date: 2024-11-27 07:21:03+11:00
 draft: False

@@ -1,7 +1,7 @@
 ---
 title: "Blessing"
 menu_title: ""
-description: "Blessing"
+description: "Confucius, received by Al Fike: “Oh my precious souls, I am Confucius. I embrace each one of you and I see the precious souls that you are and how the …”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

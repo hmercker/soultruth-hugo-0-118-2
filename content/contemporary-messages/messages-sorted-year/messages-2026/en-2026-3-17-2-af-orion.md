@@ -1,7 +1,7 @@
 ---
 title: "You Become Stronger and Stronger as You Stretch Toward Light"
 menu_title: ""
-description: "You Become Stronger and Stronger as You Stretch Toward Light"
+description: "Orion, received by Al Fike: “Orion is with you once again. The conditions in your world are in flux and they are stretched, stretched toward light and also …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

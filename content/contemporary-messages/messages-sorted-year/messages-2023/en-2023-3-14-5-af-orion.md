@@ -1,7 +1,7 @@
 ---
 title: "God is Using You to Uplift Humanity"
 menu_title: ""
-description: "God is Using You to Uplift Humanity"
+description: "Orion, received by Al Fike: “As you pray, it carries you to many places, both within you and your consciousness and within the world and its consciousness.”"
 date: 2025-04-17 07:21:03+11:00
 draft: False
 hidden: True

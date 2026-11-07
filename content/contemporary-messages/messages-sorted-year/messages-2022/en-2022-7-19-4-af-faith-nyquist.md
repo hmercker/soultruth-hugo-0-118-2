@@ -1,7 +1,7 @@
 ---
 title: "Pray for Those in the Light"
 menu_title: ""
-description: "Pray for Those in the Light"
+description: "Faith Nyquist, received by Al Fike: “God’s servants are everywhere. Even though they may carry a measure of error or misunderstanding about God’s …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "It’s Important to Prepare for Changes Coming in the World"
 menu_title: ""
-description: "It’s Important to Prepare for Changes Coming in the World"
+description: "Jesus, received by Al Fike: “Changes are coming into your world, beloveds. God has decreed that the desecration of His creation will cease, that humanity …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

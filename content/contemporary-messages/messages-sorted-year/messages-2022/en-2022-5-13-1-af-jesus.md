@@ -1,7 +1,7 @@
 ---
 title: "Opening Blessing for Portal at Les Chapel Monnaie"
 menu_title: ""
-description: "Opening Blessing for Portal at Les Chapel Monnaie"
+description: "Jesus, received by Al Fike: “May this place be a sanctuary of light for all those who come through its doors. May God’s Presence be here and great peace …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

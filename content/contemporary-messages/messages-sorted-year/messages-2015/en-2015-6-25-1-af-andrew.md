@@ -1,7 +1,7 @@
 ﻿---
 title: "To Al on his Birthday"
 menu_title: ""
-description: "To Al on his Birthday"
+description: "Andrew, received by Al Fike: “He has been my charge for many, many years. And soon comes the time for this instrument to fulfill his purpose, to come to …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

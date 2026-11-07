@@ -1,7 +1,7 @@
 ---
 title: "God Has Heard your Prayers"
 menu_title: ""
-description: "God Has Heard your Prayers"
+description: "Andrew, received by Al Fike: “God has heard your prayers, beloveds, and an angel stands with each one of you. As you continue to reach out for your …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

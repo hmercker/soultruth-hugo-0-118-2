@@ -1,7 +1,7 @@
 ﻿---
 title: "Divine Love is Everything You Need and so Much More"
 menu_title: ""
-description: "Divine Love is Everything You Need and so Much More"
+description: "Estelle Roberts, received by Al Fike: “You see the power of God's Love manifest in this place amongst you people who are seeking truth.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Continue Your Efforts"
 menu_title: ""
-description: "Continue Your Efforts"
+description: "Queen Victoria, received by Al Fike: “To do so in this way, having these beautiful and bright angelic spirits with you in your circle is exciting indeed …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

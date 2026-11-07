@@ -1,7 +1,7 @@
 ﻿---
 title: "The Road Ahead is Clear"
 menu_title: ""
-description: "The Road Ahead is Clear"
+description: "Keea Atta Kem, received by Al Fike: “The road ahead is clear, though you may, in your minds, not understand the details, the twists and turns of this road.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

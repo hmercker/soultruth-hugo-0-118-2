@@ -1,7 +1,7 @@
 ﻿---
 title: "Jesus Opens the Harrow Retreat"
 menu_title: ""
-description: "Jesus Opens the Harrow Retreat"
+description: "Jesus, received by Al Fike: “May the Father's Love find lodgement into your souls. For each one here, I know.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

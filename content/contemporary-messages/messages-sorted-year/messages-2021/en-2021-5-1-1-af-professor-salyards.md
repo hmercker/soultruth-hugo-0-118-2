@@ -1,7 +1,7 @@
 ---
 title: "Recognize that God's Hand is Truly within This Work"
 menu_title: ""
-description: "Recognize that God's Hand is Truly within This Work"
+description: "Professor Salyards, received by Al Fike: “And yes, I am your Professor Salyards. We have been monitoring your conversation today as we continue to be close …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

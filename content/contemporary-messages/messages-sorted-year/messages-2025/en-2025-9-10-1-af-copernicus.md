@@ -1,7 +1,7 @@
 ---
 title: "The Truth of the Mind Will Only Bring You So Far"
 menu_title: ""
-description: "The Truth of the Mind Will Only Bring You So Far"
+description: "Copernicus, received by Al Fike: “Blessings to you, my friends. I have been for some time.”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

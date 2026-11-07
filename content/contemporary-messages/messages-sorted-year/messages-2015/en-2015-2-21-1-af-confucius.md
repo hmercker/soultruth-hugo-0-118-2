@@ -1,7 +1,7 @@
 ﻿---
 title: "Acknowledge the Power of your own Will"
 menu_title: ""
-description: "Acknowledge the Power of your own Will"
+description: "Confucius, received by Al Fike: “To hear you pray for the great inflowing of God’s Love makes my soul soar. To hear the sincerity of your prayers is like …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

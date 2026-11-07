@@ -1,7 +1,7 @@
 ﻿---
 title: "Awakening of the Soul Mind"
 menu_title: ""
-description: "Awakening of the Soul Mind"
+description: "Augustine, received by Al Fike: “Your teacher Augustine here, my beloveds. Each of you have received the blessing of God’s Love, the blessing of God’s …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

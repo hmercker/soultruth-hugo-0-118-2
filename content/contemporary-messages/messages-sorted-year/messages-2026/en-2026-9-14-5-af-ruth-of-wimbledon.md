@@ -1,7 +1,7 @@
 ﻿---
 title: "This Church Will Be Maintained in Light and Love"
 menu_title: ""
-description: "This Church Will Be Maintained in Light and Love"
+description: "Ruth of Wimbledon, received by Al Fike: “I was once a member of this church a few decades back and I am happy to be here again with these lovely souls who …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Choose to be Children of God in a World Governed by the Children of Man"
 menu_title: ""
-description: "Choose to be Children of God in a World Governed by the Children of Man"
+description: "Robespierre, received by Al Fike: “There is a division in the world. There are the children of God and there are the children of man.”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

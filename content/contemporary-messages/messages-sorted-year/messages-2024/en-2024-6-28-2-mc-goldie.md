@@ -1,7 +1,7 @@
 ---
 title: "True Joy is of the Soul"
 menu_title: ""
-description: "True Joy is of the Soul"
+description: "Goldie, received by Maureen Cardoso: “You’re all learning so very much about yourselves, the angels, and the aspects of your entire being as one who lives …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

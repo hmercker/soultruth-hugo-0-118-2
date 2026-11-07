@@ -1,7 +1,7 @@
 ---
 title: "Make an Authentic Choice To Be the Resounding Bell Of Truth In an Erratically Changing World"
 menu_title: ""
-description: "Make an Authentic Choice To Be the Resounding Bell Of Truth In an Erratically Changing World"
+description: "Orion, received by Al Fike: “Today I wish to speak about the nature of change and the Law of Progression in the universe.”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

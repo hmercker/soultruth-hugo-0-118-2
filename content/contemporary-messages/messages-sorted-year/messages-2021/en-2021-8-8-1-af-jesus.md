@@ -1,7 +1,7 @@
 ---
 title: "Be a light in the world"
 menu_title: ""
-description: "Be a light in the world"
+description: "Jesus, received by Al Fike: “Each of you continue upon this path in your own way and your own pace and yet our desire is that your pace quickens with each …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Keep Praying, Strengthening, Extending Portals and Lattice of Light"
 menu_title: ""
-description: "Keep Praying, Strengthening, Extending Portals and Lattice of Light"
+description: "Andrew, received by Al Fike: “We are praying with you, beloveds. For this we utilise your gifts and efforts, in order to do so, in order to bring more …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,5 +1,6 @@
 ---
 title: "Congratulations on Integrating the Metaphysical (Spirit Mind) and Soul Perceptions"
+description: "Received by Al Fike: “I wish to congratulate you on your progress, how each of you has found a way to nurture and receive communication from us, your angel …”"
 menu_title: "Prof Salyards gives Congratulations on Integrating the Metaphysical (Spirit Mind) and Soul Perceptions"
 date: 2024-12-01 07:21:03+11:00
 draft: False

@@ -1,7 +1,7 @@
 ---
 title: "Humility and Faith Grow as You Receive Divine Love in Your Soul"
 menu_title: ""
-description: "Humility and Faith Grow as You Receive Divine Love in Your Soul"
+description: "Faith, received by Al Fike: “Not only does it bring you the Substance of God through the longings of your love and the showering of your essence to God …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

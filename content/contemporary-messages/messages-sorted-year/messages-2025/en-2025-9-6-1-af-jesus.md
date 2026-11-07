@@ -1,7 +1,7 @@
 ---
 title: "We Are All Children of God and His Love is Available to All"
 menu_title: ""
-description: "We Are All Children of God and His Love is Available to All"
+description: "Jesus, received by Al Fike: “As you are all His children, I am His child. As you are all loved by God, I am loved by God.”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

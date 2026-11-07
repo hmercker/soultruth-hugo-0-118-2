@@ -1,7 +1,7 @@
 ---
 title: "Choose God's Love"
 menu_title: ""
-description: "Choose God's Love"
+description: "Judas & Jesus, received by Al Fike: “Judas: The yearnings of your soul are evident and the Truth of God's Love shines through, as it does for all of you …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "The Coming Changes and Your Spiritual Preparation"
 menu_title: ""
-description: "The Coming Changes and Your Spiritual Preparation"
+description: "Jesus, received by Al Fike: “Blessed are the children who seek to heal this world. Blessed are the children who long for the Father’s Love.”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Guardians Welcome"
 menu_title: ""
-description: "Guardians Welcome"
+description: "Claire of Assisi, received by Jimbeau Walsh: “I welcome you, for I am your guardian, or shall I say, one of the guardians, of this group.”"
 date: 2025-06-17 07:21:03+00:00
 draft: False
 hidden: True

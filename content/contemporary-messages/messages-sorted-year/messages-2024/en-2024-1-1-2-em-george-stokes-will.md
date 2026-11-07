@@ -1,7 +1,7 @@
 ---
 title: "An Offer of Assistance and Trust"
 menu_title: ""
-description: "An Offer of Assistance and Trust"
+description: "George Stokes & Will, received by Elizabeth Mack: “We bless this soul with our love, for he comes from a distant planet and is here to express his love to …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

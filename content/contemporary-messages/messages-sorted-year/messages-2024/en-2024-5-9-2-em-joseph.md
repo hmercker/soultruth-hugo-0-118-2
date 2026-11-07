@@ -1,7 +1,7 @@
 ---
 title: "Pray to Know Your Purpose"
 menu_title: ""
-description: "Pray to Know Your Purpose"
+description: "John Hughes, received by Elizabeth Mack: “I was once upon the Earth also and the struggles were of a different kind that what you experience daily.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Only Your Own Mind Can Separate You from God"
 menu_title: ""
-description: "Only Your Own Mind Can Separate You from God"
+description: "Augustine, received by Al Fike: “There is only one thing that holds you back, beloved souls, as you do God's work. The only thing, as we have told you many …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

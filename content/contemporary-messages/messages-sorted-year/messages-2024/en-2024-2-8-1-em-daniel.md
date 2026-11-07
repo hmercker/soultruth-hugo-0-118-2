@@ -1,7 +1,7 @@
 ---
 title: "Compliments on Working Together for a Healing"
 menu_title: ""
-description: "Compliments on Working Together for a Healing"
+description: "Daniel, received by Elizabeth Mack: “We are joyous at your response to this situation. May the Father bless you, continue to hold you in His arms of Love …”"
 date: 2025-07-19 07:21:03+11:00
 draft: False
 hidden: True

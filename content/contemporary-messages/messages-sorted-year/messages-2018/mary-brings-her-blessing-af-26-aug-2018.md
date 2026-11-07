@@ -1,7 +1,7 @@
 ---
 title: "Mary Brings Her Blessing"
 menu_title: ""
-description: "Mary Brings Her Blessing"
+description: "Received by Al Fike: “I watch over every child that desires to serve God. You are familiar with the work my beloved son brought to earth.”"
 date: 2020-05-26 07:31:16+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Duality of Soul and Body Consciousness"
 menu_title: ""
-description: "Duality of Soul and Body Consciousness"
+description: "Josephus, received by Al Fike: “May God's Love pour into your souls, beloved friends, I am Josephus. Indeed, most of you are well aware of this dichotomy …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

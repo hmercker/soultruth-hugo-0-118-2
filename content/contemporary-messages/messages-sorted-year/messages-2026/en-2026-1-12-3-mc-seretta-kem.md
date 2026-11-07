@@ -1,7 +1,7 @@
 ﻿---
 title: "Development For Participants at the Barbados Retreat"
 menu_title: ""
-description: "Development For Participants at the Barbados Retreat"
+description: "Seretta Kem, received by Maureen Cardoso: “As you sit in this circle, we come close for your development, each of you progressing with particular gifts.”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

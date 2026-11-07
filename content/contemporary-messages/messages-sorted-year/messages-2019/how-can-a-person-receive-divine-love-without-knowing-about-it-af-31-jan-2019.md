@@ -1,7 +1,7 @@
 ---
 title: "How Can a Person Receive Divine Love Without Knowing About It? (Q&A Retreat)"
 menu_title: ""
-description: "How Can a Person Receive Divine Love Without Knowing About It? (Q&A Retreat)"
+description: "Received by Al Fike: “Now that this instrument has made himself comfortable, we may proceed with another answer.”"
 date: 2020-08-11 07:21:03+11:00
 draft: False
 hidden: True

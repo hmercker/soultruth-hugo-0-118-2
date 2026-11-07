@@ -1,7 +1,7 @@
 ﻿---
 title: "Know the joy of God’s Love"
 menu_title: ""
-description: "Know the joy of God’s Love"
+description: "Goldie, received by Al Fike: “And he is making it easier for God to count the hairs upon his head, and he is beloved, beloved by many (laughing).”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Earth Changes"
 menu_title: ""
-description: "Earth Changes"
+description: "Joan of Arc, received by Elizabeth Mack: “His Love is great and contains many, many blessings, with those I have for you coming by way of my own soul …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

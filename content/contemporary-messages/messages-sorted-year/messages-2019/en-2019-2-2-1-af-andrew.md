@@ -1,7 +1,7 @@
 ---
 title: "We Lift You Up"
 menu_title: ""
-description: "We Lift You Up"
+description: "Andrew, received by Al Fike: “We lift you up through this Portal of Light to a place where Love saturates the air and your souls are free to drink this …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

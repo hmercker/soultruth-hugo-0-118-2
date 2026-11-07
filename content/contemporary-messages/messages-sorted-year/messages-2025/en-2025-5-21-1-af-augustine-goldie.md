@@ -1,7 +1,7 @@
 ---
 title: "Remember Joy and Keep a Light Step As You Move Forward"
 menu_title: ""
-description: "Remember Joy and Keep a Light Step As You Move Forward"
+description: "Augustine & Goldie, received by Al Fike: “Augustine: It is your teacher, Augustine. May you continue in that service, realising that each step forward is …”"
 date: 2025-06-18 00:00:00+00:00
 draft: False
 hidden: True

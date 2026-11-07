@@ -1,7 +1,7 @@
 ---
 title: "How Close Are You to the Will of God?"
 menu_title: ""
-description: "How Close Are You to the Will of God?"
+description: "Orion, received by Al Fike: “Imagine yourselves on the forefront of the spiritual awakening of your world. Yet, for those who are able and willing, strong …”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

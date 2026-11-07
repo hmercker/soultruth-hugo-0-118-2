@@ -1,7 +1,7 @@
 ﻿---
 title: "You long to serve God"
 menu_title: ""
-description: "You long to serve God"
+description: "Augustine, received by Al Fike: “Each one of you carries a light. Each one of you has a longing within your souls to be with your Creator, to understand …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

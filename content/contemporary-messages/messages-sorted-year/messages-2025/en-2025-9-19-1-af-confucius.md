@@ -1,7 +1,7 @@
 ---
 title: "Precious Birds of Earth, Sing Your Songs to God"
 menu_title: ""
-description: "Precious Birds of Earth, Sing Your Songs to God"
+description: "Confucius, received by Al Fike: “Little birds, I am Confucius. Precious birds, sing your songs to God.”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

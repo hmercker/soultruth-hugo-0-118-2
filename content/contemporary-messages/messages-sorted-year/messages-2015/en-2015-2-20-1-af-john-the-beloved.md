@@ -1,7 +1,7 @@
 ﻿---
 title: "The Soul is the true Self"
 menu_title: ""
-description: "The Soul is the true Self"
+description: "John the Beloved, received by Al Fike: “And welcome to this circle of love which will expand in the coming days and will bring many blessings to each one …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

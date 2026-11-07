@@ -1,7 +1,7 @@
 ---
 title: "Blessing for Barbados Development Group - Standing"
 menu_title: ""
-description: "Blessing for Barbados Development Group - Standing"
+description: "Jesus, received by Al Fike: “(Jesus stands Al Fike up and walks him into the centre of the room). As you continue to build the light together, you draw the …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

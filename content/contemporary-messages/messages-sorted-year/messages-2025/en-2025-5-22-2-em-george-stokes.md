@@ -1,7 +1,7 @@
 ---
 title: "Share the Love That is Within Your Souls"
 menu_title: ""
-description: "Share the Love That is Within Your Souls"
+description: "George Stokes, received by Elizabeth Mack: “My dear child, many blessings upon each one of you in this circle. God pours out His gifts to His true …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

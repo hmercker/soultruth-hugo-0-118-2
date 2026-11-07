@@ -1,7 +1,7 @@
 ﻿---
 title: "Be joyous, be sure, be courageous, and be humble"
 menu_title: ""
-description: "Be joyous, be sure, be courageous, and be humble"
+description: "Confucius, received by Al Fike: “Many of you work tirelessly in the light and bring comfort and love to so many in this world.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

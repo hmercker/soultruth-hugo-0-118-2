@@ -1,7 +1,7 @@
 ---
 title: "Choose Love: Efforts You Make to Bring Light and Change on Earth Will Bring Great Rewards In Spirit"
 menu_title: ""
-description: "Choose Love: Efforts You Make to Bring Light and Change on Earth Will Bring Great Rewards In Spirit"
+description: "Barbara Davies, received by Al Fike: “Blessings to you, my friends. Some of you know who I am.”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

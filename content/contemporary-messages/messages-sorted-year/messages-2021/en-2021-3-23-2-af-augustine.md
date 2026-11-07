@@ -1,7 +1,7 @@
 ---
 title: "The Truth is Discovered Through your Soul not your Mind"
 menu_title: ""
-description: "The Truth is Discovered Through your Soul not your Mind"
+description: "Augustine, received by Al Fike: “The many religions of this world help to comfort the minds of many, bringing to them ideas, concepts and structures which …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

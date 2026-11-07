@@ -1,7 +1,7 @@
 ---
 title: "Closing Message Barbados Retreat"
 menu_title: ""
-description: "Closing Message Barbados Retreat"
+description: "Jesus, received by Al Fike: “Do not lose the momentum of what has been built but build upon it. For greater momentum shall come in prayer as you work …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

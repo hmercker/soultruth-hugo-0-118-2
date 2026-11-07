@@ -1,7 +1,7 @@
 ﻿---
 title: "Amendment to Augustine’s Guidance"
 menu_title: ""
-description: "Amendment to Augustine’s Guidance"
+description: "Confucius, received by Al Fike: “For if you were to each put forward five questions, we would be answering questions till the day is done.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

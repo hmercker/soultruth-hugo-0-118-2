@@ -1,7 +1,7 @@
 ---
 title: "May God's Gift of Healing Come to You"
 menu_title: ""
-description: "May God's Gift of Healing Come to You"
+description: "Confucius, received by Al Fike: “May God’s gift of healing come to you, beloved souls, uplifting you from this earthly condition, separating you from the …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

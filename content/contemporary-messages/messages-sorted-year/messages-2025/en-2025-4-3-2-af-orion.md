@@ -1,7 +1,7 @@
 ---
 title: "Finds our Quirkiness Amusing!"
 menu_title: ""
-description: "Finds our Quirkiness Amusing!"
+description: "Orion, received by Al Fike: “… pour into your soul, flood your soul with Love. The world needs all the time you can offer in service, for every time you …”"
 date: 2025-04-08 07:21:03+11:00
 draft: False
 hidden: True

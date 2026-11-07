@@ -1,7 +1,7 @@
 ---
 title: "Will Protect Us Next Few Days in God's Love"
 menu_title: ""
-description: "Will Protect Us Next Few Days in God's Love"
+description: "Orion, received by Elizabeth Mack: “I wish to congratulate you on your work thus far. You have joined together as a group and honored the Father by …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

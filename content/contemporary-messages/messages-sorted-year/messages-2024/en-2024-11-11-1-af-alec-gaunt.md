@@ -1,7 +1,7 @@
 ---
 title: "Guidance for Happy Mediums"
 menu_title: ""
-description: "Guidance for Happy Mediums"
+description: "Alec Gaunt, received by Al Fike: “We are all very pleased that you are willing to take up the torch once again, to help in the development and the journey …”"
 date: 2025-04-02 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "A Lesson on Commitment"
 menu_title: ""
-description: "A Lesson on Commitment"
+description: "Augustine & Barbara Davies, received by Al Fike: “I wish to speak about the benefits of commitment and how your commitment toward the work that we do …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

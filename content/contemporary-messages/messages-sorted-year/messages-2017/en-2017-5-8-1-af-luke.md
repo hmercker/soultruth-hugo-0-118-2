@@ -1,7 +1,7 @@
 ﻿---
 title: "Lambs of God"
 menu_title: ""
-description: "Lambs of God"
+description: "Luke, received by Al Fike: “I wish to express an allegory to teach you as to why some souls are adventuresome and wish to experiment in their spiritual …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

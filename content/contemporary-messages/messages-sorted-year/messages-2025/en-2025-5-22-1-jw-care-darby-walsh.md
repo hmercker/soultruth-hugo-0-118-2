@@ -1,7 +1,7 @@
 ---
 title: "The Clarity of Soul Perceptions"
 menu_title: ""
-description: "The Clarity of Soul Perceptions"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “I don’t wish for you to be troubled, but I realize and can see some of you feel immense pressure from the …”"
 date: 2025-05-25 07:21:03+00:00
 draft: False
 hidden: True

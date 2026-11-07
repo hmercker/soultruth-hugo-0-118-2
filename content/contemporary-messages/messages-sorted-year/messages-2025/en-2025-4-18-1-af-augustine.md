@@ -1,7 +1,7 @@
 ---
 title: "Jesus Was Not Meant to Die at an Early Age"
 menu_title: ""
-description: "Jesus Was Not Meant to Die at an Early Age"
+description: "Augustine, received by Al Fike: “May the Father’s Love continue to inflow into your souls, each of you. Open yourselves wide and express the desire to …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

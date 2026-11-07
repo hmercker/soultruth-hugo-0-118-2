@@ -1,7 +1,7 @@
 ---
 title: "The Struggle for Spirituality is the Same Through the Ages"
 menu_title: ""
-description: "The Struggle for Spirituality is the Same Through the Ages"
+description: "Yogananda, received by Al Fike: “A more contemporary of your world who also wishes to come and encourage you upon your path.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

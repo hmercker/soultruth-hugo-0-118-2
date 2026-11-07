@@ -1,7 +1,7 @@
 ﻿---
 title: "Put aside any Resistance and Doubt of this great Gift"
 menu_title: ""
-description: "Put aside any Resistance and Doubt of this great Gift"
+description: "Confucius, received by Al Fike: “You come for your nourishment to be together in this prayer for Love. Open wide your souls, my beloveds, open wide your …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

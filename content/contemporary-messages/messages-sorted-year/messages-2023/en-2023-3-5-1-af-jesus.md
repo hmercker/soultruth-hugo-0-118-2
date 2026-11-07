@@ -1,7 +1,7 @@
 ---
 title: "Powerful Blessing and Invitation to Receive God's Love"
 menu_title: ""
-description: "Powerful Blessing and Invitation to Receive God's Love"
+description: "Jesus, received by Al Fike: “As you know, many years ago I ministered to my brothers and sisters on Earth. Now I come in a different way but still, the …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

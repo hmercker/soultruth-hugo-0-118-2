@@ -1,7 +1,7 @@
 ---
 title: "Be Conscious of Being a Light in the World"
 menu_title: ""
-description: "Be Conscious of Being a Light in the World"
+description: "Michael Collier, received by Al Fike: “Thanks and blessings to you beloved souls. For it is God's plan, and it is God igniting His plan through your souls …”"
 date: 2025-06-18 07:21:03+11:00
 draft: False
 hidden: True

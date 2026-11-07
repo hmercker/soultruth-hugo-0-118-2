@@ -1,7 +1,7 @@
 ---
 title: "Your Prayers are Answered on the Wings of Love"
 menu_title: ""
-description: "Your Prayers are Answered on the Wings of Love"
+description: "John the Beloved, received by Al Fike: “...comes on the wings of your prayers, beloveds. What a gift to come to this earthly plane, unimpeded by the dark …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

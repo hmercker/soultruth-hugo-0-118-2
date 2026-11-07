@@ -1,7 +1,7 @@
 ---
 title: "Faith"
 menu_title: ""
-description: "Faith"
+description: "Thomas Aquinas & Joan of Arc, received by Elizabeth Mack: “I’ve been called “Doubting Thomas.” I would like to lose that nomenclature. For I am full of …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

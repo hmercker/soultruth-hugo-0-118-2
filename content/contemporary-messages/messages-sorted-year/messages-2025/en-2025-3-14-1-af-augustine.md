@@ -1,7 +1,7 @@
 ---
 title: "Be in the World But Not of the World"
 menu_title: ""
-description: "Be in the World But Not of the World"
+description: "Augustine, received by Al Fike: “I ask you not to put your focus on or give credence to the conditions and opinions of the lost children of your world.”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

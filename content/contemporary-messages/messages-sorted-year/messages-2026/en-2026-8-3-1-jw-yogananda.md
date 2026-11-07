@@ -1,7 +1,7 @@
 ﻿---
 title: "The Gunas and Beyond"
 menu_title: ""
-description: "The Gunas and Beyond"
+description: "Yogananda, received by Jimbeau Walsh: “I spoke through the other dear brother recently about the need to focus, to be persistent and sincere, so that all …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Instructions for Developing Mediumship Volume II"
 menu_title: ""
-description: "Instructions for Developing Mediumship Volume II"
+description: "Seretta Kem, received by Al Fike: “We are very happy that you are considering many aspects of the gift of mediumship, communication with us.”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

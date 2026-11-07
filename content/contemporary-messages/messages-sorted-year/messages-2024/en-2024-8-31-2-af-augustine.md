@@ -1,7 +1,7 @@
 ---
 title: "Establishing and Sustaining Rapport for Developing Mediums"
 menu_title: ""
-description: "Establishing and Sustaining Rapport for Developing Mediums"
+description: "Augustine, received by Al Fike: “Precious students of truth, know that each one of you is sincere in your efforts. What is difficult for us is to penetrate …”"
 date: 2025-03-15 07:21:03+11:00
 draft: False
 hidden: True

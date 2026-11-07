@@ -1,7 +1,7 @@
 ---
 title: "Let the Waves Carry You Home"
 menu_title: ""
-description: "Let the Waves Carry You Home"
+description: "Andrew, received by Al Fike: “As the waves carry you home, may you consider the blessings that have been given. May you see how, when a group of earnest …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

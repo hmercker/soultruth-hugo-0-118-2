@@ -1,7 +1,7 @@
 ---
 title: "Encourages Unity Amongst the Divine Love Family"
 menu_title: ""
-description: "Encourages Unity Amongst the Divine Love Family"
+description: "Jesus, received by Al Fike: “…but the consciousness must come to humanity, for how is the world going to change and be healed if humanity does not come to …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

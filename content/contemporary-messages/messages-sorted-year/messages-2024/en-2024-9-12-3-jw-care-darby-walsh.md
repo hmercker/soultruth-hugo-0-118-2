@@ -1,7 +1,7 @@
 ---
 title: "Soul hugs"
 menu_title: ""
-description: "Soul hugs"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “When you look back at your time on earth, you will truly understand why it is said this is a blinking of the eye.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Be the Light of Love"
 menu_title: ""
-description: "Be the Light of Love"
+description: "Francis of Assisi, received by Al Fike: “As you all know, seeking the highest gift of Love, the Essence of God, asking for it to enter into your soul and …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

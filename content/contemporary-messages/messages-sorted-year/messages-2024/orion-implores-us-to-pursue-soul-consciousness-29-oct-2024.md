@@ -1,7 +1,7 @@
 ---
 title: "Orion Implores Us to Continue Pursuing Soul Consciousness"
 menu_title: ""
-description: "Orion Implores Us to Continue Pursuing Soul Consciousness"
+description: "Received by Al Fike: “My blessings to you, my friends. Yes the opportunities to serve are many.”"
 date: 2025-01-13 07:21:03+11:00
 draft: False
 hidden: True

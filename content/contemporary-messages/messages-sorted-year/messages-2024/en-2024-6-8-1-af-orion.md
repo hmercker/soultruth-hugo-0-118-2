@@ -1,7 +1,7 @@
 ---
 title: "Journey and Struggle to Soul Consciousness"
 menu_title: ""
-description: "Journey and Struggle to Soul Consciousness"
+description: "Orion, received by Al Fike: “I wish to elaborate more upon the three centres of consciousness that exist within you. Since we do not come from your world …”"
 date: 2025-04-15 07:21:03+11:00
 draft: False
 hidden: True

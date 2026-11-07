@@ -1,7 +1,7 @@
 ---
 title: "The Power of Divine Love is the Answer to Everything"
 menu_title: ""
-description: "The Power of Divine Love is the Answer to Everything"
+description: "Keea Atta Kem, received by Maureen Cardoso: “This merging and blending is a transformation that continues to be underway and is strengthened and empowered …”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

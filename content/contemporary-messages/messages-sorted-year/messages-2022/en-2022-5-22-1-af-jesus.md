@@ -1,7 +1,7 @@
 ---
 title: "Brings his Blessings and prays with us for Divine Love"
 menu_title: ""
-description: "Brings his Blessings and prays with us for Divine Love"
+description: "Jesus, received by Al Fike: “You are my brothers and sisters, for you know the great gift that has transformed my soul and is transforming your soul.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

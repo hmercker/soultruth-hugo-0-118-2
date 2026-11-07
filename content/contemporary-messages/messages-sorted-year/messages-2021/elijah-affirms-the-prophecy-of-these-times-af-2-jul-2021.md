@@ -1,7 +1,7 @@
 ---
 title: "Elijah Affirms the Prophecy of These Times"
 menu_title: ""
-description: "Elijah Affirms the Prophecy of These Times"
+description: "Received by Al Fike: “Although, the question is, did I implant the idea of my coming to them or did they implant the idea of my presence today with them?”"
 date: 2021-07-20 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soul Awakening and Transformation is Coming"
 menu_title: ""
-description: "Soul Awakening and Transformation is Coming"
+description: "Bartholomew, received by Al Fike: “How pleasant is your life upon these languid shores, warm waters and air. You have communities, relationships, and your …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

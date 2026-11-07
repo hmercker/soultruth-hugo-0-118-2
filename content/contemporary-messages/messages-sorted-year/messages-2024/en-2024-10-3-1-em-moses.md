@@ -1,7 +1,7 @@
 ---
 title: "Teaching Your Brothers and Sisters"
 menu_title: ""
-description: "Teaching Your Brothers and Sisters"
+description: "Moses, received by Elizabeth Mack: “You have many friends here. You each have a role in this world to be a sister or a brother to other human beings who …”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

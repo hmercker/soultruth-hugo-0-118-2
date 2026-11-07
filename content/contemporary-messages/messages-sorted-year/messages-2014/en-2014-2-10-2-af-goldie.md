@@ -1,7 +1,7 @@
 ﻿---
 title: "Exchange of Souls"
 menu_title: ""
-description: "Exchange of Souls"
+description: "Goldie, received by Al Fike: “I see we have an exchange of souls across the waters (chuckles); two precious souls for two precious souls.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

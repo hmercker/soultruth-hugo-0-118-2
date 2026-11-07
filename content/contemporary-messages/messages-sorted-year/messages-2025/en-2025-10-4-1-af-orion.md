@@ -1,7 +1,7 @@
 ---
 title: "There is Much to Do"
 menu_title: ""
-description: "There is Much to Do"
+description: "Orion, received by Al Fike: “There is still much to do, my beloved friends. Much to do in the recalibration, adjustment of your mindful perceptions …”"
 date: 2025-11-02 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Power of our Prayers in Connection with One Another"
 menu_title: ""
-description: "The Power of our Prayers in Connection with One Another"
+description: "Augustine, received by Al Fike: “Through your prayers and efforts, so you open the door that will bring the flood of light, of love, of truth to humanity.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

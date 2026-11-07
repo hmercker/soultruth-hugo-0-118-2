@@ -1,7 +1,7 @@
 ﻿---
 title: "Listen with your Soul"
 menu_title: ""
-description: "Listen with your Soul"
+description: "Inayat Khan, received by Jimbeau Walsh: “For those who do not know me, I am a celestial musician, and I was a musician while on Earth.”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

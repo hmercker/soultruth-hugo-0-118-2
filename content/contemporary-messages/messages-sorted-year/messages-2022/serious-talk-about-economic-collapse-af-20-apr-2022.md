@@ -1,7 +1,7 @@
 ---
 title: "Serious Talk About Economic Collapse and Raising Consciousness on Earth"
 menu_title: ""
-description: "Serious Talk About Economic Collapse and Raising Consciousness on Earth"
+description: "Orion, received by Al Fike: “You have questions as to the coming changes on the Earth. I have come to answer some of those questions and to give some …”"
 date: 2022-06-10 07:21:03+11:00
 draft: False
 hidden: True

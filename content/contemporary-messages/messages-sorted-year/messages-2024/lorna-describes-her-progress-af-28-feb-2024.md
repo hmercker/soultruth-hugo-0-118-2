@@ -1,7 +1,7 @@
 ---
 title: "Lorna Describes Her Progress to the 5th Sphere"
 menu_title: ""
-description: "Lorna Describes Her Progress to the 5th Sphere"
+description: "Received by Al Fike: “You have been speaking of me, so I have come, drawn by your voices, your memories and your love.”"
 date: 2024-03-21 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "An Invitation to Galactic Federation Members"
 menu_title: ""
-description: "An Invitation to Galactic Federation Members"
+description: "Jesus, received by Elizabeth Mack: “My brothers and sisters in this room from my Father. My brother speaks truly, clearly of what is before you, a path …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Power of Persistent Love: Awakening the Soul to God's Truth"
 menu_title: ""
-description: "The Power of Persistent Love: Awakening the Soul to God's Truth"
+description: "Goldie, Augustine & Jesus, received by Al Fike: “Goldie: Bless you, beautiful, precious souls of Earth. Today, I come as a teacher to help inspire and to …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

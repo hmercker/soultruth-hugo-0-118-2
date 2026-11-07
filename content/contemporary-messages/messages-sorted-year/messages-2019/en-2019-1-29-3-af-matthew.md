@@ -1,7 +1,7 @@
 ---
 title: "God Needs Us to Bring Truth"
 menu_title: ""
-description: "God Needs Us to Bring Truth"
+description: "Matthew, received by Al Fike: “He needs your willingness to step forward in Light, to grow in His Love, to awaken in His Love.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

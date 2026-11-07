@@ -1,7 +1,7 @@
 ﻿---
 title: "Follow the sweet Yearnings of the Soul so that you may know Truth"
 menu_title: ""
-description: "Follow the sweet Yearnings of the Soul so that you may know Truth"
+description: "John the Beloved, received by Al Fike: “The Heavenly Father longs to touch each of your souls, my beloveds, to bring His benediction of Love into your souls.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

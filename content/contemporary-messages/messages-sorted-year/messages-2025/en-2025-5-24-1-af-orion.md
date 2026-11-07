@@ -1,7 +1,7 @@
 ---
 title: "Small Choices Can Bring Great Changes"
 menu_title: ""
-description: "Small Choices Can Bring Great Changes"
+description: "Orion, received by Al Fike: “May the blessings of the Father's Love continue to inflow into your souls, for this is the source of great change within you …”"
 date: 2025-06-22 00:00:00+00:00
 draft: False
 hidden: True

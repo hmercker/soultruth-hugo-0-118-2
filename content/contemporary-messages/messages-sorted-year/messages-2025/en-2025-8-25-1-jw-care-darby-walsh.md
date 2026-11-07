@@ -1,7 +1,7 @@
 ---
 title: "Let go of Guilt"
 menu_title: ""
-description: "Let go of Guilt"
+description: "Care Daby Walsh, received by Jimbeau Walsh: “May the love of God be upon us. You have been given much information on progression in the spirit world and …”"
 date: 2025-09-01 07:21:03+00:00
 draft: False
 hidden: True

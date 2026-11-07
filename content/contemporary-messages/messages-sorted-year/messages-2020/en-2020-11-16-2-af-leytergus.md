@@ -1,7 +1,7 @@
 ---
 title: "Every Soul Has a Purpose"
 menu_title: ""
-description: "Every Soul Has a Purpose"
+description: "Leytergus, received by Al Fike: “And I come to speak to the dear son, William, who is contemplating, questioning his role as a servant of God in this world.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

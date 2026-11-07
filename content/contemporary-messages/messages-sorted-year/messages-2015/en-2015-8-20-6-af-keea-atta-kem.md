@@ -1,7 +1,7 @@
 ﻿---
 title: "Keea instructs to go to the Soul and live from that Place rather than the material Mind"
 menu_title: ""
-description: "Keea instructs to go to the Soul and live from that Place rather than the material Mind"
+description: "Keea Atta Kem, received by Al Fike: “And the only way you can know God’s Will is to be centered within your soul, to understand His desires.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

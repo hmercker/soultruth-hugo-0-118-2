@@ -1,7 +1,7 @@
 ---
 title: "Continues to Help us Find Our Purpose"
 menu_title: ""
-description: "Continues to Help us Find Our Purpose"
+description: "Bartholomew, received by Al Fike: “I continue to work diligently to help you come to a place where you are strong and clear, filled with love and have the …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

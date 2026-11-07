@@ -1,7 +1,7 @@
 ---
 title: "God whispers to our souls so that he can work through us"
 menu_title: ""
-description: "God whispers to our souls so that he can work through us"
+description: "John the Beloved, received by Al Fike: “God whispers into your ear the truth. Each of you, within your souls, are listening to the views of God as He …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

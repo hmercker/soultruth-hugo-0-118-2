@@ -1,7 +1,7 @@
 ---
 title: "Divine Love is Available to Us All"
 menu_title: ""
-description: "Divine Love is Available to Us All"
+description: "Andrew, received by Al Fike: “So, we are given this gift, this Touch from God, conveyed by the Holy Spirit upon you, and so, we come in unity and desire to …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

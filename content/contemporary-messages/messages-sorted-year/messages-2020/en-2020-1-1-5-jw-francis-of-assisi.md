@@ -1,7 +1,7 @@
 ---
 title: "This Path Requires You to Know What is Important"
 menu_title: ""
-description: "This Path Requires You to Know What is Important"
+description: "Francis of Assisi, received by Jimbeau Walsh: “As you welcome it in prayer, we join you. You may wonder, “What do I take with me into this new year and …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

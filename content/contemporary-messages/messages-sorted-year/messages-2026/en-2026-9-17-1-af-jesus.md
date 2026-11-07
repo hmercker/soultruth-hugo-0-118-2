@@ -1,7 +1,7 @@
 ﻿---
 title: "Although Not All May Listen, Be a Light as You Travel These Lands"
 menu_title: ""
-description: "Although Not All May Listen, Be a Light as You Travel These Lands"
+description: "Jesus, received by Al Fike: “May the blessings of the Father's Love be yours in great abundance. I have been with you each and every day as you continue to …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

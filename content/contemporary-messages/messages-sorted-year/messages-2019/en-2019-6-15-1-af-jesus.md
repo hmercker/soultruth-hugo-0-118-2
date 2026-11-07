@@ -1,7 +1,7 @@
 ---
 title: "We Shall Commune with God Together"
 menu_title: ""
-description: "We Shall Commune with God Together"
+description: "Jesus, received by Al Fike: “Precious and beloved souls, I come. You are in the Light of God’s Presence at this moment, beloved souls.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

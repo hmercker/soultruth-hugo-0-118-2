@@ -1,7 +1,7 @@
 ---
 title: "One Must Focus on One’s Purpose on the Divine Path"
 menu_title: ""
-description: "One Must Focus on One’s Purpose on the Divine Path"
+description: "Joan of Arc, received by Elizabeth Mack: “To the point, when one travels this road, one must focus on one’s purpose and that purpose is found in God, that …”"
 date: 2025-03-15 07:21:03+11:00
 draft: False
 hidden: True

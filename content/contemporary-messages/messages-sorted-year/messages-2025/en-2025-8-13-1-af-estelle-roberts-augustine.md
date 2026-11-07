@@ -1,7 +1,7 @@
 ---
 title: "The Angels are Preparing to Meet Us in Harrow"
 menu_title: ""
-description: "The Angels are Preparing to Meet Us in Harrow"
+description: "Estelle Roberts & Augustine, received by Al Fike: “Estelle: It is me, Estelle, who is with you and who heartily endorses the efforts that you are making …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

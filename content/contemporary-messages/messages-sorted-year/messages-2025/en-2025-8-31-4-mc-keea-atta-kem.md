@@ -1,7 +1,7 @@
 ﻿---
 title: "Awareness of Intentions: What’s Behind Thoughts/Words/Actions"
 menu_title: ""
-description: "Awareness of Intentions: What’s Behind Thoughts/Words/Actions"
+description: "Keea Atta Kem, received by Maureen Cardoso: “Let us take a moment to set our longings free, setting them off to God, allowing that deepest part of you to …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

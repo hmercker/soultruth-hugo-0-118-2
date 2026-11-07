@@ -1,7 +1,7 @@
 ﻿---
 title: "You are beginning to feel the Power of that deep Purpose"
 menu_title: ""
-description: "You are beginning to feel the Power of that deep Purpose"
+description: "John the Beloved, received by Al Fike: “…..and may the peace that passes all understanding be with you my beloveds and the Father’s Love find a constant …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

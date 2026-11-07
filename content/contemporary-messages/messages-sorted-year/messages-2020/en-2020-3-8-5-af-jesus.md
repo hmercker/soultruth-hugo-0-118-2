@@ -1,7 +1,7 @@
 ---
 title: "Acknowledge the Beauty of Your Own Souls"
 menu_title: ""
-description: "Acknowledge the Beauty of Your Own Souls"
+description: "Jesus, received by Al Fike: “My brothers speak of the need to be strong in love and wisdom. I concur with their message that God will imbue within each of …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

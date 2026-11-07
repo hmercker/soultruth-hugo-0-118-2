@@ -1,7 +1,7 @@
 ---
 title: "Know You are Being Used!"
 menu_title: ""
-description: "Know You are Being Used!"
+description: "Matthew, received by Al Fike: “Bless you, my beloved friends, I am Matthew. God’s plan unfolds with each day, does it not?”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

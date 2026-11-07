@@ -1,7 +1,7 @@
 ---
 title: "Be Love"
 menu_title: ""
-description: "Be Love"
+description: "Mary, received by Al Fike: “Where there is love there is hope. Where there is love there is an upliftment.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

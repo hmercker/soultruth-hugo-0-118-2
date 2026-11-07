@@ -1,7 +1,7 @@
 ---
 title: "You Have Heard the Tolling Bell"
 menu_title: ""
-description: "You Have Heard the Tolling Bell"
+description: "Confucius, received by Al Fike: “Soon you will fly away, back to your perch in the world. I urge you to take the words, guidance and experiences that you …”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Blessing"
 menu_title: ""
-description: "Blessing"
+description: "Jesus, received by Al Fike: “May they be blessed as they journey along this path and find their way through the human condition to that of Your Will and …”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

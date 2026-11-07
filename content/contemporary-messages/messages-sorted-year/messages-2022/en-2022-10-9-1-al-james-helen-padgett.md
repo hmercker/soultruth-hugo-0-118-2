@@ -1,7 +1,7 @@
 ---
 title: "Bless and Encourage Us"
 menu_title: ""
-description: "Bless and Encourage Us"
+description: "James & Helen Padgett, received by Al Fike: “May God’s Love be your mainstay, my beloved friends. Whether the truth of the matter comes from the Bible …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

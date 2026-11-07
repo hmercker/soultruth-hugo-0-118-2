@@ -1,7 +1,7 @@
 ---
 title: "The Power of Your Prayers: Instruments of God's Light"
 menu_title: ""
-description: "The Power of Your Prayers: Instruments of God's Light"
+description: "Augustine, received by Al Fike: “The world benefits from your prayers, beloved and beautiful students of truth. Your prayers have purpose.”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

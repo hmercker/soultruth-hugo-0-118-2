@@ -1,7 +1,7 @@
 ﻿---
 title: "The Ups and the Downs of the Journey"
 menu_title: ""
-description: "The Ups and the Downs of the Journey"
+description: "Confucius, received by Al Fike: “Each of you has been called to do this work, to further God’s Will in this world, to work together, to pray together, to …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

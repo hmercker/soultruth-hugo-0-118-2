@@ -1,7 +1,7 @@
 ---
 title: "Blessed Are You"
 menu_title: ""
-description: "Blessed Are You"
+description: "Jesus, received by Al Fike: “….through the tortuous and treacherous path of life and find light. Each one of you I promise, will find light in your lives …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

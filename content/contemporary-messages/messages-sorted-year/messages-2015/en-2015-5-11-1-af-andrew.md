@@ -1,7 +1,7 @@
 ﻿---
 title: "Seek the Divine Essence of God"
 menu_title: ""
-description: "Seek the Divine Essence of God"
+description: "Andrew, received by Al Fike: “At this very moment the Father’s Love flows into your souls quenching that thirst from deep within you to receive the Divine …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

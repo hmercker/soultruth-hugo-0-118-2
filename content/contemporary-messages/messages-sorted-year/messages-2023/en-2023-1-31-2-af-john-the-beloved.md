@@ -1,7 +1,7 @@
 ---
 title: "Be in Alignment with Your Soul During Prayer"
 menu_title: ""
-description: "Be in Alignment with Your Soul During Prayer"
+description: "John the Beloved, received by Al Fike: “As you sing and send your praises to God, so you open the floodgates of heaven pouring down upon you in Light.”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

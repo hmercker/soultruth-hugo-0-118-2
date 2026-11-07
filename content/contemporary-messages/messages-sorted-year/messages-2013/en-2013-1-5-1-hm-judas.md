@@ -1,7 +1,7 @@
 ﻿---
 title: "The Joy of Love"
 menu_title: ""
-description: "The Joy of Love"
+description: "Judas, received by Helge Mercker: “You are reading my messages I gave through HR. You find some clarity on some issues and this will help us.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Never Assume Limitation"
 menu_title: ""
-description: "Never Assume Limitation"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “I know you feel a bit detached from those who seem not quite as interested in creating physical sanctuary …”"
 date: 2025-06-21 07:21:03+00:00
 draft: False
 hidden: True

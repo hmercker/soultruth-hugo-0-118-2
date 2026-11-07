@@ -1,7 +1,7 @@
 ﻿---
 title: "Pray to Express Your Gifts"
 menu_title: ""
-description: "Pray to Express Your Gifts"
+description: "James (Brother of Jesus), received by Elizabeth Mack: “Yet, he sought to perform such changes in human behaviour. One might say he was driven, when really …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

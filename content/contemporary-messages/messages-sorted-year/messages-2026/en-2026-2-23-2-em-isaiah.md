@@ -1,7 +1,7 @@
 ﻿---
 title: "Spiritually Cleaning Up the Environment"
 menu_title: ""
-description: "Spiritually Cleaning Up the Environment"
+description: "Isaiah, received by Elizabeth Mack: “Many years ago, before the advent of the coming of Jesus, we were in a deplorable condition, we, the human race, were …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

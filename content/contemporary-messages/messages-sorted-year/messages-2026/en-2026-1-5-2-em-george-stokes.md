@@ -1,7 +1,7 @@
 ﻿---
 title: "So Much Love Is Pouring Into the Earth at This Time"
 menu_title: ""
-description: "So Much Love Is Pouring Into the Earth at This Time"
+description: "George Stokes, received by Elizabeth Mack: “We are in luck, dear children. I live in the Celestial Heavens and I am the gatekeeper for this soul who …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

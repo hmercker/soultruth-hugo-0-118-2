@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings to help those who are engaged in the larger Circle of Light"
 menu_title: ""
-description: "Blessings to help those who are engaged in the larger Circle of Light"
+description: "James, received by Al Fike: “I wish to tell you and your inner circle you have been given a special dispensation, and to those within your inner circle.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Comes Because of His Love for Humanity "
 menu_title: ""
-description: "Comes Because of His Love for Humanity "
+description: "Francis of Assisi, received by Al Fike: “May God’s Peace be with you my friends; I am Francis. Francis on the Earth, and now I am an inhabitant of the …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

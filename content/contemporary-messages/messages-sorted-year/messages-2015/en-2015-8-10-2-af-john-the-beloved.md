@@ -1,7 +1,7 @@
 ﻿---
 title: "God has much for each of you to do"
 menu_title: ""
-description: "God has much for each of you to do"
+description: "John the Beloved, received by Al Fike: “Soon you will be coming together and gathering the souls under the wings of Love and care, and you each have a …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

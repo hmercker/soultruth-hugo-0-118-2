@@ -1,7 +1,7 @@
 ---
 title: "We Continue to Pray Together for God's Love"
 menu_title: ""
-description: "We Continue to Pray Together for God's Love"
+description: "Mary, received by Al Fike: “That nourishment is familiar and so much a part of me now, as I have grown and discovered the wonders of God's Love.”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

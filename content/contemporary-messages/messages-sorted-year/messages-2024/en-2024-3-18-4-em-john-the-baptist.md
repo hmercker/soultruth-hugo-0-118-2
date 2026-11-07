@@ -1,7 +1,7 @@
 ---
 title: "Take Each Step Carefully, Completely, Fully in the Grace of God"
 menu_title: ""
-description: "Take Each Step Carefully, Completely, Fully in the Grace of God"
+description: "John the Baptist, received by Elizabeth Mack: “You are among the few in the world to pursue this path. You will see when you come over what a blessing it …”"
 date: 2025-07-20 07:21:03+11:00
 draft: False
 hidden: True

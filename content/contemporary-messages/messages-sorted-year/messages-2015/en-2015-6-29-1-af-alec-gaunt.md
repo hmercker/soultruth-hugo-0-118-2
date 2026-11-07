@@ -1,7 +1,7 @@
 ﻿---
 title: "Release the Pains of your Soul, for God needs you to be strong and clear"
 menu_title: ""
-description: "Release the Pains of your Soul, for God needs you to be strong and clear"
+description: "Alec Gaunt, received by Al Fike: “This will happen more and more as he develops in his soul faculties and becomes more sensitive to spirit communication …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Invites Us Into At-Onement with God"
 menu_title: ""
-description: "Invites Us Into At-Onement with God"
+description: "Bartholomew, received by Al Fike: “Welcome, intrepid travellers upon this Path of Love toward at-onement with God. For this is not a journey that is taken …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

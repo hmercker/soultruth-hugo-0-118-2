@@ -1,7 +1,7 @@
 ---
 title: "Pray for Your Loved Ones"
 menu_title: ""
-description: "Pray for Your Loved Ones"
+description: "Mylora, received by Al Fike: “Blessings for you friends of the earth, children of God. We continue to be uplifted in God's beautiful Touch.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

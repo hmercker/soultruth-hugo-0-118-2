@@ -1,7 +1,7 @@
 ---
 title: "Healing the Creatures"
 menu_title: ""
-description: "Healing the Creatures"
+description: "Mylora, received by Elizabeth Mack: “You have seen for yourselves the destructive powers of human beings, upon not just mankind but upon the creatures who …”"
 date: 2025-07-01 07:21:03+00:00
 draft: False
 hidden: True

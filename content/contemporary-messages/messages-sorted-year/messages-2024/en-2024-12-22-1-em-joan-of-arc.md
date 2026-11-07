@@ -1,7 +1,7 @@
 ---
 title: "God's Blessing to Each of His Children"
 menu_title: ""
-description: "God's Blessing to Each of His Children"
+description: "Joan of Arc, received by Elizabeth Mack: “There are so many souls who have light in them that God wishes to bless them with even more light during this …”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

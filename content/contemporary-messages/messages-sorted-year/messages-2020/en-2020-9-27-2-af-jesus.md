@@ -1,7 +1,7 @@
 ---
 title: "Blessings to Increase our Faith and Inflowing of Divine Love in Our Souls"
 menu_title: ""
-description: "Blessings to Increase our Faith and Inflowing of Divine Love in Our Souls"
+description: "Jesus, received by Al Fike: “Though they may feel all the comforts of the material life, within their souls is desolation and desperation.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Conceit of Man Originates in the Mind"
 menu_title: ""
-description: "The Conceit of Man Originates in the Mind"
+description: "Matthew, received by Al Fike: “….of the Father’s Love pouring within you. That indeed, as you navigate through life, you are rewarded by the expression of …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

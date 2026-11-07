@@ -1,7 +1,7 @@
 ---
 title: "A Garden within You"
 menu_title: ""
-description: "A Garden within You"
+description: "Mylora, received by Al Fike: “May God's Love awaken your souls, my beautiful friends. May that light burst forth into the world as a channel of God's Love …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

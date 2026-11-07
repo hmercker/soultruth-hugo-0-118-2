@@ -1,7 +1,7 @@
 ---
 title: "Gifts of the Spirit"
 menu_title: ""
-description: "Gifts of the Spirit"
+description: "John the Beloved, received by Jimbeau Walsh: “All here are beloved by God. All here in this prayer receive not only the great essence of the heavenly …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

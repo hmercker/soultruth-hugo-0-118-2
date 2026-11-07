@@ -1,7 +1,7 @@
 ﻿---
 title: "Harmony in Divine Love Expressions"
 menu_title: ""
-description: "Harmony in Divine Love Expressions"
+description: "John Hughes, received by Elizabeth Mack: “There is little difference in expressions of Divine Love when God is guiding you. Those expressions are sacred.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

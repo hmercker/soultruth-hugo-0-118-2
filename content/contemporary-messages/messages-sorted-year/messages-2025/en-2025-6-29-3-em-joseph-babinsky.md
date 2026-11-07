@@ -1,7 +1,7 @@
 ---
 title: "Guidance to Teach Former Island Residents"
 menu_title: ""
-description: "Guidance to Teach Former Island Residents"
+description: "Joseph Babinsky, received by Elizabeth Mack: “Your light shines so very bright and there are many here who have come to see and learn about this light.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

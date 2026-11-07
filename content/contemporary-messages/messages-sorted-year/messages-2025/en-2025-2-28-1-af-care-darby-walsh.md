@@ -1,7 +1,7 @@
 ---
 title: "Guidance for Us to Stand Out as Instruments in God’s Service"
 menu_title: ""
-description: "Guidance for Us to Stand Out as Instruments in God’s Service"
+description: "Care Darby Walsh, received by Al Fike: “May the Father's Love continue to bless you, beautiful souls of God. Though I usually speak through my husband …”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

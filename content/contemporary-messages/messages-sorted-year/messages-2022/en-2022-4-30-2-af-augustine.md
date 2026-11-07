@@ -1,7 +1,7 @@
 ---
 title: "Reassures Us of Celestial Presence"
 menu_title: ""
-description: "Reassures Us of Celestial Presence"
+description: "Augustine, received by Al Fike: “Do not be surprised at the collaborations that may come into your midst as you continue to pray for and open to the Will …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

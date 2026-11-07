@@ -1,7 +1,7 @@
 ---
 title: "Make your Priority the Development of Your Soul through Divine Love"
 menu_title: ""
-description: "Make your Priority the Development of Your Soul through Divine Love"
+description: "Augustine, received by Al Fike: “I want to commend each of you for your efforts and your desire to continue upon this Path Divine to awaken to all the …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

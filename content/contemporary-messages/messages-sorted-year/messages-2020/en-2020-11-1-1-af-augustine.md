@@ -1,7 +1,7 @@
 ---
 title: "Demonstration of Mediumship / Talk about Spiritual Spheres"
 menu_title: ""
-description: "Demonstration of Mediumship / Talk about Spiritual Spheres"
+description: "Augustine, received by Al Fike: “I would encourage each one of you to seek to enlighten your soul with the gifts that God has to give, with the Love that …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

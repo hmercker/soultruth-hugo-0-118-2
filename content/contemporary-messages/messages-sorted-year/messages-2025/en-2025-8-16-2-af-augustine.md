@@ -1,7 +1,7 @@
 ---
 title: "Harmony in the Universe Adds to God's Creation"
 menu_title: ""
-description: "Harmony in the Universe Adds to God's Creation"
+description: "Augustine, received by Al Fike: “Students of the truth, I am your teacher, Augustine. All elements of that creation strive for harmony.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

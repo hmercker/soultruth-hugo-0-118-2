@@ -1,7 +1,7 @@
 ---
 title: "Your Souls Led You to God's Divine Love"
 menu_title: ""
-description: "Your Souls Led You to God's Divine Love"
+description: "Peter, received by Elizabeth Mack: “The Father's Love is not apparent to everyone, but you and several others upon this Earth have found your way to God's …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

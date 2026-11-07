@@ -1,7 +1,7 @@
 ---
 title: "The Angels Walk With You"
 menu_title: ""
-description: "The Angels Walk With You"
+description: "Augustine, received by Maureen Cardoso: “We are very pleased with how you have dedicated time in this healing chapel to pray, strengthening Light that …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

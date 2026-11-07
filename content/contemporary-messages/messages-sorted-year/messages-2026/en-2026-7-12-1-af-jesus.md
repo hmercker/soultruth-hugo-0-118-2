@@ -1,7 +1,7 @@
 ﻿---
 title: "Call to Become God’s Agents of Change Through Divine Love"
 menu_title: ""
-description: "Call to Become God’s Agents of Change Through Divine Love"
+description: "Jesus, received by Al Fike: “Thank you, my beloved sister. Your prayers are sincere and go to God.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

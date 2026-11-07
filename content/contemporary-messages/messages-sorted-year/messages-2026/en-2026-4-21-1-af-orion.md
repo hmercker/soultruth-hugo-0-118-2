@@ -1,7 +1,7 @@
 ﻿---
 title: "God Has Created a Wondrous and Unique Journey for Each of You"
 menu_title: ""
-description: "God Has Created a Wondrous and Unique Journey for Each of You"
+description: "Orion, received by Al Fike: “I see with each one of you a brighter light. With that light, comes the awakening of soul consciousness, that beautiful gift …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

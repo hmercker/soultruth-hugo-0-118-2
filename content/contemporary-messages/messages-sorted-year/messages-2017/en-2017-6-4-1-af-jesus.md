@@ -1,7 +1,7 @@
 ﻿---
 title: "God’s Blessing Through Jesus"
 menu_title: ""
-description: "God’s Blessing Through Jesus"
+description: "Jesus, received by Al Fike: “God’s Hand is upon you, beloved souls. The great Comforter is with you beloveds (wind chimes start ringing and then stop).”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

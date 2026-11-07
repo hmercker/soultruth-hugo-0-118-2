@@ -1,7 +1,7 @@
 ---
 title: "Accolades to All for the Spiritual Meeting with Orion"
 menu_title: ""
-description: "Accolades to All for the Spiritual Meeting with Orion"
+description: "Keea Atta Kem, received by Maureen Cardoso: “Indeed, some of you have been enjoying the elevated spiritual meeting over the wires that has been …”"
 date: 2025-06-18 07:21:03+00:00
 draft: False
 hidden: True

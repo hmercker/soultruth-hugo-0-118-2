@@ -1,7 +1,7 @@
 ---
 title: "So Many in This World Need Divine Love Brought to Them"
 menu_title: ""
-description: "So Many in This World Need Divine Love Brought to Them"
+description: "Moses, received by Elizabeth Mack: “For it is a bright light that is brightened by the love in your souls, by your yearnings to be in truth, by your …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

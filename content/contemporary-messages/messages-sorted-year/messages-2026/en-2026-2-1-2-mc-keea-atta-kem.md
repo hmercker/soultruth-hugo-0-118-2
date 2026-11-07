@@ -1,7 +1,7 @@
 ﻿---
 title: "Allow the Integration of God's Love Within Your Soul"
 menu_title: ""
-description: "Allow the Integration of God's Love Within Your Soul"
+description: "Keea Atta Kem, received by Maureen Cardoso: “What a blessing it is to be with you as you gather in this way, where you bring God’s Love into your souls and …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

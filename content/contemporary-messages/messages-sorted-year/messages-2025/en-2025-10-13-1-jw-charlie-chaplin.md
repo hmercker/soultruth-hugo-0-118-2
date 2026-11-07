@@ -1,7 +1,7 @@
 ---
 title: "God’s Love restores one’s Sense of Humor"
 menu_title: ""
-description: "God’s Love restores one’s Sense of Humor"
+description: "Charlie Chaplin, received by Jimbeau Walsh: “My dear, sweet, charming, wonderful, lovely friends. I have been away for a while doing the work with much joy.”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

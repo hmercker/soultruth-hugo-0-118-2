@@ -1,7 +1,7 @@
 ---
 title: "There is No Confusion When One is Present as Love"
 menu_title: ""
-description: "There is No Confusion When One is Present as Love"
+description: "Yogananda, received by Jimbeau Walsh: “I opened my doors to all, regardless of race, creed, color, beliefs for there is only one Creator who is the Source …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

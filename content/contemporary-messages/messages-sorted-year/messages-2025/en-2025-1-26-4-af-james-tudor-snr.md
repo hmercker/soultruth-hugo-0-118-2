@@ -1,7 +1,7 @@
 ---
 title: "Continues His Work Sharing the Truths of Divine Love in Barbados"
 menu_title: ""
-description: "Continues His Work Sharing the Truths of Divine Love in Barbados"
+description: "James Tudor Snr, received by Al Fike: “Bartholomew and I are good friends. In my day upon the Earth, and you have probably heard my story, I tried to bring …”"
 date: 2025-04-02 07:21:03+11:00
 draft: False
 hidden: True

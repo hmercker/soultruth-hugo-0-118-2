@@ -1,7 +1,7 @@
 ---
 title: "Your Soul Continues to Awaken"
 menu_title: ""
-description: "Your Soul Continues to Awaken"
+description: "Mylora, received by Al Fike: “Have you ever seen a flower open to bloom fully with the warmth of the sun touching each petal?”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

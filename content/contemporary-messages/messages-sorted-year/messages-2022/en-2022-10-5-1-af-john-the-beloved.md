@@ -1,7 +1,7 @@
 ---
 title: "Our Paths Will be Marked by the Number of Souls We Touch"
 menu_title: ""
-description: "Our Paths Will be Marked by the Number of Souls We Touch"
+description: "John the Beloved, received by Al Fike: “You know me as John the Beloved. That you may come into His presence more fully as God’s Grace envelops us.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

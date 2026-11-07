@@ -1,7 +1,7 @@
 ---
 title: "Using Humour to Expose Greed, Injustice, and Inequality"
 menu_title: ""
-description: "Using Humour to Expose Greed, Injustice, and Inequality"
+description: "Charlie Chaplin, received by Jimbeau Walsh: “What a blessing to be here in your beautiful Circle, lifted above the world and its weight upon your shoulders.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

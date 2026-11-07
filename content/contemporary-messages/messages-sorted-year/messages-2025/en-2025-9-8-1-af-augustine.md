@@ -1,7 +1,7 @@
 ---
 title: "The Angels and Those Who Have Come Before, Stand in Support of this Community"
 menu_title: ""
-description: "The Angels and Those Who Have Come Before, Stand in Support of this Community"
+description: "Augustine, received by Al Fike: “Your world is about to open up, dear and beloved souls. Thus, they are arrayed around you, beloved souls.”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

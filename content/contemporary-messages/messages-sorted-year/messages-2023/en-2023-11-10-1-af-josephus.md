@@ -1,7 +1,7 @@
 ---
 title: "Garments Are Being Woven for Each of Us"
 menu_title: ""
-description: "Garments Are Being Woven for Each of Us"
+description: "Josephus, received by Al Fike: “God is making for each of you a different garment. One that is not woven of material threads and means, but one of the …”"
 date: 2025-07-01 07:21:03+00:00
 draft: False
 hidden: True

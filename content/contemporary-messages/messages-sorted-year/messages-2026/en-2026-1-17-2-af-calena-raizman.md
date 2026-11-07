@@ -1,7 +1,7 @@
 ---
 title: "Her Journey in Spirit and Encourages All to Walk the One True Path to God"
 menu_title: ""
-description: "Her Journey in Spirit and Encourages All to Walk the One True Path to God"
+description: "Calena Raizman, received by Al Fike: “My friends in love, I especially come to my dear friend and my husband. I want you to know about my journey to truth.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

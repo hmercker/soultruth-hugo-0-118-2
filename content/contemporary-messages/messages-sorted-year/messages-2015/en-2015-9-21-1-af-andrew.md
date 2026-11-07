@@ -1,7 +1,7 @@
 ﻿---
 title: "You are now strong enough to walk in this harsh World without Fear"
 menu_title: ""
-description: "You are now strong enough to walk in this harsh World without Fear"
+description: "Andrew, received by Al Fike: “Once again, you come to the well of the Father’s Love to quench your thirst, to drink deeply of these Living Waters that …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

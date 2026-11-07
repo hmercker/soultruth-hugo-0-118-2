@@ -1,7 +1,7 @@
 ﻿---
 title: "You Will Know When God Places a Soul Upon Your Path"
 menu_title: ""
-description: "You Will Know When God Places a Soul Upon Your Path"
+description: "Confucius, received by Al Fike: “Oh, how my little birds love to flock together do they not! And how God loves to hear your songs put forward to Him …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

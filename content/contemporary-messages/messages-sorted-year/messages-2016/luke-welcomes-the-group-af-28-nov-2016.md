@@ -1,7 +1,7 @@
 ---
 title: "Luke welcomes those who are a part of the Punnalu’u gathering"
 menu_title: ""
-description: "Luke welcomes those who are a part of the Punnalu’u gathering"
+description: "Received by Al Fike: “May the Father’s Love find a constant inflowing into your souls my friends, that you may feel His presence in your heart always.”"
 date: 2017-03-12 20:50:29+00:00
 draft: False
 hidden: True

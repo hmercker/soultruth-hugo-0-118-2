@@ -1,7 +1,7 @@
 ﻿---
 title: "Guidance concerning the upcoming Retreat"
 menu_title: ""
-description: "Guidance concerning the upcoming Retreat"
+description: "Augustine, received by Al Fike: “May your souls open wide to the great inflowing of our Father’s Divine Essence, the benediction of His Touch within you …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

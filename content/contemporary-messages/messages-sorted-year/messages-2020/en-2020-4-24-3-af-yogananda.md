@@ -1,7 +1,7 @@
 ---
 title: "Open Yourself Allowing Truth to Wash into You"
 menu_title: ""
-description: "Open Yourself Allowing Truth to Wash into You"
+description: "Yogananda, received by Al Fike: “Blessings to you fellow travelers upon this Path Divine. As the waves of God’s Love breaks against the shores of your …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

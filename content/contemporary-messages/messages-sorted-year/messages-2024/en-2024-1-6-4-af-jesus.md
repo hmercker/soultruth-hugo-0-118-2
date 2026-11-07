@@ -1,7 +1,7 @@
 ---
 title: "May We Be Transformed by the Gift of God’s Love"
 menu_title: ""
-description: "May We Be Transformed by the Gift of God’s Love"
+description: "Jesus, received by Al Fike: “The glory of God is upon you, beloveds. Open yourselves and know the power and glory of His blessings, beloved souls.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

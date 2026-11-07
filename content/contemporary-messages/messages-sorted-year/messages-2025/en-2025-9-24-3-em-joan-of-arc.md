@@ -1,7 +1,7 @@
 ---
 title: "We Go Together to Bring Love, Light and Upliftment"
 menu_title: ""
-description: "We Go Together to Bring Love, Light and Upliftment"
+description: "Joan of Arc, received by Elizabeth Mack: “…one that is a part of me now. I too look forward to visiting this place that I fought so hard for.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

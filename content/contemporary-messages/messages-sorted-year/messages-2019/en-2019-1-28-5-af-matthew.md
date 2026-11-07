@@ -1,7 +1,7 @@
 ---
 title: "What is the Possibility of Meeting Soulmate While on Earth?"
 menu_title: ""
-description: "What is the Possibility of Meeting Soulmate While on Earth?"
+description: "Matthew, received by Al Fike: “This gift is desired by many, but accomplished by few. For the many avenues that a soul takes upon this world often does not …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

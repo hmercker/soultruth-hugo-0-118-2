@@ -1,7 +1,7 @@
 ---
 title: "Addresses Alliance of Light Panel Discussion of the Crystal Gift"
 menu_title: ""
-description: "Addresses Alliance of Light Panel Discussion of the Crystal Gift"
+description: "Orion, received by Al Fike: “As our dear sister has said, it is in love that we give. If you do not feel love when you are sensing a presence close to you …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

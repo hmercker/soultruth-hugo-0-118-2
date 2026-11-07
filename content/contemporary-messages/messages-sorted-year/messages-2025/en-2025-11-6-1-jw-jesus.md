@@ -1,7 +1,7 @@
 ---
 title: "Allow the great Blessing of God's Love to permeate your Being"
 menu_title: ""
-description: "Allow the great Blessing of God's Love to permeate your Being"
+description: "Jesus, received by Jimbeau Walsh: “May the love of God be upon you. When you feel defeated, pray.”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

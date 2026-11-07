@@ -1,7 +1,7 @@
 ---
 title: "I Honour Your Dedications"
 menu_title: ""
-description: "I Honour Your Dedications"
+description: "Augustine, received by Al Fike: “We do not provide this information, inspiration, messages of truth just for the hardy few that are present in our Circles …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

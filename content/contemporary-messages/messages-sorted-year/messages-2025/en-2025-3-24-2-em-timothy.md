@@ -1,7 +1,7 @@
 ---
 title: "An Introduction"
 menu_title: ""
-description: "An Introduction"
+description: "Timothy, received by Elizabeth Mack: “Brothers and sisters of the Earth, know that our Father is the same as your Father. Know that we come and we walk …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

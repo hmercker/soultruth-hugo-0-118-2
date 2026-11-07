@@ -1,7 +1,7 @@
 ---
 title: "Expressions of Love"
 menu_title: ""
-description: "Expressions of Love"
+description: "Barbara Davies & Eileen Caddy, received by Al Fike: “Barbara: May the blessings of God's Love infill you to overflowing. Love may be expressed in many …”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

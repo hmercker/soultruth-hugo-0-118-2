@@ -1,7 +1,7 @@
 ﻿---
 title: "King Solomon talks about how to obtain true Wisdom"
 menu_title: ""
-description: "King Solomon talks about how to obtain true Wisdom"
+description: "Solomon, received by Al Fike: “I was known as Solomon the wise and I have come to speak to you about wisdom. The wisdom that I possessed when I was on …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

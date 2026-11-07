@@ -1,7 +1,7 @@
 ﻿---
 title: "So much hinges upon your Efforts"
 menu_title: ""
-description: "So much hinges upon your Efforts"
+description: "Seretta Kem, received by Al Fike: “...I am very pleased to see that you have acted upon the guidance that I have given you, and you take this seriously.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

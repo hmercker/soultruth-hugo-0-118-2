@@ -1,7 +1,7 @@
 ---
 title: "Encourages Us to Carry on the Work of James Padgett"
 menu_title: ""
-description: "Encourages Us to Carry on the Work of James Padgett"
+description: "Leslie Stone, received by Al Fike: “Although I do not speak often, I am close to you all and I support this work with all my heart and soul.”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

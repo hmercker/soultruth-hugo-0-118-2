@@ -1,7 +1,7 @@
 ---
 title: "Be Open to God's Plan for Each of You"
 menu_title: ""
-description: "Be Open to God's Plan for Each of You"
+description: "Andrew, received by Al Fike: “You will walk many roads together, beloveds. At times you will work together for God.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

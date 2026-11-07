@@ -1,7 +1,7 @@
 ---
 title: "The Pitfalls of Spirit Communication"
 menu_title: ""
-description: "The Pitfalls of Spirit Communication"
+description: "Augustine, received by Al Fike: “Blessings of Love continue to rain down upon each of you, my beautiful and beloved friends.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "The old Man of the House approves of you"
 menu_title: ""
-description: "The old Man of the House approves of you"
+description: "Faith Nyquist, received by Al Fike: “Well, you see I am Faith, and you see that the old man of the house approves of you, as do many.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

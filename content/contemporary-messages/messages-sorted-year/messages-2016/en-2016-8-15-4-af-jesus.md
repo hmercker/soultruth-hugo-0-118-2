@@ -1,7 +1,7 @@
 ﻿---
 title: "Awaken from your Slumbers"
 menu_title: ""
-description: "Awaken from your Slumbers"
+description: "Jesus, received by Al Fike: “God calls you all, my beloveds, calls you all from your slumbers to awaken, awaken your souls.”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

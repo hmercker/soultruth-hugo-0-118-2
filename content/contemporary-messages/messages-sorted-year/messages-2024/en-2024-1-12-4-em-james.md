@@ -1,7 +1,7 @@
 ---
 title: "The Light in Your Souls Ignites Many Souls on this Island"
 menu_title: ""
-description: "The Light in Your Souls Ignites Many Souls on this Island"
+description: "James, received by Elizabeth Mack: “For you are mighty group as one in soul. As my brother has said, you have much to offer those upon this island and this …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

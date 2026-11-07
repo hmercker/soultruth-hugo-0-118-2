@@ -1,7 +1,7 @@
 ﻿---
 title: "You are my Disciple here"
 menu_title: ""
-description: "You are my Disciple here"
+description: "Jesus, received by Al Fike: “The hearts that mend in this country are burdened, my beloved brother. They are burdened with such pain and grief, anger and …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

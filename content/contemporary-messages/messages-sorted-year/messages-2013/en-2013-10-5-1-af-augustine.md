@@ -1,7 +1,7 @@
 ﻿---
 title: "Love will be the Currency of Mankind"
 menu_title: ""
-description: "Love will be the Currency of Mankind"
+description: "Augustine, received by Al Fike: “I was Bishop of Hippo while on Earth. And I am so very glad to see all of you gathered here in this sanctuary, in this …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

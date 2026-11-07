@@ -1,7 +1,7 @@
 ---
 title: "Continue Seeking God’s Blessings"
 menu_title: ""
-description: "Continue Seeking God’s Blessings"
+description: "Andrew, received by Al Fike: “May you continue to open yourselves to a great inflowing of God's Love, the Essence of His Soul bringing you ever higher and …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

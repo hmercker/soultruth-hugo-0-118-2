@@ -1,7 +1,7 @@
 ---
 title: "Revealing the New You!"
 menu_title: ""
-description: "Revealing the New You!"
+description: "Seretta Kem, received by Maureen Cardoso: “Indeed, each one of you has been moving through the process and integration beautifully, swimmingly.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

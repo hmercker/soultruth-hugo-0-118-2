@@ -1,7 +1,7 @@
 ---
 title: "Jesus confirms he intends to materialize"
 menu_title: ""
-description: "Jesus confirms he intends to materialize"
+description: "Received by Al Fike: “I have spoken through our beloved daughter in those far off lands and now I have come to speak to you about your efforts for Direct …”"
 date: 2017-12-01 03:17:37+00:00
 draft: False
 hidden: True

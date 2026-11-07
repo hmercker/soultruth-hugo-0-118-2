@@ -1,7 +1,7 @@
 ﻿---
 title: "You are part of God’s Salvation for Mankind"
 menu_title: ""
-description: "You are part of God’s Salvation for Mankind"
+description: "Jesus, received by Al Fike: “The heavens open for you, my beloveds, and God pours his Light, his Love upon you. Open your souls, beloved, beautiful …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Our Soul's Desires in Alignment with Gods Will"
 menu_title: ""
-description: "Our Soul's Desires in Alignment with Gods Will"
+description: "Salome, received by Al Fike: “How wonderful it is to come and pray together in this Circle of Light, that through your prayers you draw us close, through …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

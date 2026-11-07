@@ -1,7 +1,7 @@
 ---
 title: "A New Angel Who Brings Great Light to All of Us"
 menu_title: ""
-description: "A New Angel Who Brings Great Light to All of Us"
+description: "Bright Waters, received by Al Fike: “As the Great White Spirit touches your souls my name is Bright Waters and you do not know of me, but I know of you.”"
 date: 2025-04-15 07:21:03+11:00
 draft: False
 hidden: True

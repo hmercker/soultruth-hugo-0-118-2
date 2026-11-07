@@ -1,7 +1,7 @@
 ---
 title: "Guidance about Psychic and Soul Perceptions"
 menu_title: ""
-description: "Guidance about Psychic and Soul Perceptions"
+description: "Abdul Latif, received by Al Fike: “I have come again to speak to this dear daughter (K) who continues to have extraordinary experiences and sensations in …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

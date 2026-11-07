@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Confucius, received by Al Fike: “Fly away little birds, fly away. And some day you will return to this perch and sing your songs together in loving harmony …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

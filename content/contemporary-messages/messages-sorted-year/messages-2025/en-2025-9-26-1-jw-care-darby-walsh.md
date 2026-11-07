@@ -1,7 +1,7 @@
 ---
 title: "Sanctuaries will flourish if their foundations are built on God's Love"
 menu_title: ""
-description: "Sanctuaries will flourish if their foundations are built on God's Love"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “I have been following my beloved around on his journeys, so happy for him to be with his Divine Love family …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

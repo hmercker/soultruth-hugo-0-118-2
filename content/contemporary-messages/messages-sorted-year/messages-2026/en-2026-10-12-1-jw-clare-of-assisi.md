@@ -1,7 +1,7 @@
 ﻿---
 title: "Silence is Golden"
 menu_title: ""
-description: "Silence is Golden"
+description: "Clare of Assisi, received by Jimbeau Walsh: “I have come to this circle with many of my barefoot sisters who have served God over the years since our …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

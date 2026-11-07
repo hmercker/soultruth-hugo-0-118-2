@@ -1,7 +1,7 @@
 ---
 title: "Wants to Support Us All"
 menu_title: ""
-description: "Wants to Support Us All"
+description: "George Stokes, received by Elizabeth Mack: “For the Father has filled this circle with such love, such beautiful inflowings of God’s Essence that touches …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

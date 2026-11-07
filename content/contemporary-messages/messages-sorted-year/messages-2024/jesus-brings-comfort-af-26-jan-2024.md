@@ -1,7 +1,7 @@
 ---
 title: "Jesus and Mary Bring Comfort to Those Grieving"
 menu_title: ""
-description: "Jesus and Mary Bring Comfort to Those Grieving"
+description: "Received by Al Fike: “This does not mean that the trials and tribulations of an earthly life disappear. Rather it is your challenge to go beyond the pain …”"
 date: 2024-02-15 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Release those Conditions within you that hold you back"
 menu_title: ""
-description: "Release those Conditions within you that hold you back"
+description: "Augustine, received by Al Fike: “You must build within you and around you the conditions that are required for God to do His work effectively and …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

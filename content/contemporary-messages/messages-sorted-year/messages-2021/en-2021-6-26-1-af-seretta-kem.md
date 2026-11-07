@@ -1,7 +1,7 @@
 ---
 title: "Instructions on How to Prepare for Direct Voice"
 menu_title: ""
-description: "Instructions on How to Prepare for Direct Voice"
+description: "Seretta Kem, received by Al Fike: “For all of you who are insistent and desiring to come to be a part of this Circle of Light in the flesh, I say to you …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

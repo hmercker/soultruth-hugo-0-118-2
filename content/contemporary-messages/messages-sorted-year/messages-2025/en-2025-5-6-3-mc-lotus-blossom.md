@@ -1,7 +1,7 @@
 ---
 title: "Walk in the Light and Grace of God's Love"
 menu_title: ""
-description: "Walk in the Light and Grace of God's Love"
+description: "Lotus Blossom, received by Maureen Cardoso: “As you open your souls to the warmth of God's Love, you draw us near, and we join you in your prayers.”"
 date: 2025-06-21 00:00:00+00:00
 draft: False
 hidden: True

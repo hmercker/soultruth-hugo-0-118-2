@@ -1,7 +1,7 @@
 ---
 title: "Lesson 11: Jesus Implores Humanity to Reconcile Their Minds and Souls to God"
 menu_title: ""
-description: "Lesson 11: Jesus Implores Humanity to Reconcile Their Minds and Souls to God"
+description: "Received by Al Fike: “May the Breath of God, His Love, continue to flow into your soul, my beloved brothers and sisters.”"
 date: 2020-12-13 07:21:03+11:00
 draft: False
 hidden: True

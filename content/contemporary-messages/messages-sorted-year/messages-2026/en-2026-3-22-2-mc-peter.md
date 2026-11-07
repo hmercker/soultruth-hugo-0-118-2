@@ -1,7 +1,7 @@
 ﻿---
 title: "You Develop in the Ability to Express Soul Consciousness"
 menu_title: ""
-description: "You Develop in the Ability to Express Soul Consciousness"
+description: "Peter, received by Maureen Cardoso: “I have not spoken through this instrument. I greet you all with a blessing of love and peace as you come together …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

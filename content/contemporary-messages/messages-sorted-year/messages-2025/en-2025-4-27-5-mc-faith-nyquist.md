@@ -1,7 +1,7 @@
 ---
 title: "The Blessing of Expiation"
 menu_title: ""
-description: "The Blessing of Expiation"
+description: "Faith Nyquist, received by Maureen Cardoso: “I greet you, dear friends. Oh, the gift and the blessing of expiation, the encrustations upon a soul.”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

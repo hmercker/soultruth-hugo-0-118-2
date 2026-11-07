@@ -1,7 +1,7 @@
 ---
 title: "The Beautiful Relationships You Have Created in Prayer Will Last All Eternity"
 menu_title: ""
-description: "The Beautiful Relationships You Have Created in Prayer Will Last All Eternity"
+description: "Andrew, received by Al Fike: “…together may come to an end, beloved souls, but in truth, they will not. For you have created a bond together, a beautiful …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

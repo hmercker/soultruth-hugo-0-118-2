@@ -1,7 +1,7 @@
 ﻿---
 title: "Be tolerant of different Ideas and Ways"
 menu_title: ""
-description: "Be tolerant of different Ideas and Ways"
+description: "Seretta Kem, received by Al Fike: “Beautiful and beloved souls, welcome to this circle of Light. For in this way you create powerful bonds of Love amongst you.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

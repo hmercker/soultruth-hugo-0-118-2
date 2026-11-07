@@ -1,7 +1,7 @@
 ﻿---
 title: "Beacons of Light in God's Great Plan"
 menu_title: ""
-description: "Beacons of Light in God's Great Plan"
+description: "Jesus, received by Al Fike: “In the name of love, I urge you to love, my beloveds. There are pinpoints of light that are growing and brightening because …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

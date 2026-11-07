@@ -1,7 +1,7 @@
 ﻿---
 title: "It Is Through You That God's Love Is Expressed in the Material World"
 menu_title: ""
-description: "It Is Through You That God's Love Is Expressed in the Material World"
+description: "Jesus, received by Elizabeth Mack: “I welcome you to this retreat, this special place of blessing where love may grow and be expressed in the material …”"
 date: 2026-11-02 00:00:00+00:00
 draft: False
 hidden: True

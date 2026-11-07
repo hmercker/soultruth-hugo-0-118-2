@@ -1,7 +1,7 @@
 ﻿---
 title: "Do Not Hide from Your Feelings; Rather, God to Replace Disharmony with His Love"
 menu_title: ""
-description: "Do Not Hide from Your Feelings; Rather, God to Replace Disharmony with His Love"
+description: "Augustine, received by Al Fike: “May your souls open like the wings of a butterfly, opening wide and revealing all the beauty within you, for there is …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

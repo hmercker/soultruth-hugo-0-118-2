@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Jesus, received by Al Fike: “Blessed are the children of the Heavenly Father who seek His Love, who have a deep desire within their souls to know truth.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

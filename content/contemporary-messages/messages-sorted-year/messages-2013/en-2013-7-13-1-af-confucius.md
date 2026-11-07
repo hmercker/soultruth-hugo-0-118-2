@@ -1,7 +1,7 @@
 ﻿---
 title: "Have Compassion for those who are in a negative Condition"
 menu_title: ""
-description: "Have Compassion for those who are in a negative Condition"
+description: "Confucius, received by Al Fike: “Blessings to you, my children, I am Confucius. Each of you (struggles?) for the light.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

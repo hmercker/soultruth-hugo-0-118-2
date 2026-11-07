@@ -1,7 +1,7 @@
 ---
 title: "Now is the time to Reconcile Your Soul with God"
 menu_title: ""
-description: "Now is the time to Reconcile Your Soul with God"
+description: "Matthew, received by Al Fike: “God has brought you together in love. God has ensured that each of you have found your treasure of the soul, awakening to …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "The Pentecost is in The Works You May Accomplish: The Call to Be Disciples of Divine Love"
 menu_title: ""
-description: "The Pentecost is in The Works You May Accomplish: The Call to Be Disciples of Divine Love"
+description: "Jesus, received by Al Fike: “I continue to tend my flock. I continue to minister to all those who seek the truth and receive the Truth of the Father's Love …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

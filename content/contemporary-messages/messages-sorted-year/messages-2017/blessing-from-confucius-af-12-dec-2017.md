@@ -1,7 +1,7 @@
 ---
 title: "Blessing from Confucius"
 menu_title: ""
-description: "Blessing from Confucius"
+description: "Received by Al Fike: “I blow away the dust to prepare you for tomorrow, my beloveds. Beautiful souls, beautiful souls, my precious birds.”"
 date: 2020-05-06 08:06:52+10:00
 draft: False
 hidden: True

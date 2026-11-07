@@ -1,7 +1,7 @@
 ﻿---
 title: "Freedom through the activation of the soul mind"
 menu_title: ""
-description: "Freedom through the activation of the soul mind"
+description: "Augustine, received by Al Fike: “I have come to talk about the soul perceptions which are slowly dawning upon your consciousness, my beautiful brothers and …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "All Your Love Ones will be Blessed"
 menu_title: ""
-description: "All Your Love Ones will be Blessed"
+description: "Seretta Kem, received by Al Fike: “The time grows short and we are pleased that you are making your plans to gather together and that those who cannot be …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

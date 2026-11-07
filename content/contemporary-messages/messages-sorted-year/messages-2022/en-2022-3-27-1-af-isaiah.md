@@ -1,7 +1,7 @@
 ---
 title: "We are All Being Called into Service"
 menu_title: ""
-description: "We are All Being Called into Service"
+description: "Isaiah, received by Al Fike: “God’s blessings are upon you, beloved souls. As God pours His Love into this place, enriching the atmosphere thickening it …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

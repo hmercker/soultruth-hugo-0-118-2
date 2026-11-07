@@ -1,7 +1,7 @@
 ﻿---
 title: "It is important to bring Reform to Mankind"
 menu_title: ""
-description: "It is important to bring Reform to Mankind"
+description: "Martin Luther, received by Al Fike: “In my day I was a reformer, I brought change to the church, and many whom were within the structure of the church …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

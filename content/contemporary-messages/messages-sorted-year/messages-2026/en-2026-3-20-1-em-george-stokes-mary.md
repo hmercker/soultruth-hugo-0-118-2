@@ -1,7 +1,7 @@
 ﻿---
 title: "Awaken Your Gifts and Walk in Divine Love"
 menu_title: ""
-description: "Awaken Your Gifts and Walk in Divine Love"
+description: "George Stokes & Mary, received by Elizabeth Mack: “George Stokes: Good evening, my brothers and sisters. The Father responds by bringing His Love and …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

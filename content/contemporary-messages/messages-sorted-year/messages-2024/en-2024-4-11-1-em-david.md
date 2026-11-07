@@ -1,7 +1,7 @@
 ---
 title: "Try to Keep Your Souls Open"
 menu_title: ""
-description: "Try to Keep Your Souls Open"
+description: "David, received by Elizabeth Mack: “The Father knows each individual soul, every part of your soul. For He is the Creator of that soul.”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

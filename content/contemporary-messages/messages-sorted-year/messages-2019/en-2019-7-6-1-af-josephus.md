@@ -1,7 +1,7 @@
 ---
 title: "Introduction to a Significant Retreat"
 menu_title: ""
-description: "Introduction to a Significant Retreat"
+description: "Josephus, received by Al Fike: “We have been working towards this goal now for quite some time and we are pleased that we are to gather together a powerful …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

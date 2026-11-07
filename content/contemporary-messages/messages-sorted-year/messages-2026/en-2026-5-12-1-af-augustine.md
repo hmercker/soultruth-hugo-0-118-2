@@ -1,7 +1,7 @@
 ﻿---
 title: "Take Responsibility for Your Condition and Stay Loyal to the Truth"
 menu_title: ""
-description: "Take Responsibility for Your Condition and Stay Loyal to the Truth"
+description: "Augustine, received by Al Fike: “May the blessings of the Father's Love be yours. Each of you are unique in your characters, in your abilities, your gifts …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

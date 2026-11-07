@@ -1,7 +1,7 @@
 ---
 title: "The World Is Changing; You Must Come to Perceive This Change and Understand Your Purpose Within It"
 menu_title: ""
-description: "The World Is Changing; You Must Come to Perceive This Change and Understand Your Purpose Within It"
+description: "Isaiah, Jesus & Moses, received by Al Fike: “Isaiah: Bless you, beloved souls. The world is in transition.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

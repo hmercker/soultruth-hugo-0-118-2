@@ -1,7 +1,7 @@
 ---
 title: "Awaken to the Wisdom and Longings of Your Soul"
 menu_title: ""
-description: "Awaken to the Wisdom and Longings of Your Soul"
+description: "Keea Atta Kem, received by Maureen Cardoso: “I invite you to allow your mind to relax, your hearts to open and to trust and have faith that, within your …”"
 date: 2025-06-18 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Service in Love is the Highest Road"
 menu_title: ""
-description: "Service in Love is the Highest Road"
+description: "Augustine, received by Al Fike: “For those who aspire towards greater light, often their foundation of spirituality rests upon the deeds of charity and …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

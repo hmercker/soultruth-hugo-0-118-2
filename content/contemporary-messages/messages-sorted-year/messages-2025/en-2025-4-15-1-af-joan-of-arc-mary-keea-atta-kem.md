@@ -1,7 +1,7 @@
 ---
 title: "Come to Support All the Women"
 menu_title: ""
-description: "Come to Support All the Women"
+description: "Jeanne d'Arc, Maria & Keea Atta Kem, received by Al Fike: “Many are here for you, beloved daughters, women of the world and those who have daughters.”"
 date: 2025-04-22 07:21:03+11:00
 draft: False
 hidden: True

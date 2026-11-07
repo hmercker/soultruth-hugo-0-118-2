@@ -1,7 +1,7 @@
 ﻿---
 title: "Each of you has a Part to play"
 menu_title: ""
-description: "Each of you has a Part to play"
+description: "Jesus, received by Al Fike: “And I come to be with you and to encourage you in your efforts, your efforts to bring the gathering together in the place far …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

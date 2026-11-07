@@ -1,7 +1,7 @@
 ﻿---
 title: "Your Service and Love in the World"
 menu_title: ""
-description: "Your Service and Love in the World"
+description: "James Padgett, received by Al Fike: “I have been asked to speak to you and it is my honor and privilege to do so in this gathering of beautiful souls.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

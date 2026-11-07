@@ -1,7 +1,7 @@
 ---
 title: "Be Encouraged That the Work Continues"
 menu_title: ""
-description: "Be Encouraged That the Work Continues"
+description: "Alec Gaunt, received by Elizabeth Mack: “For the light that these circles provide to the world is maintaining a healthy healing condition which is so much …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

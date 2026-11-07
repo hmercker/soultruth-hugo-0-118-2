@@ -1,7 +1,7 @@
 ﻿---
 title: "God will answer your Prayers"
 menu_title: ""
-description: "God will answer your Prayers"
+description: "Alec Gaunt, received by Al Fike: “As for your son, he will turn this corner and choose the light. And in this time that he has been away from you, he has …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Pray for Mankind"
 menu_title: ""
-description: "Pray for Mankind"
+description: "James, received by Al Fike: “…There is my beloved souls, a great deprivation. Despite all the material that you possess, that is possessed within this …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

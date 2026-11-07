@@ -1,7 +1,7 @@
 ---
 title: "Respond in Love and Compassion When Maligned"
 menu_title: ""
-description: "Respond in Love and Compassion When Maligned"
+description: "Orion, received by Al Fike: “May the Father’s Love continue to enter into your souls, awakening those precious parts of your being, those tender yet …”"
 date: 2025-07-01 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Use Your Words Wisely and Only if Needed"
 menu_title: ""
-description: "Use Your Words Wisely and Only if Needed"
+description: "Claire of Assisi, received by Jimbeau Walsh: “My group of sisters, known as “the Poor Sisters”, because we had taken vows of poverty did very little …”"
 date: 2025-05-18 07:21:03+00:00
 draft: False
 hidden: True

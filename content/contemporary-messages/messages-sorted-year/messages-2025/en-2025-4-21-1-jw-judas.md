@@ -1,7 +1,7 @@
 ---
 title: "To Be Free of Time"
 menu_title: ""
-description: "To Be Free of Time"
+description: "Judas, received by Jimbeau Walsh: “My brothers and sisters, it is I, Judas. May the love of God be upon you.”"
 date: 2025-04-24 07:21:03+00:00
 draft: False
 hidden: True

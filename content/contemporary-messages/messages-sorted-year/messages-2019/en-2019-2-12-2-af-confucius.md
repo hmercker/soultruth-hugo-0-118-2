@@ -1,7 +1,7 @@
 ---
 title: "Blessings and Encouragement from Confucius"
 menu_title: ""
-description: "Blessings and Encouragement from Confucius"
+description: "Confucius, received by Al Fike: “I need to bring my blessings to you, beloved souls. You assist us in bringing light to this world.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

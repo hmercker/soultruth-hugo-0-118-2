@@ -1,7 +1,7 @@
 ---
 title: "The Path God has Laid Out Before Us"
 menu_title: ""
-description: "The Path God has Laid Out Before Us"
+description: "John the Beloved, received by Al Fike: “….journey that you take, beloved souls. As you sing and send your praises to God, so you open the floodgates of …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Valentine’s Day Blessing"
 menu_title: ""
-description: "Valentine’s Day Blessing"
+description: "Keea Atta Kem, received by Al Fike: “May each one of you know that you are loved, loved dearly by God, loved dearly by the Celestial angels who inhabit the …”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "The Truth is without Words; It is a knowing within"
 menu_title: ""
-description: "The Truth is without Words; It is a knowing within"
+description: "Jesus, received by Al Fike: “My Heavenly Father, I ask you to pour Your Love upon these dear, sweet souls, my brothers and sisters who walk upon this world …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

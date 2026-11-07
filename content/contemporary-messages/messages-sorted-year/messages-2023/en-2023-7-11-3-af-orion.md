@@ -1,7 +1,7 @@
 ---
 title: "With God’s Love, Your Souls Will Grow in Wisdom, Strength and Higher Consciousness"
 menu_title: ""
-description: "With God’s Love, Your Souls Will Grow in Wisdom, Strength and Higher Consciousness"
+description: "Orion, received by Al Fike: “Feel the peace of God’s presence, my friends. May that peace be with you always.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

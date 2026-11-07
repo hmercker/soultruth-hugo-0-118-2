@@ -1,7 +1,7 @@
 ﻿---
 title: "Praying Together Is Joyous"
 menu_title: ""
-description: "Praying Together Is Joyous"
+description: "John Hughes, received by Elizabeth Mack: “We are pleased also that this group comes together again. My sister Joan, Joan of Arc, is here also and there are …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

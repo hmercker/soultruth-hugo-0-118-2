@@ -1,7 +1,7 @@
 ﻿---
 title: "Accept the Changes that are coming"
 menu_title: ""
-description: "Accept the Changes that are coming"
+description: "Confucius, received by Al Fike: “I have been with the dear soul and the soul that is transitioning into spirit and healing has been given to all those present.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

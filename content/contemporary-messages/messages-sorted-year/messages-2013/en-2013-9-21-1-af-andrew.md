@@ -1,7 +1,7 @@
 ﻿---
 title: "To walk this Path, is to walk in true Life"
 menu_title: ""
-description: "To walk this Path, is to walk in true Life"
+description: "Andrew, received by Al Fike: “You are all given the gift of life, my children, to live in this world, to honour this gift in a loving, beautiful way.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Truth of God's Love is Still the Same as 100 Years Ago"
 menu_title: ""
-description: "The Truth of God's Love is Still the Same as 100 Years Ago"
+description: "James Padgett, received by Al Fike: “….and I am grateful to all of you, my dear friends. I want to encourage you in your prayers, that you may ask for the …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

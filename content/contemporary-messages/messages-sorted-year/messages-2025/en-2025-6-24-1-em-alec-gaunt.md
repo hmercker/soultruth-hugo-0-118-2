@@ -1,7 +1,7 @@
 ---
 title: "Your Prayers As a Group Impact the Many on Your Earth Plane"
 menu_title: ""
-description: "Your Prayers As a Group Impact the Many on Your Earth Plane"
+description: "Alec Gaunt, received by Elizabeth Mack: “I bless you among the children upon the Earth for the work that you do to help bring about the salvation of humanity.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

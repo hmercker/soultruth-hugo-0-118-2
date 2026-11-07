@@ -1,7 +1,7 @@
 ---
 title: "The Great Family of God's Love"
 menu_title: ""
-description: "The Great Family of God's Love"
+description: "Andrew, received by Al Fike: “The Father’s Love continues to flow into your souls and as you have come together in this prayer, drawing one another close …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

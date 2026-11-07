@@ -1,7 +1,7 @@
 ---
 title: "Mastery in Service"
 menu_title: ""
-description: "Mastery in Service"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “I wish you to consider this evening what I will call soulful consideration. One can look at the world and see …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

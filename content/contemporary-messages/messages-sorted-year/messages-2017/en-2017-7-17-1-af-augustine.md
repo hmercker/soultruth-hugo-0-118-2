@@ -1,7 +1,7 @@
 ﻿---
 title: "Bring Your Soul into Alignment with God Through His Love"
 menu_title: ""
-description: "Bring Your Soul into Alignment with God Through His Love"
+description: "Augustine, received by Al Fike: “This world would be much better if more would take on this challenge, to learn to love, to give love, for love brings …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

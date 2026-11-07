@@ -1,7 +1,7 @@
 ---
 title: "God Sends His Angels to Assist You"
 menu_title: ""
-description: "God Sends His Angels to Assist You"
+description: "Andrew, received by Al Fike: “During your time together in prayer, you have established a deeper rapport with your angel friends.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

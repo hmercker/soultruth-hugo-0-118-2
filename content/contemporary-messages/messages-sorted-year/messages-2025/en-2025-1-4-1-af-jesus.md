@@ -1,7 +1,7 @@
 ---
 title: "Deepest Blessing for the New Year"
 menu_title: ""
-description: "Deepest Blessing for the New Year"
+description: "Jesus, received by Al Fike: “May the blessings of the Father's Love be with you, my beloveds. For as you dedicate yourselves in a deeper way toward God's …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

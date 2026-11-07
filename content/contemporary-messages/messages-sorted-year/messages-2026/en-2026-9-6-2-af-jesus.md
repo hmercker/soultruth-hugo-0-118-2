@@ -1,7 +1,7 @@
 ﻿---
 title: "Soulful Ministry is Accomplished Through the Sharing of Your Experiences and Making Personal Connections"
 menu_title: ""
-description: "Soulful Ministry is Accomplished Through the Sharing of Your Experiences and Making Personal Connections"
+description: "Jesus, received by Al Fike: “Once more, I come to be with you in prayer, to be with you in love. I was here when you spoke of your love of God.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

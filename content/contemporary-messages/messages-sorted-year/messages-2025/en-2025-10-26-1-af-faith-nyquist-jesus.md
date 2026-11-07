@@ -1,7 +1,7 @@
 ---
 title: "Becoming Instruments of God's Love: A Call to Serve and Shine Your Light"
 menu_title: ""
-description: "Becoming Instruments of God's Love: A Call to Serve and Shine Your Light"
+description: "Faith Nyquist & Jesus, received by Al Fike: “I ask you, my brethren, to seek out those ways to uphold your brothers and sisters, to uphold light in your world.”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

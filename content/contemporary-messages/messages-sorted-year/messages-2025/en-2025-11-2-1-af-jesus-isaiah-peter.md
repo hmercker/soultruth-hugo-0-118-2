@@ -1,7 +1,7 @@
 ---
 title: "Be True to God's Will: A Call to Awaken and Serve in God's Love"
 menu_title: ""
-description: "Be True to God's Will: A Call to Awaken and Serve in God's Love"
+description: "Jesus, Isaiah & Peter, received by Al Fike: “Jesus: May the great blessing of the Father's Love be yours. Through your prayers and desires, the longings of …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

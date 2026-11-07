@@ -1,7 +1,7 @@
 ---
 title: "Faith Must Carry You"
 menu_title: ""
-description: "Faith Must Carry You"
+description: "Matthew, received by Al Fike: “That faith allows the child to trust its parents for its nurturance and well-being. Within the soul of that child is a …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

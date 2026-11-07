@@ -1,7 +1,7 @@
 ---
 title: "Blessing"
 menu_title: ""
-description: "Blessing"
+description: "Mylora, received by Al Fike: “You have drawn powerful healing energies into your group. Your concerns for your brothers and sisters in the world and all …”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

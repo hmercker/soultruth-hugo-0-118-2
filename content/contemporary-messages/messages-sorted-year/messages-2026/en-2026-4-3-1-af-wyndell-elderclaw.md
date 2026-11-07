@@ -1,7 +1,7 @@
 ﻿---
 title: "Honouring Mother Earth as a Path to Deeper Spiritual Awakening"
 menu_title: ""
-description: "Honouring Mother Earth as a Path to Deeper Spiritual Awakening"
+description: "Wyndell Elderclaw, received by Al Fike: “My name is Wyndell Elderclaw. You have not heard from me before, but I come today to acknowledge your prayers for …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

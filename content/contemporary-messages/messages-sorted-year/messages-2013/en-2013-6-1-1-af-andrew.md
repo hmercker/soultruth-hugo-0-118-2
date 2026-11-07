@@ -1,7 +1,7 @@
 ﻿---
 title: "When you walk in Light others respond; some with Love and some with Anger"
 menu_title: ""
-description: "When you walk in Light others respond; some with Love and some with Anger"
+description: "Andrew, received by Al Fike: “The angels surround you, my children. The Love pours into your souls.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

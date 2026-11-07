@@ -1,7 +1,7 @@
 ﻿---
 title: "Walk in Innocence, Simplicity and Faith"
 menu_title: ""
-description: "Walk in Innocence, Simplicity and Faith"
+description: "Augustine, received by Al Fike: “Bless you, my dear ones, I am your teacher Augustine. I see you are in steps of preparation for your travels, and I wish …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

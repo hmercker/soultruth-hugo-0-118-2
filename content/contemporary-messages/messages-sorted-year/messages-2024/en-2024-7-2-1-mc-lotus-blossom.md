@@ -1,7 +1,7 @@
 ---
 title: "Transform the Way You Perceive the World"
 menu_title: ""
-description: "Transform the Way You Perceive the World"
+description: "Lotus Blossom, received by Maureen Cardoso: “It has been my great pleasure to be with you while you have been in sleep state to assist your bodies in …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

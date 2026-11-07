@@ -1,7 +1,7 @@
 ---
 title: "We Must Stay Close and in Harmony to Accomplish God's Plan and Purpose for Us"
 menu_title: ""
-description: "We Must Stay Close and in Harmony to Accomplish God's Plan and Purpose for Us"
+description: "Jesus, received by Al Fike: “My brethren, I am your brother. Indeed, I hope you see me as such, as your brother and certainly as your friend.”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

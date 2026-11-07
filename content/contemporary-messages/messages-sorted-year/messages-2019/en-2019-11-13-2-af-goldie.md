@@ -1,7 +1,7 @@
 ---
 title: "God's Promise will be Fulfilled"
 menu_title: ""
-description: "God's Promise will be Fulfilled"
+description: "Goldie, received by Al Fike: “When you climb into your beds and feel the warmth and peace blanket you and then wrap you, feeling the Breath of God’s Love …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

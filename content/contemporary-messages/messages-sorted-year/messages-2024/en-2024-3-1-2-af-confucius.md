@@ -1,7 +1,7 @@
 ---
 title: "The Angels Bring Blessings of Healing"
 menu_title: ""
-description: "The Angels Bring Blessings of Healing"
+description: "Confucius, received by Al Fike: “To replenish your bodies and your spirits. To help calm your minds and bring peace.”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

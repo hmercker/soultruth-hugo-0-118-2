@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Jesus, received by Barbara Davies: “My precious ones, you have been blessed with God’s Divine Love…it pours upon you in great abundance and it flows to all …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

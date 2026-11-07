@@ -1,7 +1,7 @@
 ---
 title: "Jesus Calls on us to be his Disciples"
 menu_title: ""
-description: "Jesus Calls on us to be his Disciples"
+description: "Received by Al Fike: “The Grace of God be upon you, beloved souls, I am your brother, Jesus. My prayers are that the Father's Love may continue to infill …”"
 date: 2021-07-20 07:21:03+11:00
 draft: False
 hidden: True

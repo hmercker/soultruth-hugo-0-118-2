@@ -1,7 +1,7 @@
 ---
 title: "Seek Guidance from God First and Foremost"
 menu_title: ""
-description: "Seek Guidance from God First and Foremost"
+description: "Orion, received by Al Fike: “Blessings to you, my friends. Ideally, each individual should be receiving detailed guidance for themselves and that when you …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

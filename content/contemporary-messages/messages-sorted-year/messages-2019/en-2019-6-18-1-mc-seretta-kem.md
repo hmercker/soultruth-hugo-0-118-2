@@ -1,7 +1,7 @@
 ---
 title: "We Accompany You on Your Journey"
 menu_title: ""
-description: "We Accompany You on Your Journey"
+description: "Seretta Kem, received by Maureen Cardoso: “I wish to let you know that we have been with you both closely, during your time in the place of this Healing …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

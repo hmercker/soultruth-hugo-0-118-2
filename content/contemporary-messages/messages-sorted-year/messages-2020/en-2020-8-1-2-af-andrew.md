@@ -1,7 +1,7 @@
 ---
 title: "Embrace All with Humility"
 menu_title: ""
-description: "Embrace All with Humility"
+description: "Andrew, received by Al Fike: “There is always so much to be considered in your lives on this Earth plane; so many complications, so many diverse energies …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

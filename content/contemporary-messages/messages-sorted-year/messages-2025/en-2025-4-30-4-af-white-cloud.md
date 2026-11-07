@@ -1,7 +1,7 @@
 ---
 title: "Opening Further Expression of Your Gifts"
 menu_title: ""
-description: "Opening Further Expression of Your Gifts"
+description: "White Cloud, received by Al Fike: “…a blessing, a blessing unique for them, a blessing that they may carry with them, a blessing that will uphold them and …”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

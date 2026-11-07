@@ -1,7 +1,7 @@
 ﻿---
 title: "Every Drop of God’s Love is Transformative"
 menu_title: ""
-description: "Every Drop of God’s Love is Transformative"
+description: "Keea Atta Kem, received by Maureen Cardoso: “We thank the dear daughter for her prayer, for it helps your souls and your minds be directed upon God, to …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

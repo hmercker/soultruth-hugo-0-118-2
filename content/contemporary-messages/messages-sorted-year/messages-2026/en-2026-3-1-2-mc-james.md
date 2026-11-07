@@ -1,7 +1,7 @@
 ﻿---
 title: "Discovering the Workings of Spiritual Laws in Your Life Through Study and Observation"
 menu_title: ""
-description: "Discovering the Workings of Spiritual Laws in Your Life Through Study and Observation"
+description: "James, received by Maureen Cardoso: “You attract me into your midst by the desires of your soul, your longing for God's Love, your receptivity to this …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

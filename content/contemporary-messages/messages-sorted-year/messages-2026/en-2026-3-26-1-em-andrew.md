@@ -1,7 +1,7 @@
 ﻿---
 title: "The True Message of Easter"
 menu_title: ""
-description: "The True Message of Easter"
+description: "Andrew, received by Elizabeth Mack: “I was once an Apostle of the Master and I still follow his lead that brings us to the Divine Soul of God.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

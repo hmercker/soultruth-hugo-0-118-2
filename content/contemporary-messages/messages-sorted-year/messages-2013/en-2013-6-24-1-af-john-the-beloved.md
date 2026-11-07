@@ -1,7 +1,7 @@
 ﻿---
 title: "This is Part of God’s Will"
 menu_title: ""
-description: "This is Part of God’s Will"
+description: "John the Beloved, received by Al Fike: “I ask you to prepare yourselves, my children, for that journey to that English land. Now is the time for …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

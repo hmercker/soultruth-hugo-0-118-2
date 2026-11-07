@@ -1,7 +1,7 @@
 ---
 title: "One ounce of Divine Love"
 menu_title: ""
-description: "One ounce of Divine Love"
+description: "Thomas Merton, received by Jimbeau Walsh: “I have been waiting, as they say, in the wings to speak and I was encouraged to do so by those who had mentored …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

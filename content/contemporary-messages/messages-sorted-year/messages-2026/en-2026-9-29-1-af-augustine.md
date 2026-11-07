@@ -1,7 +1,7 @@
 ﻿---
 title: "Search Deeply Within to Determine Whether We Are Ready for What is Coming"
 menu_title: ""
-description: "Search Deeply Within to Determine Whether We Are Ready for What is Coming"
+description: "Augustine, received by Al Fike: “The power of love to unite, to bring harmony and joy and all the goodness and sweetness of life, the power of God's Love …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

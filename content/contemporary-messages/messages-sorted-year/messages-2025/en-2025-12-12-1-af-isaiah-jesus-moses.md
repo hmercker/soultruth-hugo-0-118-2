@@ -1,7 +1,7 @@
 ---
 title: "You Are the Living Channels of God's Blessings on Earth"
 menu_title: ""
-description: "You Are the Living Channels of God's Blessings on Earth"
+description: "Isaiah, Jesus & Moses, received by Al Fike: “Isaiah:I come to you in an onrush of light and blessings. May you continue to be that channel, that beautiful …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

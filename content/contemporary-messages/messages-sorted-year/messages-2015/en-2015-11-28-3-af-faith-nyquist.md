@@ -1,7 +1,7 @@
 ﻿---
 title: "So much can be accomplished through Prayer"
 menu_title: ""
-description: "So much can be accomplished through Prayer"
+description: "Faith Nyquist, received by Al Fike: “Friends, I am Faith and I am so happy to see so many beautiful souls gathered in one place in prayer, to see the Light …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Drink of the Living Waters"
 menu_title: ""
-description: "Drink of the Living Waters"
+description: "Jesus, received by Al Fike: “Open yourselves completely to God, my beloved and beautiful brothers and sisters. As you open your soul wide, drink of these …”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Lifting everyone in the Spiritual Collective of Divine Love"
 menu_title: ""
-description: "Lifting everyone in the Spiritual Collective of Divine Love"
+description: "Judas, received by Jimbeau Walsh: “You are all familiar with the saying attributed to the Master: judge not, lest ye be judged.”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Pray more intensely and more often for this Love"
 menu_title: ""
-description: "Pray more intensely and more often for this Love"
+description: "Augustine, received by Al Fike: “God’s presence is with you, my children. Can you not feel the warmth of His love bathing you, enveloping you, flowing into …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

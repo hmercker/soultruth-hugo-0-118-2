@@ -1,7 +1,7 @@
 ---
 title: "Focus on the Love of the Father"
 menu_title: ""
-description: "Focus on the Love of the Father"
+description: "John the Baptist, received by Elizabeth Mack: “I join you all in this prayer, this prayer that uplifts your souls and asks the Father for His Love to heal …”"
 date: 2025-07-19 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "We Are Part of the Lattice of Light for the World"
 menu_title: ""
-description: "We Are Part of the Lattice of Light for the World"
+description: "Matthew, received by Al Fike: “You are part of a society that knows the blessing of the Father's Love, are conscious of it and practise receiving it on a …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

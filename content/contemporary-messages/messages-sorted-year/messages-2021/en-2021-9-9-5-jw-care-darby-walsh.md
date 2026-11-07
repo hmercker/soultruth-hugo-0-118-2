@@ -1,7 +1,7 @@
 ---
 title: "True Happiness"
 menu_title: ""
-description: "True Happiness"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “May the Grace of God’s Love be upon you each. May his most Holy Spirit bring His Love into your souls that …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

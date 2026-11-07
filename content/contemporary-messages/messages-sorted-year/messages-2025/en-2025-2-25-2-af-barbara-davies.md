@@ -1,7 +1,7 @@
 ---
 title: "Encourages Us in Service to God"
 menu_title: ""
-description: "Encourages Us in Service to God"
+description: "Barbara Davies, received by Al Fike: “May God's Love fill your soul to overflowing. I have prayed with you often.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

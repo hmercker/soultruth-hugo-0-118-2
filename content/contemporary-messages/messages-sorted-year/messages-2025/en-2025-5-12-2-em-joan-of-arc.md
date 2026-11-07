@@ -1,7 +1,7 @@
 ---
 title: "A Gift of Strength"
 menu_title: ""
-description: "A Gift of Strength"
+description: "Joan of Arc, received by Elizabeth Mack: “I bless this circle with my love. The strength that you feel is from the love within this group for each other.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

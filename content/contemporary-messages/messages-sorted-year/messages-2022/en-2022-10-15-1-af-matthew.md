@@ -1,7 +1,7 @@
 ---
 title: "Building, Expanding the Portal to Magnify Benefits"
 menu_title: ""
-description: "Building, Expanding the Portal to Magnify Benefits"
+description: "Matthew, received by Al Fike: “I thank you, son, for coming to be with us in prayer. For you have been called and you have answered the call, beloved son.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

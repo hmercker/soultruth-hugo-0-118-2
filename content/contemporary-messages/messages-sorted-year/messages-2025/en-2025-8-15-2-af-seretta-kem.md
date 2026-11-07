@@ -1,7 +1,7 @@
 ---
 title: "Development of Gifts Continue"
 menu_title: ""
-description: "Development of Gifts Continue"
+description: "Seretta Kem, received by Al Fike: “We continue with the development work, even though most who attended are back home, but with this core group and the …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

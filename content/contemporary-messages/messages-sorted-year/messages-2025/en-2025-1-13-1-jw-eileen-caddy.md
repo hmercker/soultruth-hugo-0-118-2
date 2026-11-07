@@ -1,7 +1,7 @@
 ---
 title: "One ounce of Divine Love"
 menu_title: ""
-description: "One ounce of Divine Love"
+description: "Eileen Caddy, received by Jimbeau Walsh: “May the light of God’s love surround you and be with you. I came to my brother here earlier today to let him know …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "I am the Captain of your ship"
 menu_title: ""
-description: "I am the Captain of your ship"
+description: "Jesus, received by Jimbeau Walsh: “May God’s love be with you. You are like a ship on a turbulent sea, carrying precious cargo, hoping to navigate troubled …”"
 date: 2025-06-18 07:21:03+00:00
 draft: False
 hidden: True

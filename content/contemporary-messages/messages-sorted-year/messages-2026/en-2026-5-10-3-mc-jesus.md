@@ -1,7 +1,7 @@
 ﻿---
 title: "Set Your Burdens Down at the Feet of God"
 menu_title: ""
-description: "Set Your Burdens Down at the Feet of God"
+description: "Jesus, received by Maureen Cardoso: “May the blessing of the Father's Love find its way into your soul, allowing your spirit to be of light.”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

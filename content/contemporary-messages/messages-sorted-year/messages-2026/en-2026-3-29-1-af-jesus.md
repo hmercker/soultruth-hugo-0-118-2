@@ -1,7 +1,7 @@
 ﻿---
 title: "The Time Is Now: Step Forward as a Light in the World"
 menu_title: ""
-description: "The Time Is Now: Step Forward as a Light in the World"
+description: "Jesus, received by Al Fike: “Thank you, my beloved brother. For as you pray in numbers, so you add the light to the world that is so needed.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

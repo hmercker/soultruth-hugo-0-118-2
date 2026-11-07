@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings on Dorothy’s Birthday"
 menu_title: ""
-description: "Blessings on Dorothy’s Birthday"
+description: "Andrew, received by Al Fike: “I wish to acknowledge the dear daughter and her daughter on this day. The blessings of love upon them.”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

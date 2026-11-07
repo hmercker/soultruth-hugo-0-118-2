@@ -1,7 +1,7 @@
 ---
 title: "Blessings of Love and Light"
 menu_title: ""
-description: "Blessings of Love and Light"
+description: "John the Beloved, received by Al Fike: “Blessings to you, beloved souls, I am John the Beloved. The dear child had a vision of what is to come.”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

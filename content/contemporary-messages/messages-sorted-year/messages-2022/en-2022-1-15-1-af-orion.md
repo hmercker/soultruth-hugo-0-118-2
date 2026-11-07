@@ -1,7 +1,7 @@
 ---
 title: "The Complexity of the Challenges We Must Overcome for Success"
 menu_title: ""
-description: "The Complexity of the Challenges We Must Overcome for Success"
+description: "Orion, received by Al Fike: “I wish to speak on how your channels and gifts may be opened and the process that often accompanies this opening of aspects of …”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

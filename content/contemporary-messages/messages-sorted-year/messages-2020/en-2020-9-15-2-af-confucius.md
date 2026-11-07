@@ -1,7 +1,7 @@
 ---
 title: "Powerful Healing Blessing"
 menu_title: ""
-description: "Powerful Healing Blessing"
+description: "Confucius, received by Al Fike: “I bring to you a blessing of healing. I touch each of you with healing balm to bring you peace and upliftment.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

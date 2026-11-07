@@ -1,7 +1,7 @@
 ---
 title: "Sunny Days Within: Living in God’s Love"
 menu_title: ""
-description: "Sunny Days Within: Living in God’s Love"
+description: "Goldie, received by Al Fike: “God wants sunny days for you each and every day. Even though the clouds may gather and the rain may fall in your heart, you …”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "This Gift Will Guide You Through the Changing Times to Come"
 menu_title: ""
-description: "This Gift Will Guide You Through the Changing Times to Come"
+description: "Jesus, received by Al Fike: “We know all your hidden secrets, all your life that has come to this place, all that you are and we know all that you can be.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "You will not Die"
 menu_title: ""
-description: "You will not Die"
+description: "Andrew, received by Jimbeau Walsh: “Brothers and sisters, how we love to see you come together, united in the love of God. I was an early follower of John …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

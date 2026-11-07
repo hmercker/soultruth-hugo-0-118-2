@@ -1,7 +1,7 @@
 ---
 title: "Blessed and Encouraged on the Road Less Travelled"
 menu_title: ""
-description: "Blessed and Encouraged on the Road Less Travelled"
+description: "Orion, received by Al Fike: “In your world, the tendencies and desires of the soul are rarely understood nor exercised.”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

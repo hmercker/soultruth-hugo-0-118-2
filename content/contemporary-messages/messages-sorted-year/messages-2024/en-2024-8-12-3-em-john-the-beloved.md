@@ -1,7 +1,7 @@
 ---
 title: "Consider This Truth"
 menu_title: ""
-description: "Consider This Truth"
+description: "John the Beloved, received by Elizabeth Mack: “You, each one of you, has experienced that part of you, previously, if only for a moment. Now I ask you, go …”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

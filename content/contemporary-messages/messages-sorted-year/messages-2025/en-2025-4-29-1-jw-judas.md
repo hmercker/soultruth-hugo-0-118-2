@@ -1,7 +1,7 @@
 ---
 title: "Sow the seeds of Truth to the World without concern"
 menu_title: ""
-description: "Sow the seeds of Truth to the World without concern"
+description: "Judas, received by Jimbeau Walsh: “I also wish to talk about this subject so dear to all of you about bringing the truths of God’s love and the gospel of …”"
 date: 2025-05-18 07:21:03+00:00
 draft: False
 hidden: True

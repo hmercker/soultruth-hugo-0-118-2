@@ -1,7 +1,7 @@
 ﻿---
 title: "The Time is Now: Release Tired Habits, Leave Your Cocoon Behind and Step Forward to Fulfill Your Destiny"
 menu_title: ""
-description: "The Time is Now: Release Tired Habits, Leave Your Cocoon Behind and Step Forward to Fulfill Your Destiny"
+description: "Augustine, received by Al Fike: “As you continue to be increasingly sensitive and perceive the conditions of your world, it is understandable that you wish …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

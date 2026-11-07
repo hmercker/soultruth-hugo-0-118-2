@@ -1,7 +1,7 @@
 ﻿---
 title: "Spiritual Joy is obtained in Grace"
 menu_title: ""
-description: "Spiritual Joy is obtained in Grace"
+description: "Judas, received by Jimbeau Walsh: “I know these are trying times for so many souls. So many earth changes, so much disruption, so much uncertainty creating …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Come together again with your questions"
 menu_title: ""
-description: "Come together again with your questions"
+description: "Confucius, received by Al Fike: “We are very happy that you have spent this time together in prayer, to listen to our words, to contemplate these Truths …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,5 +1,6 @@
 ---
 title: "Embrace Change"
+description: "Received by Al Fike: “Change is a constant in the universe. God has made the universe such that progress forward must take place.”"
 menu_title: "Orion talks about the need to Embrace Change"
 date: 2024-12-01 07:21:03+11:00
 draft: False

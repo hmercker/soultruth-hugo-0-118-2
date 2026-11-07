@@ -1,7 +1,7 @@
 ---
 title: "Divine Love Brings Unity in Diversity"
 menu_title: ""
-description: "Divine Love Brings Unity in Diversity"
+description: "Orion, received by Al Fike: “May the blessings of this great Love of God be yours, continuing to infill your soul, abundance of Love, blessing and …”"
 date: 2025-03-24 07:21:03+11:00
 draft: False
 hidden: True

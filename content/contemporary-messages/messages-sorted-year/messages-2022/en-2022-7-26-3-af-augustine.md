@@ -1,7 +1,7 @@
 ---
 title: "More Prayer is Required to Bring Through Direct Voice"
 menu_title: ""
-description: "More Prayer is Required to Bring Through Direct Voice"
+description: "Augustine, received by Al Fike: “Much remains in your development, beloved souls, not so much in the development of the gifts that you call Direct Voice …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jesus Addresses the False Doctrine of Reincarnation Vol 2 msg 9"
 menu_title: ""
-description: "Jesus Addresses the False Doctrine of Reincarnation Vol 2 msg 9"
+description: "Received by Al Fike: “The subject of this message is the issue of reincarnation, one which is what you call a hot topic in your spiritual circles and in …”"
 date: 2021-05-24 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Love and Laughter with Goldie"
 menu_title: ""
-description: "Love and Laughter with Goldie"
+description: "Received by Al Fike: “And God loves you even more, and we all love you, each one of you, for you are lovable. Sometimes you think you are not, but you are.”"
 date: 2018-05-30 05:02:53+00:00
 draft: False
 hidden: True

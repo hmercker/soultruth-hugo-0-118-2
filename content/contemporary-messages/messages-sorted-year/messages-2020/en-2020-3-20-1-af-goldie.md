@@ -1,7 +1,7 @@
 ---
 title: "Feel Joy"
 menu_title: ""
-description: "Feel Joy"
+description: "Goldie, received by Al Fike: “I will come and tickle behind your ears and under your chin and whisper lovely words in your ear so that you may all feel …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

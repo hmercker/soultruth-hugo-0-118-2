@@ -1,7 +1,7 @@
 ---
 title: "The World Needs Your Prayers"
 menu_title: ""
-description: "The World Needs Your Prayers"
+description: "Jesus, received by Al Fike: “The world is in great need of your prayers, my beloveds. O gentle lambs of God, beautiful souls of light, continue to shine …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

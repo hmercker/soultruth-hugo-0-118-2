@@ -1,7 +1,7 @@
 ---
 title: "Come to Know Your Soul as Your Primary Consciousness for True Happiness"
 menu_title: ""
-description: "Come to Know Your Soul as Your Primary Consciousness for True Happiness"
+description: "Elizabeth, received by Al Fike: “I make this journey to come and speak to you about the simple truth of what has brought me to that place and what will …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

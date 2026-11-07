@@ -1,7 +1,7 @@
 ---
 title: "Echoes It's Time to Step Up"
 menu_title: ""
-description: "Echoes It's Time to Step Up"
+description: "Barbara Davies, received by Al Fike: “The time is here, that time that I saw and told to this dear and beloved son of his instrumentality and his ministry …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

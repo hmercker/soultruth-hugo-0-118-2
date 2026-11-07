@@ -1,7 +1,7 @@
 ﻿---
 title: "The Spirit of Truth"
 menu_title: ""
-description: "The Spirit of Truth"
+description: "Jesus, received by Al Fike: “And I come because I love you and you are dearly loved; each soul here is dearly loved by God and by we in spirit who can see …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

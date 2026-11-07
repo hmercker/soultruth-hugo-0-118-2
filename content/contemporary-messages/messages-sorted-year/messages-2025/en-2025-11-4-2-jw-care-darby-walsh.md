@@ -1,7 +1,7 @@
 ---
 title: "Each one a Story, each one a unique Soul"
 menu_title: ""
-description: "Each one a Story, each one a unique Soul"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “When you share the stories of revelation of how God works in what seems mysterious ways, but in retrospect …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Double Your Prayers to Remain in Harmony in a Dark World"
 menu_title: ""
-description: "Double Your Prayers to Remain in Harmony in a Dark World"
+description: "Orion, received by Al Fike: “May the Light of God's Love shine upon you, my beloved friends. Prayer is your greatest friend and ally in a world that is so …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

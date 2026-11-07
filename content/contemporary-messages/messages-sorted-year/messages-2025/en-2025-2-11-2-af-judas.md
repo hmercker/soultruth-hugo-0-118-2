@@ -1,7 +1,7 @@
 ---
 title: "Realise the Power of God’s Gift of Free Will"
 menu_title: ""
-description: "Realise the Power of God’s Gift of Free Will"
+description: "Judas, received by Al Fike: “That is the power to choose, the power of free will. Everything in your life is a choice.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

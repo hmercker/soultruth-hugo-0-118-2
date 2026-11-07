@@ -1,7 +1,7 @@
 ---
 title: "The Road Less Travelled"
 menu_title: ""
-description: "The Road Less Travelled"
+description: "Orion, received by Al Fike: “My friends, my name is Orion. It most certainly is the road less taken.”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

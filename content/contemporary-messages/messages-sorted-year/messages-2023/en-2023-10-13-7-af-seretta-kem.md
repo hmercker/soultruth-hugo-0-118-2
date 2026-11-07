@@ -1,7 +1,7 @@
 ---
 title: "Truth Will Grow from Your Soul to Your Mind"
 menu_title: ""
-description: "Truth Will Grow from Your Soul to Your Mind"
+description: "Seretta Kem, received by Al Fike: “When we speak to you, when we teach you, we do not primarily speak to your minds, we speak to your souls.”"
 date: 2025-07-01 07:21:03+00:00
 draft: False
 hidden: True

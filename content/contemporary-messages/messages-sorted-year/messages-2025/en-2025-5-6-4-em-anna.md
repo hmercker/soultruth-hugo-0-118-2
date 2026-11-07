@@ -1,7 +1,7 @@
 ---
 title: "Allow Your Light to Shine"
 menu_title: ""
-description: "Allow Your Light to Shine"
+description: "Anna, received by Elizabeth Mack: “Allow your light to shine. Allow the Father's Love to enter your souls.”"
 date: 2025-07-06 07:21:03+11:00
 draft: False
 hidden: True

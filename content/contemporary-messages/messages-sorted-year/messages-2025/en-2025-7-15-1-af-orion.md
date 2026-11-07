@@ -1,7 +1,7 @@
 ---
 title: "Put Aside Your Doubts and Prepare for What is Coming!"
 menu_title: ""
-description: "Put Aside Your Doubts and Prepare for What is Coming!"
+description: "Orion, received by Al Fike: “Since we had missed an appointment earlier in the day to speak [^1], I will speak to the wider family this evening.”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

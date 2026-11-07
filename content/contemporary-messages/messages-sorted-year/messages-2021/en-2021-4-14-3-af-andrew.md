@@ -1,7 +1,7 @@
 ---
 title: "Have your Soul nourished"
 menu_title: ""
-description: "Have your Soul nourished"
+description: "Andrew, received by Al Fike: “The breath of God's is upon you, my beloved brothers and sisters. For as we pray together so this great gift from God, this …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

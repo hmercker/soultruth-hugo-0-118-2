@@ -1,7 +1,7 @@
 ---
 title: "You Are Approaching a New Level of Soul Awareness"
 menu_title: ""
-description: "You Are Approaching a New Level of Soul Awareness"
+description: "Orion, received by Al Fike: “My friends, it is Orion again coming to instruct and uplift, to care for my charges which God has given to me, a gift indeed …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

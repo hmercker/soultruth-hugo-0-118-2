@@ -1,7 +1,7 @@
 ---
 title: "Be Open and Receptive to What We - May Give to Each One of You"
 menu_title: ""
-description: "Be Open and Receptive to What We - May Give to Each One of You"
+description: "Martha, received by Al Fike: “I wish to convey to you a message that each of you in the coming week will receive a sign, a vision, a message or an …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

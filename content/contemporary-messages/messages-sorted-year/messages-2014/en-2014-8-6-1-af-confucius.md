@@ -1,7 +1,7 @@
 ﻿---
 title: "To come to Truth, to come to Clarity is not easy"
 menu_title: ""
-description: "To come to Truth, to come to Clarity is not easy"
+description: "Confucius, received by Al Fike: “Bless children, beautiful souls. There would be no change at all.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

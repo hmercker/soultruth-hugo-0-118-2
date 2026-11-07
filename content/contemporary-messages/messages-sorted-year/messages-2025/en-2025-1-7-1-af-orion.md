@@ -1,7 +1,7 @@
 ---
 title: "Fortify the Network of Light with Your Prayers"
 menu_title: ""
-description: "Fortify the Network of Light with Your Prayers"
+description: "Orion, received by Al Fike: “You continue to contribute to the enlightening of the world and we contribute our efforts and light in this regard as do you.”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Nothing Shall Break This Bond"
 menu_title: ""
-description: "Nothing Shall Break This Bond"
+description: "Jesus, received by Al Fike: “How important is your effort. How important for the world is this light that is created by your efforts.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

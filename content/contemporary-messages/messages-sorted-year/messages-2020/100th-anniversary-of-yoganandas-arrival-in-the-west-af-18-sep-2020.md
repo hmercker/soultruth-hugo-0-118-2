@@ -1,7 +1,7 @@
 ---
 title: "100th Anniversary of Yogananda's Arrival in the West"
 menu_title: ""
-description: "100th Anniversary of Yogananda's Arrival in the West"
+description: "Received by Al Fike: “I wish for you, my friends, a true awakening of love and light, and an awareness of all things of God.”"
 date: 2020-09-29 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Getting past your wounds - Part 2"
 menu_title: ""
-description: "Getting past your wounds - Part 2"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “I simply wish to clarify what I said earlier. When speaking about those who find it easier to rest in their …”"
 date: 2025-05-18 07:21:03+00:00
 draft: False
 hidden: True

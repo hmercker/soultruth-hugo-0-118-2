@@ -1,7 +1,7 @@
 ---
 title: "Make God the Cornerstone of your Life"
 menu_title: ""
-description: "Make God the Cornerstone of your Life"
+description: "Andrew, received by Al Fike: “Each of your souls is blooming in love and light. Remember to make God the cornerstone of your life, to set your day in …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

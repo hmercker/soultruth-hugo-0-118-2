@@ -1,7 +1,7 @@
 ---
 title: "On Faith"
 menu_title: ""
-description: "On Faith"
+description: "Jacob, received by Helge Mercker: “My daughter, we can begin to write. I impressed upon you my appearance when I lived on Earth.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

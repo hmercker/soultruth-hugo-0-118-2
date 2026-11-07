@@ -1,7 +1,7 @@
 ---
 title: "A Soul in Relationship with God Knows No Limits"
 menu_title: ""
-description: "A Soul in Relationship with God Knows No Limits"
+description: "Keea Atta Kem & John the Beloved, received by Al Fike: “Keea Atta Kem: Bless you, beloved souls. Welcome to this Circle of Light, this place of light …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

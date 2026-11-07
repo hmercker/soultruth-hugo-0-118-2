@@ -1,7 +1,7 @@
 ﻿---
 title: "Jesus Comes to Facilitate God's Blessings to Humanity"
 menu_title: ""
-description: "Jesus Comes to Facilitate God's Blessings to Humanity"
+description: "George Stokes & Jesus, received by Elizabeth Mack: “George Stokes: I am your brother George. There is one here who comes forward to speak, one greater than …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

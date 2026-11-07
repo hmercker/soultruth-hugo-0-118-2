@@ -1,7 +1,7 @@
 ﻿---
 title: "Miriam Speaks of Her Progression and Home"
 menu_title: ""
-description: "Miriam Speaks of Her Progression and Home"
+description: "Miriam, received by Elizabeth Mack: “Giving up my brother, I never truly gave up. As he floated down the river I prayed for him.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

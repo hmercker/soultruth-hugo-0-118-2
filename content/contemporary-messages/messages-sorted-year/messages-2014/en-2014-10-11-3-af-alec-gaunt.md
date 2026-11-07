@@ -1,7 +1,7 @@
 ﻿---
 title: "The Ability to receive God’s Love in this Life will bring you far not only in this World but the next"
 menu_title: ""
-description: "The Ability to receive God’s Love in this Life will bring you far not only in this World but the next"
+description: "Alec Gaunt, received by Al Fike: “And I wish to acknowledge my dear child, Dorothy. Although we share no blood, you are a part of my family, and I watch …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

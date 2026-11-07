@@ -1,7 +1,7 @@
 ﻿---
 title: "Seek the Gift of Divine Love and Become a Light in the World"
 menu_title: ""
-description: "Seek the Gift of Divine Love and Become a Light in the World"
+description: "Jesus, received by Al Fike: “Blessings to you all, my beloveds. The longings of your soul, the quest for God’s great gift to enter into your soul, will …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "You have crossed the Rubicon"
 menu_title: ""
-description: "You have crossed the Rubicon"
+description: "Judas, received by Jimbeau Walsh: “We come in the love of God to guide you, to watch over you, to protect you during this time you have chosen to come …”"
 date: 2025-06-17 07:21:03+00:00
 draft: False
 hidden: True

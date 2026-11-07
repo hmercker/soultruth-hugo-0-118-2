@@ -1,7 +1,7 @@
 ---
 title: "I Come to Lift You Up"
 menu_title: ""
-description: "I Come to Lift You Up"
+description: "Jesus, received by Al Fike: “You will continue to be uplifted, ever uplifted higher and higher into the realms of Light and Love, of grace and goodness.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

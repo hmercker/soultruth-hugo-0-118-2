@@ -1,7 +1,7 @@
 ---
 title: "Unlock the Key to Your Soul"
 menu_title: ""
-description: "Unlock the Key to Your Soul"
+description: "Andrew, received by Al Fike: “You carry the key to transform the world. Seek to put the key in the lock, turn the key and open the clasp, the clasp that is …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

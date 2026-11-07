@@ -1,7 +1,7 @@
 ---
 title: "The Important Work is That God Will Use You as His Channels"
 menu_title: ""
-description: "The Important Work is That God Will Use You as His Channels"
+description: "Augustine, received by Al Fike: “May God’s Great Love continue to flow into your souls, each of you yearning and longing for this blessing.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

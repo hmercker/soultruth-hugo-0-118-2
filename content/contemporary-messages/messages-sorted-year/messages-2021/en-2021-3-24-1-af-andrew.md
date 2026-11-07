@@ -1,7 +1,7 @@
 ---
 title: "Portal of Light is Opened by your Prayers"
 menu_title: ""
-description: "Portal of Light is Opened by your Prayers"
+description: "Andrew, received by Al Fike: “You have opened the portal of light and love through your prayers and God is utilizing these conditions and your intention to …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

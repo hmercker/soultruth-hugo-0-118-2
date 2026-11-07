@@ -1,7 +1,7 @@
 ---
 title: "Encouragement for Circle of Seven"
 menu_title: ""
-description: "Encouragement for Circle of Seven"
+description: "Martin Luther, received by Helge Mercker: “In the flow of the Father’s Love much is being revealed and so much can be accomplished by continually seeking …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

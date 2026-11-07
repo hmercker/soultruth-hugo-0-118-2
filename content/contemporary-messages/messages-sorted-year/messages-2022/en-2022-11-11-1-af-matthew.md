@@ -1,7 +1,7 @@
 ---
 title: "The Journey is Short"
 menu_title: ""
-description: "The Journey is Short"
+description: "Matthew, received by Al Fike: “The journey may seem long, my beloved souls, but it is short. Within this time on the earth plane that you share together …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

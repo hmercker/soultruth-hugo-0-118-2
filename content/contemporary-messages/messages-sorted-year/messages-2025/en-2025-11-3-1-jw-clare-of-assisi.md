@@ -1,7 +1,7 @@
 ---
 title: "In the Silence"
 menu_title: ""
-description: "In the Silence"
+description: "Clare of Assisi, received by Jimbeau Walsh: “The many here will be with you in your time together, giving you our blessing, encouraging you to go deep in …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

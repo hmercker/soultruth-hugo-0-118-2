@@ -1,7 +1,7 @@
 ---
 title: "A Safe Raft for Stormy Seas Ahead "
 menu_title: ""
-description: "A Safe Raft for Stormy Seas Ahead "
+description: "Elijah, received by Al Fike: “I have impressed upon this instrument, a vision of all of you gathered together on a raft, a platform in the rough seas that …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

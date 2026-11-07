@@ -1,7 +1,7 @@
 ﻿---
 title: "You can bring Change and Love but you must be with God in this"
 menu_title: ""
-description: "You can bring Change and Love but you must be with God in this"
+description: "Keea Atta Kem, received by Al Fike: “And the only way you can know God’s Will is to be centered within your soul, to understand His desires.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

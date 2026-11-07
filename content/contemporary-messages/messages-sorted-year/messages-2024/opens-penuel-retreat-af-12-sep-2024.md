@@ -1,5 +1,6 @@
 ---
 title: "Opens Penuel Retreat. We Come to Share the Light"
+description: "Received by Al Fike: “Blessings of the Father’s Love continue to infill your souls. You have drawn a host of angels into your midst.”"
 menu_title: "Jesus Opens Penuel Retreat. We Come to Share the Light"
 date: 2024-11-29 07:21:03+11:00
 draft: False

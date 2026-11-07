@@ -1,7 +1,7 @@
 ---
 title: "Go to that Place of Soul Beyond the Mind Where All will be Revealed"
 menu_title: ""
-description: "Go to that Place of Soul Beyond the Mind Where All will be Revealed"
+description: "Orion, received by Al Fike: “Reach, reach beyond your minds to that place of soul and all will be revealed, all will come, all truth will flow into your …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

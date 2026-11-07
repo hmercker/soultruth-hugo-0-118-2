@@ -1,7 +1,7 @@
 ---
 title: "All are Transformed, Awakened and Healed in God’s Love"
 menu_title: ""
-description: "All are Transformed, Awakened and Healed in God’s Love"
+description: "John the Beloved, received by Al Fike: “May God’s Love be with you, beloveds. For it is in God that all solutions are possible, all dilemmas are healed …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

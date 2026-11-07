@@ -1,7 +1,7 @@
 ---
 title: "Willingly, Lovingly Go Forward in Your Missions"
 menu_title: ""
-description: "Willingly, Lovingly Go Forward in Your Missions"
+description: "John the Beloved, received by Elizabeth Mack: “Wherever there is light, we, the Celestial Angels, come en masse today to bring blessings that you may …”"
 date: 2025-07-20 07:21:03+11:00
 draft: False
 hidden: True

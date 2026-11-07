@@ -1,7 +1,7 @@
 ---
 title: "The Gift of Mediumship Grows As the Soul Progresses"
 menu_title: ""
-description: "The Gift of Mediumship Grows As the Soul Progresses"
+description: "Augustine, received by Maureen Cardoso: “The gift of mediumship is something that shifts and changes and strengthens as the medium continues to progress …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

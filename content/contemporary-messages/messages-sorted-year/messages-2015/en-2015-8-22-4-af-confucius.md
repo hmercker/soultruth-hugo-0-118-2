@@ -1,7 +1,7 @@
 ﻿---
 title: "Confucius urges Group Participants to start Circles of Light where they live"
 menu_title: ""
-description: "Confucius urges Group Participants to start Circles of Light where they live"
+description: "Confucius, received by Al Fike: “And you have each journeyed far, journeyed far within yourselves and shall continue this journey for all eternity to come …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

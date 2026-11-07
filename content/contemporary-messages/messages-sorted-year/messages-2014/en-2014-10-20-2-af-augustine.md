@@ -1,7 +1,7 @@
 ﻿---
 title: "With Faith and Trust, God will lead you to surprising Places"
 menu_title: ""
-description: "With Faith and Trust, God will lead you to surprising Places"
+description: "Augustine, received by Al Fike: “Never underestimate the power of God’s Will, my children, for God will enact His Will in this world in many different …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

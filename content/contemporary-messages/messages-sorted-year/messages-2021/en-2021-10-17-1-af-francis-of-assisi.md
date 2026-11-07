@@ -1,7 +1,7 @@
 ---
 title: "Implores us to bring greater light into the world"
 menu_title: ""
-description: "Implores us to bring greater light into the world"
+description: "Francis of Assisi, received by Al Fike: “In many, many different ways, there is great pain and suffering upon your world. The press of humanity upon your …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

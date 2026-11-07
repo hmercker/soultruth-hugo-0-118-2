@@ -1,7 +1,7 @@
 ---
 title: "Seretta Kem gives instructions for DV preparation"
 menu_title: ""
-description: "Seretta Kem gives instructions for DV preparation"
+description: "Received by Al Fike: “He is experiencing some limitations and he must respect these limitations and he must understand that there are solutions to these …”"
 date: 2019-01-26 23:21:03+00:00
 draft: False
 hidden: True

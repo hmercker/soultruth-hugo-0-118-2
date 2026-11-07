@@ -1,7 +1,7 @@
 ---
 title: "It Is Our Mission to Assist You"
 menu_title: ""
-description: "It Is Our Mission to Assist You"
+description: "Joan of Arc, received by Elizabeth Mack: “I look upon my brothers and sisters here and I see such fortitude and strength of character as you plow through …”"
 date: 2025-03-20 07:21:03+11:00
 draft: False
 hidden: True

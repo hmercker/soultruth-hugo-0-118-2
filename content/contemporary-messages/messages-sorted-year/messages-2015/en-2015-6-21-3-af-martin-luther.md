@@ -1,7 +1,7 @@
 ﻿---
 title: "God's Will cannot be thwarted by Man"
 menu_title: ""
-description: "God's Will cannot be thwarted by Man"
+description: "Martin Luther, received by Al Fike: “For the strength and power of God’s Will remains steadfast and brings the changes that are required within the souls …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

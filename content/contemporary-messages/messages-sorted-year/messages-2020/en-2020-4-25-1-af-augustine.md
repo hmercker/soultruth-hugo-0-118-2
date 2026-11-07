@@ -1,7 +1,7 @@
 ---
 title: "Take Advantage of These Times that are Given"
 menu_title: ""
-description: "Take Advantage of These Times that are Given"
+description: "Augustine, received by Al Fike: “You have a great opportunity at this time in your lives to focus more upon your communications and understanding …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

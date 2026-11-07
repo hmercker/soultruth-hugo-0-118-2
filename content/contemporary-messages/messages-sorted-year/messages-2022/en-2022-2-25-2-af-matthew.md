@@ -1,7 +1,7 @@
 ---
 title: "Each One of Us Has a Purpose"
 menu_title: ""
-description: "Each One of Us Has a Purpose"
+description: "Matthew, received by Al Fike: “There is purpose within each one of you, the purpose that can be gleaned as you awaken within your soul.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

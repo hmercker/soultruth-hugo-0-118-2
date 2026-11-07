@@ -1,7 +1,7 @@
 ---
 title: "Children Gather in the Warmth of God's Love"
 menu_title: ""
-description: "Children Gather in the Warmth of God's Love"
+description: "Jesus, received by Al Fike: “Many children come and gather around the Fires of God’s Soul, warming themselves in the Grace and Flames of Love.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

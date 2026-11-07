@@ -1,7 +1,7 @@
 ---
 title: "The Impact of God's Grace and Humility"
 menu_title: ""
-description: "The Impact of God's Grace and Humility"
+description: "Orion, received by Al Fike: “We cannot create the light for you. We cannot implement the truth for you.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

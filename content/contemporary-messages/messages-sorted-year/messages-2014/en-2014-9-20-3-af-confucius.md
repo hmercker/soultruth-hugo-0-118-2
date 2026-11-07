@@ -1,7 +1,7 @@
 ﻿---
 title: "Be a Channel of Love wherever you go"
 menu_title: ""
-description: "Be a Channel of Love wherever you go"
+description: "Confucius, received by Al Fike: “My children you brought the living waters into the desert which is this city of monuments.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

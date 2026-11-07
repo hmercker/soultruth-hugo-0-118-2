@@ -1,7 +1,7 @@
 ---
 title: "Awaken Your Souls to God's Love and Blessings"
 menu_title: ""
-description: "Awaken Your Souls to God's Love and Blessings"
+description: "Confucius, received by Al Fike: “How fortunate you are, beloveds, to live where you do, to have a life that has many possibilities and blessings, to live …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

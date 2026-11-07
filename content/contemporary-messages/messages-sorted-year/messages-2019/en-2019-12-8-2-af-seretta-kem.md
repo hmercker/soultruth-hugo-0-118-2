@@ -1,7 +1,7 @@
 ---
 title: "Circles of Light Will Grow"
 menu_title: ""
-description: "Circles of Light Will Grow"
+description: "Seretta Kem, received by Al Fike: “You have fulfilled many of the wishes of God while being together in this group; to be in harmony as a group of diverse …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

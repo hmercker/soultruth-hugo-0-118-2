@@ -1,7 +1,7 @@
 ---
 title: "Walk With Humility and Grace"
 menu_title: ""
-description: "Walk With Humility and Grace"
+description: "Bright Star, received by Al Fike: “I was originally from what you call Vietnam and I am a guide of our dear friend who is new to you.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

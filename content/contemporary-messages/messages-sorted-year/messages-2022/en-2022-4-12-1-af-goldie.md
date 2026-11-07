@@ -1,7 +1,7 @@
 ---
 title: "We All Receive Guidance, Aware of it or Not"
 menu_title: ""
-description: "We All Receive Guidance, Aware of it or Not"
+description: "Goldie, received by Al Fike: “So often you believe that you do not hear the word of God nor the guidance that is given. But I am here to tell you that more …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

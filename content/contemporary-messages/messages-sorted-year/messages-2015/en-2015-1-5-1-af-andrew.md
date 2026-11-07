@@ -1,7 +1,7 @@
 ﻿---
 title: "The Importance of allowing the Expiation of your Souls in God’s Love"
 menu_title: ""
-description: "The Importance of allowing the Expiation of your Souls in God’s Love"
+description: "Andrew, received by Al Fike: “There are many details and aspects of this world that need attending to yet it is your souls, my beloveds, your souls that …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

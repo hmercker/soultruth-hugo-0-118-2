@@ -1,5 +1,6 @@
 ---
 title: "The Solutions to Your Problems Come with Faith"
+description: "Received by Al Fike: “The things that you speak of are challenges of faith. These things that you feel are holding you back from God are the things that …”"
 menu_title: "Augustine says The Solutions to Your Problems Come with Faith"
 date: 2024-11-29 07:21:03+11:00
 draft: False

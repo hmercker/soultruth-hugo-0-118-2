@@ -1,7 +1,7 @@
 ﻿---
 title: "Walking Together Toward the Celestial Kingdom"
 menu_title: ""
-description: "Walking Together Toward the Celestial Kingdom"
+description: "Jesus, received by Al Fike: “That designation does not befit my standing. Yet, I am also the leader of this great place and Kingdom that is where the …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

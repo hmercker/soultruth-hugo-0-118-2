@@ -1,7 +1,7 @@
 ---
 title: "Reach for the Highest"
 menu_title: ""
-description: "Reach for the Highest"
+description: "Moses, received by Helge Mercker: “I speak and bring you my love. We bring our love and greetings in prayer.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

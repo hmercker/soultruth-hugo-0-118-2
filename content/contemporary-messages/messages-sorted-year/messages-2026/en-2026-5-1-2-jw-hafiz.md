@@ -1,7 +1,7 @@
 ﻿---
 title: "Seven Grains of Truth"
 menu_title: ""
-description: "Seven Grains of Truth"
+description: "Hafiz, received by Jimbeau Walsh: “That which is created in darkness can look but not see. That which is created in chaos can listen but not hear.”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

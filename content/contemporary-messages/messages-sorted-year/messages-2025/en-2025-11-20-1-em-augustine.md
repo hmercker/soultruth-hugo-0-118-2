@@ -1,7 +1,7 @@
 ---
 title: "Divinity"
 menu_title: ""
-description: "Divinity"
+description: "Augustine, received by Elizabeth Mack: “You are blessed in many ways, dear children of God. Yet, you still do not believe.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

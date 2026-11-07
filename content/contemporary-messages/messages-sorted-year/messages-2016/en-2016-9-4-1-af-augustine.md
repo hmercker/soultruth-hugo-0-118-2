@@ -1,7 +1,7 @@
 ﻿---
 title: "Continue in your Service"
 menu_title: ""
-description: "Continue in your Service"
+description: "Augustine, received by Al Fike: “I believe that you have learned many lessons with this gathering of souls in a country that is foreign to many of you and …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

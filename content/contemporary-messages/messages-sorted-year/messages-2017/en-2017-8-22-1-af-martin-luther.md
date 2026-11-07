@@ -1,7 +1,7 @@
 ---
 title: "Greetings from Martin Luther"
 menu_title: ""
-description: "Greetings from Martin Luther"
+description: "Martin Luther, received by Al Fike: “You have committed themselves to this work. I will be with you for the entire time that you are together.”"
 date: 2018-05-30 05:02:53+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Allow the Peace that Passes All Understanding to Envelop You"
 menu_title: ""
-description: "Allow the Peace that Passes All Understanding to Envelop You"
+description: "Augustine, received by Al Fike: “May the Father’s blessings of His Love continue to pour into your souls. When I speak of the blessing of peace, I speak of …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Replace Judgement with Compassion"
 menu_title: ""
-description: "Replace Judgement with Compassion"
+description: "Augustine, received by Al Fike: “The human condition is a very complex thing. Yet, these conditions persist in every soul.”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

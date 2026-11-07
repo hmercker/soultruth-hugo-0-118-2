@@ -1,7 +1,7 @@
 ﻿---
 title: "The Desires of your Soul to be in the Light"
 menu_title: ""
-description: "The Desires of your Soul to be in the Light"
+description: "Mary, received by Al Fike: “Your souls shine with your inner light and each one of you here has a deep desire to bring comfort and healing to all those who …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

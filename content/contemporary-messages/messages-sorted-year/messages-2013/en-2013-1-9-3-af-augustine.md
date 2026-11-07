@@ -1,7 +1,7 @@
 ﻿---
 title: "Your Efforts, your Commitment, your Love has created a great Light"
 menu_title: ""
-description: "Your Efforts, your Commitment, your Love has created a great Light"
+description: "Augustine, received by Al Fike: “And I wish to say that this instrument and his dear beloved partner have learned much upon their travels and seen much.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

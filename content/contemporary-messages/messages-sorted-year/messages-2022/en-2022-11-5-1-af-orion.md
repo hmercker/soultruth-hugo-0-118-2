@@ -1,7 +1,7 @@
 ---
 title: "You Have Made Great Progress in the Past Year"
 menu_title: ""
-description: "You Have Made Great Progress in the Past Year"
+description: "Orion, received by Al Fike: “Oh beloved souls, it is Orion. You have made great progress in the past year and yet, I perceive that many of you do not agree …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

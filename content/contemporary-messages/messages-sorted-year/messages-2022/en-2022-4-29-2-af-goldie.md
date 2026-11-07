@@ -1,7 +1,7 @@
 ---
 title: "There are no Flags in Heaven"
 menu_title: ""
-description: "There are no Flags in Heaven"
+description: "Goldie, received by Al Fike: “I do not wish to disappoint my dear friend, but there are no make-believe flags in heaven or any other flag.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

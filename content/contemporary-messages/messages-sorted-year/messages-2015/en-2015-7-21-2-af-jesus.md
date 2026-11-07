@@ -1,7 +1,7 @@
 ﻿---
 title: "Your Prayers are necessary"
 menu_title: ""
-description: "Your Prayers are necessary"
+description: "Jesus, received by Al Fike: “Seek your Heavenly Father. Seek your Heavenly Father often.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

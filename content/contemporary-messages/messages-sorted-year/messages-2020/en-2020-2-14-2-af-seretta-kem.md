@@ -1,7 +1,7 @@
 ---
 title: "Encouragement for Development of Mediumship Gifts"
 menu_title: ""
-description: "Encouragement for Development of Mediumship Gifts"
+description: "Seretta Kem, received by Al Fike: “I have been involved with this instrument and others in many forms of developing mediumship and ways of communicating …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

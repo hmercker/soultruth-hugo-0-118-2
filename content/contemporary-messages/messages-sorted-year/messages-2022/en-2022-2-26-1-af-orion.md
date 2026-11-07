@@ -1,7 +1,7 @@
 ---
 title: "Describes Soul Awakening"
 menu_title: ""
-description: "Describes Soul Awakening"
+description: "Orion, received by Al Fike: “Blessings, it is your friend Orion. Oh, what challenges your earthly, dense plane of existence present to you in terms of …”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

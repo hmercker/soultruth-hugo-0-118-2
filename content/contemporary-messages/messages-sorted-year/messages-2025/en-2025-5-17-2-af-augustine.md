@@ -1,7 +1,7 @@
 ---
 title: "The Power of Intention"
 menu_title: ""
-description: "The Power of Intention"
+description: "Augustine, received by Al Fike: “May the power and depth of your intentions guide you through your life, beloved souls. Intention is a crucial aspect of …”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

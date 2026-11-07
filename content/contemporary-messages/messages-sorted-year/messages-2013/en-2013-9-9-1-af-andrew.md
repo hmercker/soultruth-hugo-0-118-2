@@ -1,7 +1,7 @@
 ﻿---
 title: "Step into the Light"
 menu_title: ""
-description: "Step into the Light"
+description: "Andrew, received by Al Fike: “Oh precious children, beautiful souls, beautiful souls of the Father’s Love. You come together so eagerly to receive this …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

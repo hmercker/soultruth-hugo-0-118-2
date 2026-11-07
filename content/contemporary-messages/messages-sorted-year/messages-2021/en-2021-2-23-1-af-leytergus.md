@@ -1,7 +1,7 @@
 ---
 title: "Pray with Intention"
 menu_title: ""
-description: "Pray with Intention"
+description: "Leytergus, received by Al Fike: “May the glory of God’s Love touch your souls. Precious beloved brothers and sisters on earth, I am Leytergus and I come to …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

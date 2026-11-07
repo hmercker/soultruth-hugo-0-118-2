@@ -1,7 +1,7 @@
 ﻿---
 title: "Love will conquer all"
 menu_title: ""
-description: "Love will conquer all"
+description: "Abraham Lincoln, received by Al Fike: “I have come again, Lincoln, Abraham Lincoln. And I am pleased to come and speak to you, my children, my friends, and …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

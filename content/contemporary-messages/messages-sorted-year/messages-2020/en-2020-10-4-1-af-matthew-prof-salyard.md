@@ -1,7 +1,7 @@
 ---
 title: "Encouragement and commitment for University of the Soul"
 menu_title: ""
-description: "Encouragement and commitment for University of the Soul"
+description: "Matthew & Prof Salyard, received by Al Fike: “We in the Celestial kingdom are pleased that you have come together to seek to further the truth of God's …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

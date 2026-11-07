@@ -1,7 +1,7 @@
 ---
 title: "Seek for the Upliftment of the Gift of God's Pure Love"
 menu_title: ""
-description: "Seek for the Upliftment of the Gift of God's Pure Love"
+description: "Mary, received by Al Fike: “Each of you have ventured in your life with a desire for the spiritual understandings and Truth that God has created in this …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Allow Yourself to be Awakened to All that You Are"
 menu_title: ""
-description: "Allow Yourself to be Awakened to All that You Are"
+description: "Keea Atta Kem, received by Maureen Cardoso: “It has been a true gift to us, your Celestial teachers, to come to your gatherings that have been held in this …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

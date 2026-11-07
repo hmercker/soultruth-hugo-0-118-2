@@ -1,7 +1,7 @@
 ﻿---
 title: "The Unlimited Blessings of God’s Love"
 menu_title: ""
-description: "The Unlimited Blessings of God’s Love"
+description: "Faith Nyquist, received by Al Fike: “May the blessings of the Father's Love be yours, my friends. Even though you come from different parts of the world …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

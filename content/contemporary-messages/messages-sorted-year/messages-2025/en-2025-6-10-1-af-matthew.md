@@ -1,7 +1,7 @@
 ---
 title: "A Lesson in Compassion"
 menu_title: ""
-description: "A Lesson in Compassion"
+description: "Matthew, received by Al Fike: “With love comes compassion. As you come to know God, you come to know the intensity and power of God's compassion toward …”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

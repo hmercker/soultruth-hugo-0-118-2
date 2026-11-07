@@ -1,7 +1,7 @@
 ---
 title: "Dawning of a New Era"
 menu_title: ""
-description: "Dawning of a New Era"
+description: "Joseph, received by Al Fike: “A new day is dawning, a new era for humanity to right the wrongs, to heal error, to bring light into your world.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

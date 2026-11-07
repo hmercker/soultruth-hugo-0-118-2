@@ -1,7 +1,7 @@
 ---
 title: "Changes are Coming with Awakening in Your Soul"
 menu_title: ""
-description: "Changes are Coming with Awakening in Your Soul"
+description: "Goldie, received by Al Fike: “There are changes coming into your lives, beloveds, changes in your souls, changes in how you see life.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

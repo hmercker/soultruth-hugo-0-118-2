@@ -1,7 +1,7 @@
 ---
 title: "Integration of the Material Mind and the Soul Mind"
 menu_title: ""
-description: "Integration of the Material Mind and the Soul Mind"
+description: "Orion, received by Al Fike: “I thank you for your prayer, beloved son. Indeed, the limitations of the mind are great.”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

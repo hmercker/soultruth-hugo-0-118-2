@@ -1,7 +1,7 @@
 ﻿---
 title: "Pray with all of your Earnestness"
 menu_title: ""
-description: "Pray with all of your Earnestness"
+description: "Jesus, received by Al Fike: “As you have gathered together, you have increased the light within your souls; you have made bonds of love that will last for …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

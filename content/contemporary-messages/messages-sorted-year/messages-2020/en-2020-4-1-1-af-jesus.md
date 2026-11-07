@@ -1,7 +1,7 @@
 ---
 title: "Pray to Learn Why Are You in Existence"
 menu_title: ""
-description: "Pray to Learn Why Are You in Existence"
+description: "Jesus, received by Al Fike: “Blessed children, I am your brother and friend. I have come to bless your efforts in seeking the Father's Love, in seeking to …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

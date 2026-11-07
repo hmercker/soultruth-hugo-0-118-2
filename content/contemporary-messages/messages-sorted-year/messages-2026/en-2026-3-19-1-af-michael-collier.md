@@ -1,7 +1,7 @@
 ---
 title: "Faith, Momentum and Expanding Spiritual Impact"
 menu_title: ""
-description: "Faith, Momentum and Expanding Spiritual Impact"
+description: "Michael Collier, received by Al Fike: “You in the material world, dealing with the material obligations and conditions, seeking to do God's Will and …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

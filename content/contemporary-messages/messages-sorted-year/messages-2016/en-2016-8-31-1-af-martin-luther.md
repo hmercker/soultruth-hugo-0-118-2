@@ -1,7 +1,7 @@
 ﻿---
 title: "Welcome to Frankfurt"
 menu_title: ""
-description: "Welcome to Frankfurt"
+description: "Martin Luther, received by Al Fike: “And now, beloved souls, those of you who are willing, must again fight for change, must again bring the truth that you …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

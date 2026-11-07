@@ -1,7 +1,7 @@
 ﻿---
 title: "You will indeed do the Work as laid before you"
 menu_title: ""
-description: "You will indeed do the Work as laid before you"
+description: "Faith Nyquist, received by Al Fike: “Do not create barriers or speculations but be loving and open and receptive to the flow of God’s Will, for this is not …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

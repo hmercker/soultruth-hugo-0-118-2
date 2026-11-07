@@ -1,7 +1,7 @@
 ---
 title: "Soul to Soul Communication"
 menu_title: ""
-description: "Soul to Soul Communication"
+description: "Andrew, received by Al Fike: “We continue to take you deeper into the realms of soul to soul communication, to develop within you this capacity and this …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

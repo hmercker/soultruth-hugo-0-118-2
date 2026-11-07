@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessing to the Child within the Womb"
 menu_title: ""
-description: "Blessing to the Child within the Womb"
+description: "Mary, received by Al Fike: “A blessing to the child within the womb. This beautiful soul who comes to this world shall bring light with her, beautiful …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

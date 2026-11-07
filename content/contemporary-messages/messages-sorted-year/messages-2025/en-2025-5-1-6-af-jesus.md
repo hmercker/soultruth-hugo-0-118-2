@@ -1,7 +1,7 @@
 ---
 title: "Your Light Draws Angels Close, Empowering Your Progress and Development"
 menu_title: ""
-description: "Your Light Draws Angels Close, Empowering Your Progress and Development"
+description: "Jesus, received by Al Fike: “All these things come because you have made a sincere effort to be with God and applied the Truth of His Love to your lives.”"
 date: 2025-05-20 07:21:03+11:00
 draft: False
 hidden: True

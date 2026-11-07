@@ -1,7 +1,7 @@
 ---
 title: "Celebration of Progress for the University of the Soul (Lightbringers)"
 menu_title: ""
-description: "Celebration of Progress for the University of the Soul (Lightbringers)"
+description: "Professor Salyards, received by Al Fike: “What a great lesson it is to see how God will bring individual souls together to create something of light in …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

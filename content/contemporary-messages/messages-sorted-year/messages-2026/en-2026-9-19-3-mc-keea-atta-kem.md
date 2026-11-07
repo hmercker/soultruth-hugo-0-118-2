@@ -1,7 +1,7 @@
 ﻿---
 title: "If You Allow This Love to Work Upon You, It Will Bring Harmony and Wholeness"
 menu_title: ""
-description: "If You Allow This Love to Work Upon You, It Will Bring Harmony and Wholeness"
+description: "Keea Atta Kem, received by Maureen Cardoso: “With the sincere desire of your soul, moving in that way, in communing, there is a response where this Love is …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

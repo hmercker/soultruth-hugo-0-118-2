@@ -1,7 +1,7 @@
 ---
 title: "Conveys His Deep Compassion and Commitment"
 menu_title: ""
-description: "Conveys His Deep Compassion and Commitment"
+description: "Orion, received by Al Fike: “I wish to speak further upon the differences between soul consciousness and that of the material mind consciousness.”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

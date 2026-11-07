@@ -1,7 +1,7 @@
 ﻿---
 title: "These are the Days to learn how to love"
 menu_title: ""
-description: "These are the Days to learn how to love"
+description: "Augustine, received by Al Fike: “All that is required is for you to follow. Follow with your eyes open, your hearts ablaze with Love, the wisdom of your …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

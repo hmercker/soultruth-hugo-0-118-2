@@ -1,7 +1,7 @@
 ---
 title: "A Lesson on the Complex Layers of our Instrumentality"
 menu_title: ""
-description: "A Lesson on the Complex Layers of our Instrumentality"
+description: "Augustine, received by Al Fike: “May your souls be opened wide to the inflowing of God's Love, that great Elixir of the soul that is given freely by God …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

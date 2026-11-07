@@ -1,7 +1,7 @@
 ---
 title: "Remember the Wee Ones"
 menu_title: ""
-description: "Remember the Wee Ones"
+description: "Goldie, received by Elizabeth Mack: “In your travels, when you meet one of us, one of us being a wee one, love that wee one. For that wee one needs the …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Understanding the Difficulty of Receiving Truth in its Purity"
 menu_title: ""
-description: "Understanding the Difficulty of Receiving Truth in its Purity"
+description: "Augustine, received by Al Fike: “There is still so much for you to know, beloved souls. For those who are eager for knowledge and those of you who study in …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

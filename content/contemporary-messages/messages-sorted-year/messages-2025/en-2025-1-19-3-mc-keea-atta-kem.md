@@ -1,7 +1,7 @@
 ---
 title: "Invites Us Into the Realms of Inner Peace and Wisdom"
 menu_title: ""
-description: "Invites Us Into the Realms of Inner Peace and Wisdom"
+description: "Keea Atta Kem, received by Maureen Cardoso: “I invite you to relax, to be at peace and to be aware of your inner world. That place where there is great joy …”"
 date: 2025-03-18 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Your Ability to Dispel The Darkness of This World is More Powerful Than You Think"
 menu_title: ""
-description: "Your Ability to Dispel The Darkness of This World is More Powerful Than You Think"
+description: "Orion, received by Al Fike: “Such a disharmony is in your world. The power of that disharmony can be overwhelming.”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

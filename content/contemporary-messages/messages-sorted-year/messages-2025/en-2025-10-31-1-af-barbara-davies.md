@@ -1,7 +1,7 @@
 ---
 title: "The Path from Darkness to Light"
 menu_title: ""
-description: "The Path from Darkness to Light"
+description: "Barbara Davies, received by Al Fike: “How difficult it is for you, my beloved friends, in this earthly plane to be in alignment and in harmony with God's …”"
 date: 2025-12-17 06:00:00+00:00
 draft: False
 hidden: True

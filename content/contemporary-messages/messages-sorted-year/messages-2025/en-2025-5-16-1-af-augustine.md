@@ -1,7 +1,7 @@
 ---
 title: "You Must Ask Earnestly and Specifically to Receive an Inflowing of God's Divine Love"
 menu_title: ""
-description: "You Must Ask Earnestly and Specifically to Receive an Inflowing of God's Divine Love"
+description: "Augustine, received by Al Fike: “May the blessings of the Father's Love continue to pour into your souls, beloved children of God, seekers of truth.”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

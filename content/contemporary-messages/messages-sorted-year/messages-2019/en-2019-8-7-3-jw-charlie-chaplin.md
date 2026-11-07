@@ -1,7 +1,7 @@
 ---
 title: "Put Light in the Darkness with Joy and Humor"
 menu_title: ""
-description: "Put Light in the Darkness with Joy and Humor"
+description: "Charlie Chaplin, received by Jimbeau Walsh: “I want you to know I am not a Celestial Angel but I am a progressive spirit as I did not discover God’s Love …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

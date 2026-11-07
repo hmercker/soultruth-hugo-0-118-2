@@ -1,7 +1,7 @@
 ---
 title: "God's' Love is the Highest Attainment in Eternity"
 menu_title: ""
-description: "God's' Love is the Highest Attainment in Eternity"
+description: "Augustine, received by Maureen Cardoso: “Welcome to this time together, this gathering that we have helped to orchestrate, bringing you all into a Circle …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

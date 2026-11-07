@@ -1,7 +1,7 @@
 ﻿---
 title: "There is fate and yet there is no fate"
 menu_title: ""
-description: "There is fate and yet there is no fate"
+description: "Augustine, received by Al Fike: “So we embark on another adventure together, which will in time open up into a whole entire chapter and many series of …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

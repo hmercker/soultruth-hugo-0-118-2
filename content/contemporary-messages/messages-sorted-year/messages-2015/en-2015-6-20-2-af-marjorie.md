@@ -1,7 +1,7 @@
 ﻿---
 title: "Al’s Grandmother"
 menu_title: ""
-description: "Al’s Grandmother"
+description: "Marjorie, received by Al Fike: “I want him to know that he is surrounded in Love and when he encounters troubles to ask for us who love him to be with him …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

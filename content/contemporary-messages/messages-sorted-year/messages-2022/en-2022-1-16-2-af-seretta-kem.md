@@ -1,7 +1,7 @@
 ---
 title: "Be Steadfast in your Prayers"
 menu_title: ""
-description: "Be Steadfast in your Prayers"
+description: "Seretta Kem, received by Al Fike: “The world continues to await its awakening. The world is in great need of those who are awake.”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

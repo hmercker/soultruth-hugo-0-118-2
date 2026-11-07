@@ -1,7 +1,7 @@
 ﻿---
 title: "Be open to God as a Flower opens to the Sun"
 menu_title: ""
-description: "Be open to God as a Flower opens to the Sun"
+description: "Andrew, received by Al Fike: “You are beloved in the eyes of God. Every soul here desires a connection, an understanding, and an opening to be with God.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

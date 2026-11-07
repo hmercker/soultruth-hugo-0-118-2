@@ -1,7 +1,7 @@
 ---
 title: "What You Are Creating Together is Nourishing This Great Oak"
 menu_title: ""
-description: "What You Are Creating Together is Nourishing This Great Oak"
+description: "Matthew, received by Al Fike: “Message received during prayer after a Lightbringers Core Team meeting which focused on updates of current Lightbringers …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

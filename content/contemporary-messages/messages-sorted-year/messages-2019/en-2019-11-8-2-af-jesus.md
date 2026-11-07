@@ -1,7 +1,7 @@
 ---
 title: "God's Presence Will Ignite the People of This Land"
 menu_title: ""
-description: "God's Presence Will Ignite the People of This Land"
+description: "Jesus, received by Al Fike: “The Grace of God is upon you, beloved souls. But all hunger, all hunger for the Love of the Creator, beloved souls.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

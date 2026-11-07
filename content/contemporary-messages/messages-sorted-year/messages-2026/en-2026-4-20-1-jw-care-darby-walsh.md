@@ -1,7 +1,7 @@
 ---
 title: "Conversations with God, Prayer, and Spiritual Magnetism"
 menu_title: ""
-description: "Conversations with God, Prayer, and Spiritual Magnetism"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “I humbly ask you to take this time together to open your heart, that God may open your soul, and to let go of …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

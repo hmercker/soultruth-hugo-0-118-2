@@ -1,7 +1,7 @@
 ---
 title: "Welcomes Us and Opens the Online Development Circle"
 menu_title: ""
-description: "Welcomes Us and Opens the Online Development Circle"
+description: "Augustine, received by Maureen Cardoso: “For in truth, every time you sit in prayer, there is development, development of your soul - its growth in light …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

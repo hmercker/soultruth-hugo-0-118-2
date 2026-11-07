@@ -1,7 +1,7 @@
 ---
 title: "Come to Know the Truth, Power and Glory of Love"
 menu_title: ""
-description: "Come to Know the Truth, Power and Glory of Love"
+description: "Isaiah, received by Al Fike: “(…) His Love to awaken you. For this is the journey that all must take and come to know in their own way, the truth, the …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "There Is Now Greater Love in the World"
 menu_title: ""
-description: "There Is Now Greater Love in the World"
+description: "John the Babtist, received by Elizabeth Mack: “His Love pours down upon you at this time. Open widely, for His Love for you is great.”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Introduces Himself to Help Us in Our Soul Development"
 menu_title: ""
-description: "Introduces Himself to Help Us in Our Soul Development"
+description: "Timothy, received by Elizabeth Mack: “Know that our Father is the same as your Father. Know that we come and we walk among you.”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

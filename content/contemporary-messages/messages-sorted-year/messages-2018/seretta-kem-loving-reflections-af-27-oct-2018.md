@@ -1,7 +1,7 @@
 ---
 title: "Seretta Kem’s Loving Reflections"
 menu_title: ""
-description: "Seretta Kem’s Loving Reflections"
+description: "Received by Al Fike: “With all that has transpired in your circles, your conversations, your efforts and your celebrations, all has been of love, harmony …”"
 date: 2020-07-02 06:00:01+11:00
 draft: False
 hidden: True

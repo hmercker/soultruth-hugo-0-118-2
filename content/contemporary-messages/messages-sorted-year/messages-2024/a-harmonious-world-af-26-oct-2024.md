@@ -1,5 +1,6 @@
 ---
 title: "A Harmonious World Based on Honesty, Truth and Loving One Another is Coming"
+description: "Josephus, received by Al Fike: “The world changes and so do you, beloved souls. More precisely, I come to speak to you about a world that can be, as a …”"
 menu_title: "Josephus says A Harmonious World Based on Honesty, Truth and Loving One Another is Coming"
 date: 2024-12-01 07:21:03+11:00
 draft: False

@@ -1,7 +1,7 @@
 ---
 title: "Opens Today's Circle"
 menu_title: ""
-description: "Opens Today's Circle"
+description: "Jesus, received by Al Fike: “I welcome you, my beloveds. I pray that you will be receptive to the Father's Love flowing into your soul.”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

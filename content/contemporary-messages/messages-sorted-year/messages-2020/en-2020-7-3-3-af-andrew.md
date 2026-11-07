@@ -1,7 +1,7 @@
 ---
 title: "You Become a Beacon of Light in the World"
 menu_title: ""
-description: "You Become a Beacon of Light in the World"
+description: "Andrew, received by Al Fike: “How blessed you are to have this community of prayerful brothers and sisters, this Circle of Light, as we call it.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

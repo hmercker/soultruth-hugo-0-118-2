@@ -1,7 +1,7 @@
 ---
 title: "Mary Brings a Mother’s Love to Souls on Earth"
 menu_title: ""
-description: "Mary Brings a Mother’s Love to Souls on Earth"
+description: "Received by Maureen Cardoso: “I join you in your time of prayer, where you open your soul, longing to be touched by the Grace of God and to be washed and …”"
 date: 2021-01-22 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Do Not Wait to Ignite Your Instrumentality; Progression Comes With Dedication"
 menu_title: ""
-description: "Do Not Wait to Ignite Your Instrumentality; Progression Comes With Dedication"
+description: "Augustine, received by Al Fike: “Not obligations that are onerous and which have negative consequences if not adhered to, rather obligations that resound …”"
 date: 2026-11-01 00:00:00+00:00
 draft: False
 hidden: True

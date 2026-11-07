@@ -1,7 +1,7 @@
 ---
 title: "Engage the Desires and Inspiration of the Soul"
 menu_title: ""
-description: "Engage the Desires and Inspiration of the Soul"
+description: "Jesus, received by Al Fike: “The Love of God is the key to all things, my beloveds. My hope is that you may feel and know my presence, that you may feel …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

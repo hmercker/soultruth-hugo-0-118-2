@@ -1,7 +1,7 @@
 ---
 title: "Be Channels of God's Love Always"
 menu_title: ""
-description: "Be Channels of God's Love Always"
+description: "Professor Salyards, received by Al Fike: “Indeed, we are working very hard to interconnect the various souls whom we have come into contact with upon your …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

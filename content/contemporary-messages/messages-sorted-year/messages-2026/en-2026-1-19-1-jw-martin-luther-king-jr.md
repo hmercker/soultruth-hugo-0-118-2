@@ -1,7 +1,7 @@
 ---
 title: "Pray and Be Peaceful"
 menu_title: ""
-description: "Pray and Be Peaceful"
+description: "Martin Luther King Jr, received by Jimbeau Walsh: “I have spoken through this brother before about my journey, my admiration for the non-violence of Jesus …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Everybody Has an Opportunity to Progress"
 menu_title: ""
-description: "Everybody Has an Opportunity to Progress"
+description: "Andrew, received by Al Fike: “He is typical of many, many souls who have lived a life of depravity in the material world, he has sought redemption with …”"
 date: 2025-11-02 06:00:00+00:00
 draft: False
 hidden: True

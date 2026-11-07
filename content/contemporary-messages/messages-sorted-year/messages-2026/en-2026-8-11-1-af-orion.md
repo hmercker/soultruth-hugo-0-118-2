@@ -1,7 +1,7 @@
 ﻿---
 title: "Become Aware of Your Reflexive and Unconscious Impediments"
 menu_title: ""
-description: "Become Aware of Your Reflexive and Unconscious Impediments"
+description: "Orion, received by Al Fike: “The act of your soul's awakening is an act of faith. Your soul is charged with God's Love, and it is in the process of awakening.”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

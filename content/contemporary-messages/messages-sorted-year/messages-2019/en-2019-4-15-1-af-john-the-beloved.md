@@ -1,7 +1,7 @@
 ---
 title: "Open to God's Touch"
 menu_title: ""
-description: "Open to God's Touch"
+description: "John the Beloved, received by Al Fike: “God’s Love pours over you. A deep peace is a mantle upon you.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

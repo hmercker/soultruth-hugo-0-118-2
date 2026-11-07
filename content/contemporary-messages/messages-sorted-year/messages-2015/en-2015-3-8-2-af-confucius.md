@@ -1,7 +1,7 @@
 ﻿---
 title: "Wherever you are in the World you will be united in Love"
 menu_title: ""
-description: "Wherever you are in the World you will be united in Love"
+description: "Confucius, received by Al Fike: “For you are all sincere souls seeking to do the work of God and the Master Jesus. And as such wherever you are in whatever …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

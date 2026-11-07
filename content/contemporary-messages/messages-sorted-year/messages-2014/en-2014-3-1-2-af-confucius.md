@@ -1,7 +1,7 @@
 ﻿---
 title: "Truth comes through Prayer"
 menu_title: ""
-description: "Truth comes through Prayer"
+description: "Confucius, received by Al Fike: “And truth comes through prayer, and prayer is answered by God, and in God’s answer comes truth.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "You Will Be Inspired by the Angels!"
 menu_title: ""
-description: "You Will Be Inspired by the Angels!"
+description: "Mozart, received by Al Fike: “I have been assigned to help orchestrate, from our side of life, the blessings and upliftment of music that may be shared by …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

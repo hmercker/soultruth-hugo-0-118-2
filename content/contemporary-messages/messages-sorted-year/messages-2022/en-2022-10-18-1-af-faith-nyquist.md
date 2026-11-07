@@ -1,7 +1,7 @@
 ---
 title: "You are Still Being Used as Instruments at WHC"
 menu_title: ""
-description: "You are Still Being Used as Instruments at WHC"
+description: "Faith, received by Al Fike: “May God's great blessings befall each of you that your souls may open like a flower to the sun, His Love pouring in with the …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

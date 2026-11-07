@@ -1,7 +1,7 @@
 ---
 title: "You Are Held in Place by the Efforts of Many"
 menu_title: ""
-description: "You Are Held in Place by the Efforts of Many"
+description: "Orion, received by Al Fike: “You are being held in place and you shall be held in place to continue this work. What I mean by this is that God is pouring …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

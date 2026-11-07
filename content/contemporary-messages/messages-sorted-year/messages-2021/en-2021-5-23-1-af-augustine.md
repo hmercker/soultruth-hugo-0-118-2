@@ -1,7 +1,7 @@
 ---
 title: "Pentecost"
 menu_title: ""
-description: "Pentecost"
+description: "Augustine, received by Al Fike: “Is there a day where God provides for His children a greater abundance of Divine Love? But this, like every day, has the …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

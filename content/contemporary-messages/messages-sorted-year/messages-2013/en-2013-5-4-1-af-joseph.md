@@ -1,7 +1,7 @@
 ﻿---
 title: "Do not fear, but Love"
 menu_title: ""
-description: "Do not fear, but Love"
+description: "Joseph, received by Al Fike: “My son A: I am Joseph, the father of Jesus, and I am your guide. And I beseech you to lay down your resistance and your …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

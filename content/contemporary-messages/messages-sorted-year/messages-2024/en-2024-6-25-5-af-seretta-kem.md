@@ -1,7 +1,7 @@
 ---
 title: "Travelling the Road of Awakening and Transformation"
 menu_title: ""
-description: "Travelling the Road of Awakening and Transformation"
+description: "Seretta Kem, received by Al Fike: “You have had a discussion about mediumship, some of the technical aspects of it, some of the pitfalls of it.”"
 date: 2025-04-08 07:21:03+11:00
 draft: False
 hidden: True

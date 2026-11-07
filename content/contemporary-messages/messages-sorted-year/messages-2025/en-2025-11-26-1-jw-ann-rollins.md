@@ -1,7 +1,7 @@
 ---
 title: "The Whispers of God"
 menu_title: ""
-description: "The Whispers of God"
+description: "Ann Rollins, received by Jimbeau Walsh: “You live in a world of instant gratification and what seems to be an endless pursuit of material things, of …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Blessing in Great Hall of Peace"
 menu_title: ""
-description: "Blessing in Great Hall of Peace"
+description: "Andrew, received by Al Fike: “God whispers into your soul, my beloved and beautiful friends. He brings you wisdom and Love.”"
 date: 2025-07-20 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Guidance for University of the Soul (Lightbringers)"
 menu_title: ""
-description: "Guidance for University of the Soul (Lightbringers)"
+description: "Professor Salyards, received by Al Fike: “The four of you together are a potent team which will indeed iron out these wrinkles and problems and puzzles …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

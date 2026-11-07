@@ -1,7 +1,7 @@
 ﻿---
 title: "Changes Coming to Uphold Souls Upon This Earth"
 menu_title: ""
-description: "Changes Coming to Uphold Souls Upon This Earth"
+description: "George Stokes, received by Elizabeth Mack: “Your prayers are being answered, your desire for truth, your desire for love, your desire to include all upon …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

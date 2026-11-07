@@ -1,7 +1,7 @@
 ﻿---
 title: "Continue to grow in the Love, continue to make your Connection with the Creator"
 menu_title: ""
-description: "Continue to grow in the Love, continue to make your Connection with the Creator"
+description: "Alec Gaunt, received by Al Fike: “How pleased I am to be with you and to see how these groups have grown, and to see the growth within each one of you as …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

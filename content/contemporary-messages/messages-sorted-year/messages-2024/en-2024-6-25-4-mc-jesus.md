@@ -1,7 +1,7 @@
 ---
 title: "Blessing of Deeper Desire and Clarity of Intention"
 menu_title: ""
-description: "Blessing of Deeper Desire and Clarity of Intention"
+description: "Jesus, received by Maureen Cardoso: “Open your souls, my disciples, and receive this blessing. As we are in this circle together, I bring each of you a …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

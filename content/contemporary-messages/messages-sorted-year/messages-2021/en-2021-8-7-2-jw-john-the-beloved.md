@@ -1,7 +1,7 @@
 ---
 title: "Dwell in Grace"
 menu_title: ""
-description: "Dwell in Grace"
+description: "John the Beloved, received by Jimbeau Walsh: “This was because I understood with my heart, and I allowed the love to touch my soul. I also had visions but …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

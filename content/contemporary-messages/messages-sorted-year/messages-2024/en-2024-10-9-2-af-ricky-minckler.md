@@ -1,7 +1,7 @@
 ---
 title: "Message of Joy; Seeing Clearly Now from Spirit"
 menu_title: ""
-description: "Message of Joy; Seeing Clearly Now from Spirit"
+description: "Ricky Minckler, received by Al Fike: “Oh, how I see much more clearly than I did. How I longed to see this clearly of what the life in the spirit world is …”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

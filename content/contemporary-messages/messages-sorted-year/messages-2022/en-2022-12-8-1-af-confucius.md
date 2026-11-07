@@ -1,7 +1,7 @@
 ---
 title: "Blessing of Healing"
 menu_title: ""
-description: "Blessing of Healing"
+description: "Confucius, received by Al Fike: “May the Light of God's Love envelop you all, beloved, beloved souls. My flock of little birds grows, does it not, as you …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

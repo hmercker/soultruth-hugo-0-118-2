@@ -1,7 +1,7 @@
 ---
 title: "Spiritual Medicine"
 menu_title: ""
-description: "Spiritual Medicine"
+description: "Luke, received by Jimbeau Walsh: “May the love of God be upon us and fill our souls. I have spoken before about healing, about the need for medicine and …”"
 date: 2025-07-11 07:21:03+00:00
 draft: False
 hidden: True

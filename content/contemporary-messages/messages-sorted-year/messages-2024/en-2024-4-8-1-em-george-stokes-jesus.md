@@ -1,7 +1,7 @@
 ---
 title: "Let Your Love Become One"
 menu_title: ""
-description: "Let Your Love Become One"
+description: "George Stokes & Jesus, received by Elizabeth Mack: “In all the universe, there are those who pray to receive the gifts that God has for their souls, for …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

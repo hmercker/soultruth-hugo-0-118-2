@@ -1,7 +1,7 @@
 ﻿---
 title: "Be together in Love and Harmony and soulful Longing"
 menu_title: ""
-description: "Be together in Love and Harmony and soulful Longing"
+description: "Peter, received by Al Fike: “Indeed, amongst you is a great power for change in the world. Many gifts and potentials to bring light and change and love …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

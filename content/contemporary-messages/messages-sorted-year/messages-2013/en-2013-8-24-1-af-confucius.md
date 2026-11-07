@@ -1,7 +1,7 @@
 ﻿---
 title: "Know the Will of God"
 menu_title: ""
-description: "Know the Will of God"
+description: "Confucius, received by Al Fike: “Be reassured that you walk in the shadow of God’s Love, that you are carried by the angels.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

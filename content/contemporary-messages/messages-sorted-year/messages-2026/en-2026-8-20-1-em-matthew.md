@@ -1,7 +1,7 @@
 ﻿---
 title: "The Sweetness of Progression"
 menu_title: ""
-description: "The Sweetness of Progression"
+description: "Matthew, received by Elizabeth Mack: “My soul is filled with Divine Love. I bring you my love to help uplift you, to join you in this prayer, to talk to …”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

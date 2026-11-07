@@ -1,7 +1,7 @@
 ---
 title: "Comes Close to be with Us in Prayer"
 menu_title: ""
-description: "Comes Close to be with Us in Prayer"
+description: "Jesus, received by Al Fike: “I’ve come today to encourage you and uplift you. His Love is growing and awakening you, bringing to you all that is new, all …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

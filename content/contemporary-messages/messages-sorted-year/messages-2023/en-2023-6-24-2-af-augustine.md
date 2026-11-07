@@ -1,7 +1,7 @@
 ---
 title: "Lesson on Following the Guidance of God"
 menu_title: ""
-description: "Lesson on Following the Guidance of God"
+description: "Augustine, received by Al Fike: “I welcome you to come together in this way. These gatherings have a rhythm to them.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

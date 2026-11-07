@@ -1,7 +1,7 @@
 ---
 title: "Explains Spirit is Working on Our Central Nervous Systems and Synapses of the Brain for Clearer Communication"
 menu_title: ""
-description: "Explains Spirit is Working on Our Central Nervous Systems and Synapses of the Brain for Clearer Communication"
+description: "Seretta Kem, received by Al Fike: “All that we do is predicated upon receiving the gift of Divine Love and everything that happens here is embedded in that …”"
 date: 2025-04-02 07:21:03+11:00
 draft: False
 hidden: True

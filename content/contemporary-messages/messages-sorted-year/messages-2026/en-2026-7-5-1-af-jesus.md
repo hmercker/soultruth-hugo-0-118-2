@@ -1,7 +1,7 @@
 ﻿---
 title: "Opening to the Father’s Love and the Coming Transformation of Humanity"
 menu_title: ""
-description: "Opening to the Father’s Love and the Coming Transformation of Humanity"
+description: "Jesus, received by Al Fike: “May the blessings of the Father's Love be yours, yours for eternity. For God provides much for His children, given that His …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

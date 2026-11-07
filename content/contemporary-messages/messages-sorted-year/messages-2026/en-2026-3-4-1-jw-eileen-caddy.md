@@ -1,7 +1,7 @@
 ---
 title: "The Big Boat and the Small Boat"
 menu_title: ""
-description: "The Big Boat and the Small Boat"
+description: "Eileen Caddy, received by Jimbeau Walsh: “As we view events occurring around the world presently, we work very diligently to provide safety for those in …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

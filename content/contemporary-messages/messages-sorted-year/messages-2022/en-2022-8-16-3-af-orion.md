@@ -1,7 +1,7 @@
 ---
 title: "Release All Impediments to Greater Light"
 menu_title: ""
-description: "Release All Impediments to Greater Light"
+description: "Orion, received by Al Fike: “You continue to find your way into greater light. You continue to assess the messages that have been given to you, the …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "We are Needed to Spread Light in the World"
 menu_title: ""
-description: "We are Needed to Spread Light in the World"
+description: "Augustine, received by Al Fike: “May the Father’s Love continue to flow into your souls, beloved and precious souls of light in the world.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

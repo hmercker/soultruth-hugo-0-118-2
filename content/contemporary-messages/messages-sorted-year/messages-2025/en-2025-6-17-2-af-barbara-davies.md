@@ -1,7 +1,7 @@
 ---
 title: "Barbara's Journey of Love"
 menu_title: ""
-description: "Barbara's Journey of Love"
+description: "Barbara Davies, received by Al Fike: “I have earned my wings, so to speak. I have, on the Earth plane, experienced many trials and tribulations, but …”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

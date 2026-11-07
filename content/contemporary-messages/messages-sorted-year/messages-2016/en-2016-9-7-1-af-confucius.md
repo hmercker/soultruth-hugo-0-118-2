@@ -1,7 +1,7 @@
 ﻿---
 title: "You are cradled in His Care"
 menu_title: ""
-description: "You are cradled in His Care"
+description: "Confucius, received by Al Fike: “You are wanted and loved, precious children. God has you in His Hands, cradling you with His care and protection, the …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

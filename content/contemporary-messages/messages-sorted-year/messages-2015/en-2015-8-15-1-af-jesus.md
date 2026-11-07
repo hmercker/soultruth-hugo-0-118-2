@@ -1,7 +1,7 @@
 ﻿---
 title: "I shall always be with you"
 menu_title: ""
-description: "I shall always be with you"
+description: "Jesus, received by Al Fike: “Blessed souls, beautiful brothers, beautiful sisters who walk this Path Divine I am with you.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

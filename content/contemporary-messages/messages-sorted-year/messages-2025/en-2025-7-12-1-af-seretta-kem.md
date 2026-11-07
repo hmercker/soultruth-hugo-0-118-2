@@ -1,7 +1,7 @@
 ---
 title: "The Chemistry and Alignment Required to Release Soul Encrustrations"
 menu_title: ""
-description: "The Chemistry and Alignment Required to Release Soul Encrustrations"
+description: "Seretta Kem, received by Al Fike: “Blessing to you, my friends. I wish to speak somewhat about mediumship.”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "We Are All Praying for the World Healing Center Portal"
 menu_title: ""
-description: "We Are All Praying for the World Healing Center Portal"
+description: "Praying Bill, received by Elizabeth Mack: “There are many with us today at the World Healing Center. Praying Bill, I’ve been known as.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

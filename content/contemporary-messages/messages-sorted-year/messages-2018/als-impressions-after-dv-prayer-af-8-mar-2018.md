@@ -1,7 +1,7 @@
 ---
 title: "Al’s Impressions after DV Prayer"
 menu_title: ""
-description: "Al’s Impressions after DV Prayer"
+description: "Received by Al Fike: “At the beginning of the prayer I saw each of us in a white robe and around the waist was a sash of different colours and that sash …”"
 date: 2020-05-19 07:20:28+11:00
 draft: False
 hidden: True

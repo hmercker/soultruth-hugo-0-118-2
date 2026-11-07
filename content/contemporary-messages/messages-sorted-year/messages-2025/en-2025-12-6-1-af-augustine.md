@@ -1,7 +1,7 @@
 ---
 title: "Consider How You Might Demonstrate Truth in the World"
 menu_title: ""
-description: "Consider How You Might Demonstrate Truth in the World"
+description: "Augustine, received by Al Fike: “Many have received a portion of Divine Love within their souls over the millennia that this Love has been available to …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

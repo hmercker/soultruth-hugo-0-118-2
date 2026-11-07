@@ -1,7 +1,7 @@
 ﻿---
 title: "Persist in Reaching Those Who Are Lost in Distraction"
 menu_title: ""
-description: "Persist in Reaching Those Who Are Lost in Distraction"
+description: "Orion, received by Al Fike: “The world waits for your commitment. Each step draws you closer to that purpose that is within your soul, that unique journey …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

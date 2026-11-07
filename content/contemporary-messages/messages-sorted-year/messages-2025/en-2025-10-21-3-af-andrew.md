@@ -1,7 +1,7 @@
 ---
 title: "This Gift Comes Only Through Asking"
 menu_title: ""
-description: "This Gift Comes Only Through Asking"
+description: "Andrew, received by Al Fike: “This gift of the Father's Love, His Essence, the Essence of His Soul, is given through desire, desire to receive it, desire …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

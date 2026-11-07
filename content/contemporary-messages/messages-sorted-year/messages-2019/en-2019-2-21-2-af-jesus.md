@@ -1,7 +1,7 @@
 ---
 title: "Great Blessings Await Those Who Follows the Divine Love Path"
 menu_title: ""
-description: "Great Blessings Await Those Who Follows the Divine Love Path"
+description: "Jesus, received by Al Fike: “He who takes my hand shall be led to the Kingdom of God where love reigns supreme and light bright and beautiful.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

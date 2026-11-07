@@ -1,7 +1,7 @@
 ---
 title: "Comments on the Importance of Keeping Our Agreements"
 menu_title: ""
-description: "Comments on the Importance of Keeping Our Agreements"
+description: "Alec Gaunt, received by Al Fike: “I think you had an important conversation yesterday, discussing your commitments, your timing, your coordination.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Make Every Moment a Divine Moment in Your Lives Upon the Earth"
 menu_title: ""
-description: "Make Every Moment a Divine Moment in Your Lives Upon the Earth"
+description: "Joan of Arc, received by Elizabeth Mack: “Oh good and gracious God, these children are so precious, precious to You. We are grateful to be assisting them …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

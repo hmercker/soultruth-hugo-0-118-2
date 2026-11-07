@@ -1,7 +1,7 @@
 ---
 title: "Reach and Allow"
 menu_title: ""
-description: "Reach and Allow"
+description: "John Hughes & George Stokes, received by Elizabeth Mack: “Reach with the longings and desires within you. Reach with everything you have and feel God’s …”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

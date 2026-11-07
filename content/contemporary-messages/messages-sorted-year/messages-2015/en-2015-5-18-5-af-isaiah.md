@@ -1,7 +1,7 @@
 ﻿---
 title: "The Breath of God"
 menu_title: ""
-description: "The Breath of God"
+description: "Isaiah, received by Al Fike: “… new realms of understanding and thinking, of soul awareness, of knowing your Heavenly Father.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

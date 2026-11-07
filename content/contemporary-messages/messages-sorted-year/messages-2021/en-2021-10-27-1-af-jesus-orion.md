@@ -1,7 +1,7 @@
 ---
 title: "Orion and Jesus ancourage efforts for future publications"
 menu_title: ""
-description: "Orion and Jesus ancourage efforts for future publications"
+description: "Jesus & Orion, received by Al Fike: “Also, your beloved brother Jesus is here. Together, we form a powerful alliance of light and love focusing our efforts …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

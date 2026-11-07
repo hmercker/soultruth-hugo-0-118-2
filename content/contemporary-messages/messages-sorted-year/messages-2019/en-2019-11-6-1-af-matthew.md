@@ -1,7 +1,7 @@
 ---
 title: "Creating Bonds and a Lattice of Light in God's Love"
 menu_title: ""
-description: "Creating Bonds and a Lattice of Light in God's Love"
+description: "Matthew, received by Al Fike: “God is nurturing many souls in the world. He has brought many souls to Light and has a great plan for each one so that they …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

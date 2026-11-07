@@ -1,7 +1,7 @@
 ---
 title: "A Leap of Faith"
 menu_title: ""
-description: "A Leap of Faith"
+description: "Grace Jordan, received by Al Fike: “My dear daughter, you were protected in your fall. Indeed, we would say you are a tough old bird, but a gentle one …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

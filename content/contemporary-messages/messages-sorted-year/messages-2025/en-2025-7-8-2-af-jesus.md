@@ -1,7 +1,7 @@
 ---
 title: "Welcomes Us to the Great Hall of Peace"
 menu_title: ""
-description: "Welcomes Us to the Great Hall of Peace"
+description: "Jesus, received by Al Fike: “Indeed, I welcome you to the Hall of Peace. As you have called me, so I am here.”"
 date: 2025-07-29 07:21:03+11:00
 draft: False
 hidden: True

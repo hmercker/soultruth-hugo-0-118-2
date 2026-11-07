@@ -1,7 +1,7 @@
 ---
 title: "Join the Prayer Party"
 menu_title: ""
-description: "Join the Prayer Party"
+description: "John Hughes, received by Elizabeth Mack: “I wish to thank you all for being here today to lift up your longings to God to receive His blessing of Divine …”"
 date: 2025-07-20 07:21:03+00:00
 draft: False
 hidden: True

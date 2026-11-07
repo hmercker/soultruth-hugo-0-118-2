@@ -1,7 +1,7 @@
 ---
 title: "The Light from Gods great Soul is reaching you"
 menu_title: ""
-description: "The Light from Gods great Soul is reaching you"
+description: "Mylora, received by Al Fike: “The light from God’s great Soul is reaching you, beloveds. It drifts upon these beams of light that touch each one of you and …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

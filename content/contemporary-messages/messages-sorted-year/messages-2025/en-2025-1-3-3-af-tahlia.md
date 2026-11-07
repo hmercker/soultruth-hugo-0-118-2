@@ -1,7 +1,7 @@
 ---
 title: "Ask for Me for Healing Energies"
 menu_title: ""
-description: "Ask for Me for Healing Energies"
+description: "Tahlia, received by Al Fike: “I have great capacities to channel the blessings of Mother Earth and the blessings from our beloved Creator.”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

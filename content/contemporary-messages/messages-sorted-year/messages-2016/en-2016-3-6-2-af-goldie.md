@@ -1,7 +1,7 @@
 ﻿---
 title: "Be together in Love"
 menu_title: ""
-description: "Be together in Love"
+description: "Goldie, received by Al Fike: “Blessings to you, beloveds, and I will continue and endeavor to surprise you whenever I can.”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

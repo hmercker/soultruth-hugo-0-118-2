@@ -1,7 +1,7 @@
 ﻿---
 title: "Follow the Promptings of Your Soul to Seize Opportunities for Service"
 menu_title: ""
-description: "Follow the Promptings of Your Soul to Seize Opportunities for Service"
+description: "Orion, received by Al Fike: “Doors are opening for each one of you, my beloveds. We are working diligently, as are your many friends, working to open …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

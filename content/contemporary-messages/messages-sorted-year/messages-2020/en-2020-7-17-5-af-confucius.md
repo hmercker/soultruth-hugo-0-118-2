@@ -1,7 +1,7 @@
 ---
 title: "Pray for Opportunities and Openings through God's Instruments"
 menu_title: ""
-description: "Pray for Opportunities and Openings through God's Instruments"
+description: "Confucius, received by Al Fike: “Blessings to you, beloved souls. So you will find yourselves upon a journey where are you will meet many who have their …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

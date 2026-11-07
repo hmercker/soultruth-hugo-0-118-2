@@ -1,7 +1,7 @@
 ---
 title: "The Angels' Perspective of Time"
 menu_title: ""
-description: "The Angels' Perspective of Time"
+description: "Matthew, received by Al Fike: “You all feel the ebb and flow of time upon your earthly existence. It governs so much in your life and in your thinking.”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

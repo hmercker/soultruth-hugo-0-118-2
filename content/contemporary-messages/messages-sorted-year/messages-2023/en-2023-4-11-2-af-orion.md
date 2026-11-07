@@ -1,7 +1,7 @@
 ---
 title: "You Will Not Falter"
 menu_title: ""
-description: "You Will Not Falter"
+description: "Orion, received by Al Fike: “A fine line is it not, between your own inner world and to reconcile this with the world around you?”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

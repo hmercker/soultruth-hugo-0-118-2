@@ -1,7 +1,7 @@
 ﻿---
 title: "Every day gives you new Opportunities to make the right Choices"
 menu_title: ""
-description: "Every day gives you new Opportunities to make the right Choices"
+description: "Augustine, received by Al Fike: “Every day is a choice, my beloveds, every day is a choice. And at times you choose a path that leads to pain and at other …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "It Is Time for You to Find Your Purpose and Meet Your Destiny"
 menu_title: ""
-description: "It Is Time for You to Find Your Purpose and Meet Your Destiny"
+description: "Matthew, received by Al Fike: “Indeed, God has imbued within your soul a destiny, a gift, something that you must do in your lives, the expression of …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

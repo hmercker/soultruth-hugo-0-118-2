@@ -1,7 +1,7 @@
 ---
 title: "To Say That You Are Blessed Is Inadequate"
 menu_title: ""
-description: "To Say That You Are Blessed Is Inadequate"
+description: "John the Baptist, received by Elizabeth Mack: “For in truth, your Creator, your Father, is the Source of all things. Giving allegiance, giving your best …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

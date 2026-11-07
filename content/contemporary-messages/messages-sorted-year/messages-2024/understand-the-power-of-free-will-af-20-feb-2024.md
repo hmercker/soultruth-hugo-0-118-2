@@ -1,5 +1,6 @@
 ---
 title: "You Must Come to Understand the Power of Your Free Will"
+description: "Received by Al Fike: “Bless you, beloved friends. For without the exercise of your will nothing can happen, whether it be spiritual or material in this world.”"
 menu_title: "James says You Must Come to Understand the Power of Your Free Will"
 date: 2024-06-03 07:21:03+11:00
 draft: False

@@ -1,7 +1,7 @@
 ﻿---
 title: "You Are Each Crucial to the Transformation Process"
 menu_title: ""
-description: "You Are Each Crucial to the Transformation Process"
+description: "Orion, received by Al Fike: “We continue to make efforts in your individual development and your development as a circle, efforts made to help transform …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

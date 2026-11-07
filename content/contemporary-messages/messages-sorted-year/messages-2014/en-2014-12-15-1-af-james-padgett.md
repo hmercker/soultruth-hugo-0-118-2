@@ -1,7 +1,7 @@
 ﻿---
 title: "God uses many Avenues to bring Truth and Light into the World"
 menu_title: ""
-description: "God uses many Avenues to bring Truth and Light into the World"
+description: "James Padgett, received by Al Fike: “I have been with this instrument as he has been writing his book and I wish to reassure him that the information he …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

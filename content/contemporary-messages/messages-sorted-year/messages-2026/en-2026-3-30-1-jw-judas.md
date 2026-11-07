@@ -1,7 +1,7 @@
 ---
 title: "God will quench the Hunger and the Thirst of every Soul"
 menu_title: ""
-description: "God will quench the Hunger and the Thirst of every Soul"
+description: "Judas, received by Jimbeau Walsh: “You have been asked on several occasions to bring the truths that you have felt in your soul to the world without fear …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

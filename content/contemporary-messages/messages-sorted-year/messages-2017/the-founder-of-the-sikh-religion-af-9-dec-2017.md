@@ -1,7 +1,7 @@
 ---
 title: "Guru Nanak the founder of the Sikh religion"
 menu_title: ""
-description: "Guru Nanak the founder of the Sikh religion"
+description: "Received by Al Fike: “My son, the Lord shines upon you in your efforts. You continue to serve God.”"
 date: 2020-05-04 09:00:37+10:00
 draft: False
 hidden: True

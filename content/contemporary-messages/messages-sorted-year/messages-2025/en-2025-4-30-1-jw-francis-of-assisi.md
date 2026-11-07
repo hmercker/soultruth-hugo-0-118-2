@@ -1,7 +1,7 @@
 ---
 title: "Leave Your Concerns at the Door and Embrace Each Other in God’s Love"
 menu_title: ""
-description: "Leave Your Concerns at the Door and Embrace Each Other in God’s Love"
+description: "Francis of Assisi, received by Jimbeau Walsh: “For each one has a gift to give another. Each one has a story that will uplift another, give them insight …”"
 date: 2025-05-18 07:21:03+00:00
 draft: False
 hidden: True

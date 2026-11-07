@@ -1,7 +1,7 @@
 ---
 title: "God's Love and the Eternal Progresss of the Soul"
 menu_title: ""
-description: "God's Love and the Eternal Progresss of the Soul"
+description: "Seretta Kem, received by Al Fike: “The work of the soul is never complete beloveds, for the soul continues to evolve and progress for all eternity.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

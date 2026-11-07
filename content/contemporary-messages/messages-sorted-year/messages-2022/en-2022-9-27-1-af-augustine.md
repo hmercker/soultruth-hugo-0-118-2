@@ -1,7 +1,7 @@
 ---
 title: "You Will All Enter the Celestial Kingdom"
 menu_title: ""
-description: "You Will All Enter the Celestial Kingdom"
+description: "Augustine, received by Al Fike: “…of God, I am your teacher, Augustine. May you continue to reach for the light and seek the great benediction of God’s …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

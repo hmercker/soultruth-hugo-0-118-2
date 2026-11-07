@@ -1,7 +1,7 @@
 ---
 title: "Lighten up!"
 menu_title: ""
-description: "Lighten up!"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “I came in when you were speaking about me and my life and your feelings about passing over, losing loved ones …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

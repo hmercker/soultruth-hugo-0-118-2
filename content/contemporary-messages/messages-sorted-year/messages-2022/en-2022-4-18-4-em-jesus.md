@@ -1,7 +1,7 @@
 ---
 title: "You Have Sacred Truths Within You"
 menu_title: ""
-description: "You Have Sacred Truths Within You"
+description: "Jesus, received by Elizabeth Mack: “We are gifted to be joining you and blessing you with the Father’s Love. You have a sacred truth within you to share …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "A Little Drama Goes A Long Way"
 menu_title: ""
-description: "A Little Drama Goes A Long Way"
+description: "James Padgett, received by Jimbeau Walsh: “As always, I give my blessing to this work and I am honoured that you have chosen my life and my work as a …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

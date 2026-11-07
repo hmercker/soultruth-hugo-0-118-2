@@ -1,7 +1,7 @@
 ﻿---
 title: "Guided Meditation to the Hall of Peace Followed by Prayer"
 menu_title: ""
-description: "Guided Meditation to the Hall of Peace Followed by Prayer"
+description: "Jesus, received by Al Fike: “Al Fike: Breathe in through your nose and out through your mouth. Feel your body relaxing, sinking deeper into your chairs …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

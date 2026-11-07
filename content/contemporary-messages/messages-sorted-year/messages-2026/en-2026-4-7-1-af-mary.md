@@ -1,7 +1,7 @@
 ﻿---
 title: "Rest in the Embrace of Divine Love and Blessing"
 menu_title: ""
-description: "Rest in the Embrace of Divine Love and Blessing"
+description: "Mary, received by Al Fike: “You may walk in the Light of the Father's Hand upon each one of you, His blessing healing and transforming each of you.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "You Will be Guided and Blessed"
 menu_title: ""
-description: "You Will be Guided and Blessed"
+description: "Augustine, received by Al Fike: “Doors continue to open for you, beloveds. The flow of God’s Love is alive within each of you and in your lives.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

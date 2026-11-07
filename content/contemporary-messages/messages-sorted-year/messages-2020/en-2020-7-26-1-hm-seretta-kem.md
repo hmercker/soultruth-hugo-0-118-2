@@ -1,7 +1,7 @@
 ---
 title: "Awareness of new Life"
 menu_title: ""
-description: "Awareness of new Life"
+description: "Seretta Kem, received by Helge Mercker: “My children, we embrace you in our love. We come to be near and answer your calls for love, support and help.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

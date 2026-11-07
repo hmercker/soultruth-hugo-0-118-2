@@ -1,7 +1,7 @@
 ﻿---
 title: "Uncovering God's Plan – a hidden Treasure"
 menu_title: ""
-description: "Uncovering God's Plan – a hidden Treasure"
+description: "Andrew, received by Al Fike: “You have worked well together, my beloveds. You have come together with intention of Love, to understand one another, and to …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

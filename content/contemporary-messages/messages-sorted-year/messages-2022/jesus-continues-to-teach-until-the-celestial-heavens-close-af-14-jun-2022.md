@@ -1,7 +1,7 @@
 ---
 title: "Jesus Continues to Teach the Truth of God's Divine Love Until the Celestial Kingdom Closes"
 menu_title: ""
-description: "Jesus Continues to Teach the Truth of God's Divine Love Until the Celestial Kingdom Closes"
+description: "Received by Al Fike: “Many places in the world of spirit and upon the earthly plane. For until that great gate to the Celestial Heavens closes, I shall …”"
 date: 2022-06-21 07:21:03+11:00
 draft: False
 hidden: True

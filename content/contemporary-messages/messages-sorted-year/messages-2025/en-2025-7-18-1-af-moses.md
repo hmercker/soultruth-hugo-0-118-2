@@ -1,7 +1,7 @@
 ---
 title: "Keep Your Prayers Simple"
 menu_title: ""
-description: "Keep Your Prayers Simple"
+description: "Moses, received by Al Fike: “May the blessings of our beloved God be upon you. You carry the banner of Truth, which is the gift of Divine Love given to …”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

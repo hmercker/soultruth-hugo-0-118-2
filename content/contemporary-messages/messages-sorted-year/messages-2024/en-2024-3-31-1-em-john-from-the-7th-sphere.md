@@ -1,7 +1,7 @@
 ---
 title: "Thank You for Inviting Us to Pray with You"
 menu_title: ""
-description: "Thank You for Inviting Us to Pray with You"
+description: "John, from the 7th Sphere, received by Elizabeth Mack: “I anxiously await your arrival into these upper spheres and into the Celestial Heavens where I hope …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

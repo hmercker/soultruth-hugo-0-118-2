@@ -1,7 +1,7 @@
 ﻿---
 title: "Go to God for Those who don’t go to God"
 menu_title: ""
-description: "Go to God for Those who don’t go to God"
+description: "Judas, received by Jimbeau Walsh: “May the peace of God’s love be upon you all in these times of change, great disruption, and upheaval as the balance of …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

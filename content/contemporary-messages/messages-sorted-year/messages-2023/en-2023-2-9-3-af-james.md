@@ -1,7 +1,7 @@
 ---
 title: "Continue Your Efforts to Share the Truth"
 menu_title: ""
-description: "Continue Your Efforts to Share the Truth"
+description: "James, received by Al Fike: “You speak of the ways and means you may inform others of this truth. Each of you who has been touched by this truth of God’s …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

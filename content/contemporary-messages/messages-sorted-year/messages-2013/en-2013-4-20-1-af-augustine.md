@@ -1,7 +1,7 @@
 ﻿---
 title: "Come to know yourselves"
 menu_title: ""
-description: "Come to know yourselves"
+description: "Augustine, received by Al Fike: “...grows in your midst, my children It is Augustine, your teacher. And yes, you will draw many, and there will be many …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

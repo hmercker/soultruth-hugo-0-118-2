@@ -1,7 +1,7 @@
 ---
 title: "Guidance for the DLSF Board Meeting "
 menu_title: ""
-description: "Guidance for the DLSF Board Meeting "
+description: "Andrew & Goldie, received by Al Fike: “These truths must reach the world. Indeed, you are being instruments and facilitating that dispersion of truth into …”"
 date: 2025-04-02 07:21:03+11:00
 draft: False
 hidden: True

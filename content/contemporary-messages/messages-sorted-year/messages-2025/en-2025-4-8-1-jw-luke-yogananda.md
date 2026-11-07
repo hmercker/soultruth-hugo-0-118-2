@@ -1,7 +1,7 @@
 ---
 title: "Give the Gift of Prayer for God’s love"
 menu_title: ""
-description: "Give the Gift of Prayer for God’s love"
+description: "Luke & Yogananda, received by Jimbeau Walsh: “May the breath of God’s love be upon you. (You may ask) how do we heal the world?”"
 date: 2025-04-15 07:21:03+11:00
 draft: False
 hidden: True

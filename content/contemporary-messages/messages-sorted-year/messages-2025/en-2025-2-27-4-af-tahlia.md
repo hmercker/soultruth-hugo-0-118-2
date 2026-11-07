@@ -1,7 +1,7 @@
 ---
 title: "Examine Your Mindful Distortions Before You Claim to be Instruments of God"
 menu_title: ""
-description: "Examine Your Mindful Distortions Before You Claim to be Instruments of God"
+description: "Tahlia, received by Al Fike: “You need to be strong, beloved souls. You need to be forthright.”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

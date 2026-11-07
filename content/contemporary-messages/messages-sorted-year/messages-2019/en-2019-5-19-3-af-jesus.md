@@ -1,7 +1,7 @@
 ---
 title: "Blessed are Those Who Seek to Serve God in Love"
 menu_title: ""
-description: "Blessed are Those Who Seek to Serve God in Love"
+description: "Jesus, received by Al Fike: “May God’s Love find its benediction upon your soul, beloveds. God has His Hand upon each one of you, beloveds.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

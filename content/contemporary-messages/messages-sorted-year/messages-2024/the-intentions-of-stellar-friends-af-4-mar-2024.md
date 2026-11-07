@@ -1,7 +1,7 @@
 ---
 title: "Orion Introduces Himself and The Intentions of Stellar Friends to Help Us Through the Transformation of the World"
 menu_title: ""
-description: "Orion Introduces Himself and The Intentions of Stellar Friends to Help Us Through the Transformation of the World"
+description: "Received by Al Fike: “Indeed, I fit that description, I do not belong to this planet. Yet I am truly your brother, truly part of God’s great creation of …”"
 date: 2024-05-22 07:21:03+11:00
 draft: False
 hidden: True

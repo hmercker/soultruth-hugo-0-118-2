@@ -1,7 +1,7 @@
 ---
 title: "Brings Reassurance to Online Circle of Light About Blessings to Come with Earth Changes"
 menu_title: ""
-description: "Brings Reassurance to Online Circle of Light About Blessings to Come with Earth Changes"
+description: "Orion, received by Al Fike: “May you be blessed with a great inflowing of the Father's Love, this universal blessing that is available to all souls who …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

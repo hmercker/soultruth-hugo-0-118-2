@@ -1,7 +1,7 @@
 ---
 title: "Bring God’s Will into Everything You Do"
 menu_title: ""
-description: "Bring God’s Will into Everything You Do"
+description: "Prof Salyards, received by Al Fike: “Indeed, there is much to be done and my only concern about your approach is that you may get bogged down in the …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

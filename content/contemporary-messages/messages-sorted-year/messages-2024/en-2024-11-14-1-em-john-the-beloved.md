@@ -1,7 +1,7 @@
 ---
 title: "Living the Truth of Divine Love"
 menu_title: ""
-description: "Living the Truth of Divine Love"
+description: "John the Beloved, received by Elizabeth Mack: “It will look different for each of because each of you is a unique soul but guided by this love that is your …”"
 date: 2025-03-20 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Listening to the small still voice of God"
 menu_title: ""
-description: "Listening to the small still voice of God"
+description: "Jesus, received by Jimbeau Walsh: “For whatever considerations have brought you to this place, this gathering of beautiful and sincere souls brings the …”"
 date: 2025-07-22 07:21:03+00:00
 draft: False
 hidden: True

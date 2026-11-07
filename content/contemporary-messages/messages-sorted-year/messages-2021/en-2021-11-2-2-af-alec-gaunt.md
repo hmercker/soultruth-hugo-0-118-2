@@ -1,7 +1,7 @@
 ---
 title: "Comes to Reinforce the Message from Jesus that We are All Needed"
 menu_title: ""
-description: "Comes to Reinforce the Message from Jesus that We are All Needed"
+description: "Alec Gaunt, received by Al Fike: “…to you, my beautiful friends, souls who carry the Truth of the Father’s Love within them.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

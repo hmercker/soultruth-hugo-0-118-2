@@ -1,7 +1,7 @@
 ﻿---
 title: "Knowledge of the Mind will never bring Insight of the Soul"
 menu_title: ""
-description: "Knowledge of the Mind will never bring Insight of the Soul"
+description: "Confucius, received by Al Fike: “God’s Love flows into her beautiful and pure soul as it does for all of you, my children. As you pray for this blessing …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

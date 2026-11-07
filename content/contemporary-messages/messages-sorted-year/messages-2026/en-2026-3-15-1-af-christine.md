@@ -1,7 +1,7 @@
 ---
 title: "Brothers and Sisters in the Universe "
 menu_title: ""
-description: "Brothers and Sisters in the Universe "
+description: "Christine, received by Al Fike: “When I say I am a long way, I mean a very long way, another planet, far beyond the reaches of your telescopes and …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "God Brings You Gifts to Benefit Humanity"
 menu_title: ""
-description: "God Brings You Gifts to Benefit Humanity"
+description: "Andrew, received by Al Fike: “…God’s Love pulses towards you beloved souls. As you open yourselves to this Gift, so God pours His Nourishment through the …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

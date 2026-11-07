@@ -1,7 +1,7 @@
 ---
 title: "Be JOYFUL in the Blessing of God’s Love!"
 menu_title: ""
-description: "Be JOYFUL in the Blessing of God’s Love!"
+description: "Goldie, received by Al Fike: “I want to encourage you to have fun in your life for joy is an element of life that is often neglected by people.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

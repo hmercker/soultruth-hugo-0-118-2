@@ -1,7 +1,7 @@
 ﻿---
 title: "Feeding the Soul"
 menu_title: ""
-description: "Feeding the Soul"
+description: "Francis of Assisi, received by Al Fike: “And I am your guide, my son. You must pray fervently to God to guide you and open your sensibilities that you may …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

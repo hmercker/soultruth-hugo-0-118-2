@@ -1,7 +1,7 @@
 ---
 title: "Revelations Pour Upon You!"
 menu_title: ""
-description: "Revelations Pour Upon You!"
+description: "Elijah, received by Al Fike: “The time of revelations comes, my friends. These revelations are building.”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

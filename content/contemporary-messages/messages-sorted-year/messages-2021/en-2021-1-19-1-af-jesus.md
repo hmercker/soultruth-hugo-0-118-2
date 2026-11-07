@@ -1,7 +1,7 @@
 ---
 title: "Have Faith That God Is Guiding"
 menu_title: ""
-description: "Have Faith That God Is Guiding"
+description: "Jesus, received by Al Fike: “Beautiful souls that you are, bright in the Father’s Love, so your dedications to one another are important and I would urge …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

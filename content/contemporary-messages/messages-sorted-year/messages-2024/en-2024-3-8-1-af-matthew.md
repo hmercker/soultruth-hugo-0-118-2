@@ -1,7 +1,7 @@
 ---
 title: "Introduces Himself as Another Guide of Peter's"
 menu_title: ""
-description: "Introduces Himself as Another Guide of Peter's"
+description: "Matthew, received by Al Fike: “May the Holy Spirit continue to visit each of you, that you may receive the great gift of God’s Love into your soul.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

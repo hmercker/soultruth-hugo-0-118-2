@@ -1,7 +1,7 @@
 ---
 title: "Mary comes on the Beams of Light of Your Song"
 menu_title: ""
-description: "Mary comes on the Beams of Light of Your Song"
+description: "Received by Al Fike: “Bless you, beloved souls, I am Mary. As such, with this unity that you create, this resonance of longing, God is here, His Holy …”"
 date: 2023-09-04 07:21:03+11:00
 draft: False
 hidden: True

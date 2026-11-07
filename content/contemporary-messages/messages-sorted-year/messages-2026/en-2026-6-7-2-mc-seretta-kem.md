@@ -1,7 +1,7 @@
 ﻿---
 title: "The Law of Rapport and Communication and Preparing for Times Ahead"
 menu_title: ""
-description: "The Law of Rapport and Communication and Preparing for Times Ahead"
+description: "Seretta Kem, received by Maureen Cardoso: “She too requires those who are acting in harmony because it helps to support her and her recovery, coming into …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "You Cannot Imagine What is Coming"
 menu_title: ""
-description: "You Cannot Imagine What is Coming"
+description: "Confucius, received by Al Fike: “May the power of God’s Love continue to awaken your soul, beloveds, and carry you into the light, into the beautiful light …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

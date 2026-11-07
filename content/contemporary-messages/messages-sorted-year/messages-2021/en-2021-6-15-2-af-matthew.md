@@ -1,7 +1,7 @@
 ---
 title: "Continue to Seek Soul Consciousness"
 menu_title: ""
-description: "Continue to Seek Soul Consciousness"
+description: "Matthew, received by Al Fike: “The world of man is a world filled with deception and error. The world that you have built, the reality that humanity has …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

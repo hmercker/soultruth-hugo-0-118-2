@@ -1,7 +1,7 @@
 ---
 title: "This is the Way"
 menu_title: ""
-description: "This is the Way"
+description: "Judas, received by Jimbeau Walsh: “My brothers and sisters, we are in a time of great change, and I tell you something you not already know and perceive …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

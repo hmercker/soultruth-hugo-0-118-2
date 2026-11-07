@@ -1,5 +1,6 @@
 ---
 title: "You are Links in the Legacy"
+description: "Received by Al Fike: “What a privilege and honour it is to speak to you. Yet, look what God could accomplish through me.”"
 menu_title: "James Padgett says You are Links in the Legacy"
 date: 2024-11-19 07:21:03+11:00
 draft: False

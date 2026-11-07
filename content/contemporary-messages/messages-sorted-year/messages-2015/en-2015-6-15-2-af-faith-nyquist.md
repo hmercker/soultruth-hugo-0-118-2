@@ -1,7 +1,7 @@
 ﻿---
 title: "Walk in the Light and be the Beacon of Light despite the daily Challenges"
 menu_title: ""
-description: "Walk in the Light and be the Beacon of Light despite the daily Challenges"
+description: "Faith Nyquist, received by Al Fike: “Reach for Love in all things that you do, my beloveds. Seek to know God’s guidance and Will in all things that you do …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

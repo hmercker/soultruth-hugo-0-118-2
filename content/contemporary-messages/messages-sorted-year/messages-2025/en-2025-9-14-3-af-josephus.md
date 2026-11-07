@@ -1,7 +1,7 @@
 ---
 title: "Soul Development Will Bring You to a True Understanding of God and Spirituality"
 menu_title: ""
-description: "Soul Development Will Bring You to a True Understanding of God and Spirituality"
+description: "Josephus, received by Al Fike: “While I walked the Earth, I was an orator, philosopher, and writer. I used my mind extensively to understand the ways of …”"
 date: 2025-11-02 06:00:00+00:00
 draft: False
 hidden: True

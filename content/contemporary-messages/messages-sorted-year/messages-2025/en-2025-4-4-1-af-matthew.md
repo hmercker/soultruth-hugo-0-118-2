@@ -1,7 +1,7 @@
 ---
 title: "Discerning Guidance in Making Every Day Decisions"
 menu_title: ""
-description: "Discerning Guidance in Making Every Day Decisions"
+description: "Matthew, received by Al Fike: “If you allow me to use the allegory of an individual walking along a rather meagre path in the dark as God lights the way in …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

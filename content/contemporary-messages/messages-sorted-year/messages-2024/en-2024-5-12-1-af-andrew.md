@@ -1,7 +1,7 @@
 ---
 title: "Acknowledges Earth Changes and the Difference Women/Mothers Love Has Had in the World"
 menu_title: ""
-description: "Acknowledges Earth Changes and the Difference Women/Mothers Love Has Had in the World"
+description: "Andrew, received by Al Fike: “So it is less difficult for me. I want you to know that Jesus is praying with you, beloveds, that many angels are praying …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

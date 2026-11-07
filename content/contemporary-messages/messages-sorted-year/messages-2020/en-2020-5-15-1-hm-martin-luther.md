@@ -1,7 +1,7 @@
 ---
 title: "Knowledge of Truth"
 menu_title: ""
-description: "Knowledge of Truth"
+description: "Martin Luther, received by Helge Mercker: “Through the blessings of intuitive knowing comes the expression of that, which is in greater alignment with the …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

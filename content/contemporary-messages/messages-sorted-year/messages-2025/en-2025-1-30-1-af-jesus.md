@@ -1,7 +1,7 @@
 ---
 title: "Emphasises the Importance of Our Work to His Ministry"
 menu_title: ""
-description: "Emphasises the Importance of Our Work to His Ministry"
+description: "Jesus, received by Al Fike: “I want you to know that I am close, that I am there to help support you, to help guide you and bless you.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

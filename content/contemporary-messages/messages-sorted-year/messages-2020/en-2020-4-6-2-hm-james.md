@@ -1,7 +1,7 @@
 ---
 title: "Welcome Greeting to Mediumship Group"
 menu_title: ""
-description: "Welcome Greeting to Mediumship Group"
+description: "James, received by Helge Mercker: “It was our siesta time which is very peaceful and quiet (esp. during lockdown). We usually lay down to rest and it is a …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "I come to bless this Place"
 menu_title: ""
-description: "I come to bless this Place"
+description: "Jesus, received by Al Fike: “For where His Love is, I am there also, I am His channel of Love, I am His messenger of Love.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

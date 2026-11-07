@@ -1,7 +1,7 @@
 ﻿---
 title: "A Single Step on the Endless Journey"
 menu_title: ""
-description: "A Single Step on the Endless Journey"
+description: "Lao Tzu, received by Jimbeau Walsh: “The words most commonly associated with me, and my writings are these: \"The journey of a thousand miles begins with a …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

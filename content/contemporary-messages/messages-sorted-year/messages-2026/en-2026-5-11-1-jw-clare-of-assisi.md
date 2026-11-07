@@ -1,7 +1,7 @@
 ﻿---
 title: "Attachments"
 menu_title: ""
-description: "Attachments"
+description: "Clare of Assisi, received by Jimbeau Walsh: “May the breath of God be upon you in His holy presence. So many souls are coming over into spirit, having no …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

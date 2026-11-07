@@ -1,7 +1,7 @@
 ﻿---
 title: "Your Efforts will assist you as the Changes in the World come to pass"
 menu_title: ""
-description: "Your Efforts will assist you as the Changes in the World come to pass"
+description: "Alec Gaunt, received by Al Fike: “And now you come to a great crossroads, a time of reckoning where all this preparation, all of the changes within you …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

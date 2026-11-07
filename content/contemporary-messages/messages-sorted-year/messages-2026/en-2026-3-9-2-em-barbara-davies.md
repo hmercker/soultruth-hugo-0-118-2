@@ -1,7 +1,7 @@
 ﻿---
 title: "This Is a Time of Harvest"
 menu_title: ""
-description: "This Is a Time of Harvest"
+description: "Barbara Davies, received by Elizabeth Mack: “I live in the Celestial Heavens and you know me well. You have sought out a Celestial Angel to come and speak.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

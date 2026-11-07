@@ -1,7 +1,7 @@
 ---
 title: "Creating Sanctuary begins with one small Step"
 menu_title: ""
-description: "Creating Sanctuary begins with one small Step"
+description: "Eileen Caddy & Francis of Assisi, received by Jimbeau Walsh: “Eileen: I am here, Eileen, your sister and friend, in God’s love, and an inhabitant of the …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

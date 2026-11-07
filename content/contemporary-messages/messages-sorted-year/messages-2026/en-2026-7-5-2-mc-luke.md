@@ -1,7 +1,7 @@
 ﻿---
 title: "God's Love Will Awaken Greater Soul Desire & Receptivity"
 menu_title: ""
-description: "God's Love Will Awaken Greater Soul Desire & Receptivity"
+description: "Luke, received by Maureen Cardoso: “The road ahead is filled with absolute wonderment, peace and joy, a union with God that is growing within each one of you.”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

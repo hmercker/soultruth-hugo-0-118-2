@@ -1,7 +1,7 @@
 ﻿---
 title: "This Truth Gives You the Opportunity to Change Your Perspective on Life"
 menu_title: ""
-description: "This Truth Gives You the Opportunity to Change Your Perspective on Life"
+description: "Augustine, received by Al Fike: “The gate is open to you, beloved souls. You have before you, in these moments together, the opportunity to change your …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

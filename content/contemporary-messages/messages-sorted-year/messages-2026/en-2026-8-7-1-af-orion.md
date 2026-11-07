@@ -1,7 +1,7 @@
 ﻿---
 title: "True Instrumentality Requires Fearlessness and Faith"
 menu_title: ""
-description: "True Instrumentality Requires Fearlessness and Faith"
+description: "Orion, received by Al Fike: “We see this within you and within all of humanity, the separation between the consciousness of soul and the consciousness of …”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

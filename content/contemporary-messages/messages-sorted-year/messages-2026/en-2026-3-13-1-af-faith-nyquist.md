@@ -1,7 +1,7 @@
 ---
 title: "Called to Serve: Walking the Path of Love"
 menu_title: ""
-description: "Called to Serve: Walking the Path of Love"
+description: "Faith Nyquist, received by Al Fike: “Oh, there is so much work to do in your world, so many cross-currents of thought and action that are not in harmony …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

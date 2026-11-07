@@ -1,7 +1,7 @@
 ---
 title: "Bring Forth the Truth of God's Love"
 menu_title: ""
-description: "Bring Forth the Truth of God's Love"
+description: "Matthew, received by Al Fike: “As your social interaction decreases, the spiritual landscape widens. The possibilities of soul-to-soul communication and …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

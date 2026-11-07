@@ -1,7 +1,7 @@
 ---
 title: "Your Joy and Divine Love in Your Souls Touches All Those Around You!"
 menu_title: ""
-description: "Your Joy and Divine Love in Your Souls Touches All Those Around You!"
+description: "Alec Gaunt, received by Al Fike: “Your sharing is expressing the love with which God has imbued you with and it extends outward to all those souls in your …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "We Are All Needed"
 menu_title: ""
-description: "We Are All Needed"
+description: "Augustine, received by Al Fike: “As you continue to dedicate yourselves as you do in prayer and be together as you are in love, can you conceive of the …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

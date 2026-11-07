@@ -1,7 +1,7 @@
 ---
 title: "Allow Others to Join You"
 menu_title: ""
-description: "Allow Others to Join You"
+description: "Alec Gaunt, received by Maureen Cardoso: “I wish you to know that I have been with you while you have been gathered over these past couple of days in …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

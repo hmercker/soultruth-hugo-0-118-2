@@ -1,7 +1,7 @@
 ﻿---
 title: "One step at a Time"
 menu_title: ""
-description: "One step at a Time"
+description: "Keea Atta Kem, received by Al Fike: “The dear soul you have been with in times past, she is in need of your prayers. As you make this contact with others …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

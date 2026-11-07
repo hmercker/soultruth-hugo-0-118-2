@@ -1,7 +1,7 @@
 ﻿---
 title: "A new Self emerges"
 menu_title: ""
-description: "A new Self emerges"
+description: "Faith Nyquist, received by Al Fike: “Such beautiful souls who come together faithfully and come to drink from these living waters of God’s Love, who come …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

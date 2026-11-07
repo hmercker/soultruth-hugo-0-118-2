@@ -1,7 +1,7 @@
 ---
 title: "You Inhabit a Place Where We May Speak and Many Can Hear"
 menu_title: ""
-description: "You Inhabit a Place Where We May Speak and Many Can Hear"
+description: "Andrew, received by Al Fike: “You embark on quite a journey together, beloved friends. The souls are already gathering in this place.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

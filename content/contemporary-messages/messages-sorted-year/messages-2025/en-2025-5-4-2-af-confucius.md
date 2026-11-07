@@ -1,7 +1,7 @@
 ---
 title: "Be True to Your Soul's Longings and Make the Most of this Time Together"
 menu_title: ""
-description: "Be True to Your Soul's Longings and Make the Most of this Time Together"
+description: "Confucius, received by Al Fike: “Little birds, I am Confucius. I advise you to make good time together, to be spiritual in your thoughts and your …”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

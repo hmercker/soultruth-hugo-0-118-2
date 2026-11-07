@@ -1,7 +1,7 @@
 ---
 title: "Forewarns the DV Dozen of What Is to Come"
 menu_title: ""
-description: "Forewarns the DV Dozen of What Is to Come"
+description: "Orion, received by Al Fike: “Your world is on the verge of great storms, my friends. Conditions are intensifying.”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

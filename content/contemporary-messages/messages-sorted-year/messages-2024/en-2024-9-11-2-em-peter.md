@@ -1,7 +1,7 @@
 ---
 title: "You'll Be Delighted!!"
 menu_title: ""
-description: "You'll Be Delighted!!"
+description: "Peter, received by Elizabeth Mack: “The preparations are well underway. We angels are prepared to serve our brothers and sisters who are arriving and who …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

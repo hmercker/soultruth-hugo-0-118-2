@@ -1,7 +1,7 @@
 ---
 title: "The Ways of the World and The Way of Divine Love"
 menu_title: ""
-description: "The Ways of the World and The Way of Divine Love"
+description: "Yogananda, received by Jimbeau Walsh: “Looking out over the material world with discernment and in prayer, one can easily see the concerns of most, though …”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

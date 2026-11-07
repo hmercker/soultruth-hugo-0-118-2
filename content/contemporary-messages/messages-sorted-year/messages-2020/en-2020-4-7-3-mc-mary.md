@@ -1,7 +1,7 @@
 ---
 title: "Please Pray for Those Isolated, Alone, and Less Fortunate"
 menu_title: ""
-description: "Please Pray for Those Isolated, Alone, and Less Fortunate"
+description: "Mary, received by Maureen Cardoso: “I bring my blessing of love and the tenderness that my heart has for each and every one of you.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

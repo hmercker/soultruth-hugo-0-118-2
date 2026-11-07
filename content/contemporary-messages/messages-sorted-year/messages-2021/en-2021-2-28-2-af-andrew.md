@@ -1,7 +1,7 @@
 ---
 title: "We are all needed as part of God's plan"
 menu_title: ""
-description: "We are all needed as part of God's plan"
+description: "Andrew, received by Al Fike: “Today we are doing something somewhat different from our usual gatherings together, uniting you together in a condition of …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

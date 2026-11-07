@@ -1,7 +1,7 @@
 ---
 title: "Your Prayers Together Create a Light that Goes out In Every Direction"
 menu_title: ""
-description: "Your Prayers Together Create a Light that Goes out In Every Direction"
+description: "Abdul Latif, received by Al Fike: “She has much to share and we have much to say to assist her upon her journey. She does not realise the very power that …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

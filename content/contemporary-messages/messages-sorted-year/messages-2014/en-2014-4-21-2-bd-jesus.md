@@ -1,7 +1,7 @@
 ﻿---
 title: "Each of you are needed and loved"
 menu_title: ""
-description: "Each of you are needed and loved"
+description: "Jesus, received by Barbara Davies: “You are deeply needed, beloveds, deeply needed in your world to bring the peace and joy and understanding to all the …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

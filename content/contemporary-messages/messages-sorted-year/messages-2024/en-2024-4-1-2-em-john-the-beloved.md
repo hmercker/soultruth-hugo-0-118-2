@@ -1,7 +1,7 @@
 ---
 title: "Continuous Praying"
 menu_title: ""
-description: "Continuous Praying"
+description: "John the Beloved, received by Elizabeth Mack: “For I have a message for my beloved brothers and sisters who are upon this path of Divine Love.”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

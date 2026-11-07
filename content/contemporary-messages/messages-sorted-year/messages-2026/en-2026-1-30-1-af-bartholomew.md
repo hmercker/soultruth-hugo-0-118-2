@@ -1,7 +1,7 @@
 ---
 title: "Welcome to Trinidad"
 menu_title: ""
-description: "Welcome to Trinidad"
+description: "Bartholomew, received by Al Fike: “Welcome to this place, this island, these people. God's children reside here, as they do everywhere.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

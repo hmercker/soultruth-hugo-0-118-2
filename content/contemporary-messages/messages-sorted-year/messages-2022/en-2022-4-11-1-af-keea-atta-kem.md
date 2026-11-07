@@ -1,7 +1,7 @@
 ---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Keea Atta Kem, received by Al Fike: “I bring to each of you a blessing of healing, an upliftment of light, that you will feel a lightness in your body and …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

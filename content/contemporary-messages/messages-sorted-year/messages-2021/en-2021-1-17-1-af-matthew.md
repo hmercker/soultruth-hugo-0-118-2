@@ -1,7 +1,7 @@
 ---
 title: "Use the Power of Prayer"
 menu_title: ""
-description: "Use the Power of Prayer"
+description: "Matthew, received by Al Fike: “…Love flow into your soul, beautiful and beloved friends, I am Matthew. And as the great change comes upon your world, so …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

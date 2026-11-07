@@ -1,7 +1,7 @@
 ---
 title: "Open Your Souls to the Inflowing of Divine Love"
 menu_title: ""
-description: "Open Your Souls to the Inflowing of Divine Love"
+description: "Jesus, received by Al Fike: “My brothers and sisters, open yourselves as you have been guided to open your soul and to feel the resonance of your soul and …”"
 date: 2025-06-18 00:00:00+00:00
 draft: False
 hidden: True

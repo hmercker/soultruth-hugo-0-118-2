@@ -1,7 +1,7 @@
 ﻿---
 title: "Release the Yoke of Error and lack of Self Love"
 menu_title: ""
-description: "Release the Yoke of Error and lack of Self Love"
+description: "John the Beloved, received by Al Fike: “Blessings of Love to you, my beloved dear children, who seek Truth and desire to live by the precepts of God’s Love.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

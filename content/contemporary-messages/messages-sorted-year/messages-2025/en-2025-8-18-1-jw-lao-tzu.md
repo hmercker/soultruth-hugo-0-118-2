@@ -1,7 +1,7 @@
 ---
 title: "You have touched on Immortality"
 menu_title: ""
-description: "You have touched on Immortality"
+description: "Lao Tzu, received by Jimbeau Walsh: “May the love of God and the joys of heaven be with you all. We met while on earth, and I would say he was a mentor to …”"
 date: 2025-08-28 07:21:03+00:00
 draft: False
 hidden: True

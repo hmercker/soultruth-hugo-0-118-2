@@ -1,7 +1,7 @@
 ---
 title: "You Will Find Your Way to God"
 menu_title: ""
-description: "You Will Find Your Way to God"
+description: "Jesus, received by Al Fike: “Your brother and friend, Jesus, is here with you, as I have been with every day. Your souls long for this gift of the Father's …”"
 date: 2025-05-30 07:21:03+11:00
 draft: False
 hidden: True

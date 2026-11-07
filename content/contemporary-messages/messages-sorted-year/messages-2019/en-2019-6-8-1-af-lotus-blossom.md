@@ -1,7 +1,7 @@
 ---
 title: "Many Travels Lie Ahead"
 menu_title: ""
-description: "Many Travels Lie Ahead"
+description: "Lotus Blossom, received by Al Fike: “We continue to heal and build your strength, beloved souls, each of you. As you are engaged in your work, you need …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

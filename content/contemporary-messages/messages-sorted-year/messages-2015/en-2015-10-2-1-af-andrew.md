@@ -1,7 +1,7 @@
 ﻿---
 title: "Do not allow your Anxieties to cloud your pure Intentions"
 menu_title: ""
-description: "Do not allow your Anxieties to cloud your pure Intentions"
+description: "Andrew, received by Al Fike: “I have been with you in your conversations, your discussions and your concerns and anxieties.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

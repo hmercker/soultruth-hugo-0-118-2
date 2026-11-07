@@ -1,7 +1,7 @@
 ---
 title: "Love, Wisdom, and Encouragement"
 menu_title: ""
-description: "Love, Wisdom, and Encouragement"
+description: "Faith Nyquist, received by Maureen Cardoso: “You have felt my promptings, my promptings for you to sit in prayer. For I wish to share a message and …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

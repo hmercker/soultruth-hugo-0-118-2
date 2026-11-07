@@ -1,7 +1,7 @@
 ---
 title: "The Law of Give and Receive"
 menu_title: ""
-description: "The Law of Give and Receive"
+description: "Mylora, received by Maureen Cardoso: “I have not spoken through this instrument before and I thank her for being willing to receive my presence and the …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

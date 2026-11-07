@@ -1,7 +1,7 @@
 ---
 title: "Lesson on Understanding Truth"
 menu_title: ""
-description: "Lesson on Understanding Truth"
+description: "John the Beloved, received by Elizabeth Mack: “(I am one with my) Father. Each step contains the truth for you to absorb, to take in and relinquish those …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

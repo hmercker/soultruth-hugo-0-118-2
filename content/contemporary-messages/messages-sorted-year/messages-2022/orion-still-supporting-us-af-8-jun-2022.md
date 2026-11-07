@@ -1,7 +1,7 @@
 ---
 title: "Orion is Still With Us, Supporting Us"
 menu_title: ""
-description: "Orion is Still With Us, Supporting Us"
+description: "Received by Al Fike: “Oh beloved brothers and sisters, I am Orion. Your efforts are not lost but continue to help awaken humanity.”"
 date: 2022-06-21 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Trust in your Father and His Will"
 menu_title: ""
-description: "Trust in your Father and His Will"
+description: "Jesus, received by Al Fike: “Blessed are you who bring love into your hearts. Blessed are you who express love in all that you do in your lives and all …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

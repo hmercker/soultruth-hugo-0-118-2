@@ -1,7 +1,7 @@
 ---
 title: "There are Many Ways to Feel the Presence of Angels"
 menu_title: ""
-description: "There are Many Ways to Feel the Presence of Angels"
+description: "Seretta Kem, received by Al Fike: “There are many ways that you may feel our presence. There are many signals and experiences that you will have as a …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

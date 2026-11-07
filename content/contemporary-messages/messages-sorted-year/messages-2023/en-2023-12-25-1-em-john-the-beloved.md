@@ -1,7 +1,7 @@
 ---
 title: "Pray for Those Who Are Still Closed"
 menu_title: ""
-description: "Pray for Those Who Are Still Closed"
+description: "John the Beloved, received by Elizabeth Mack: “I seek to remain with you throughout this prayer to uplift you all, to bring to you the message of peace …”"
 date: 2025-07-22 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "More on Preparing for Earth Changes in Times to Come"
 menu_title: ""
-description: "More on Preparing for Earth Changes in Times to Come"
+description: "Professor Salyards, received by Al Fike: “Blessings to you all, my friends, I am Professor Salyards. May the blessing of God’s Love continue to awaken you …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

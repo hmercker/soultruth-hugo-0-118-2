@@ -1,7 +1,7 @@
 ﻿---
 title: "Every Step you take brings Opportunity into your Lives"
 menu_title: ""
-description: "Every Step you take brings Opportunity into your Lives"
+description: "Alec Gaunt, received by Al Fike: “Every step you take, my friends, brings opportunity into your lives, and every prayer you make, my friends, brings …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

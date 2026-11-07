@@ -1,7 +1,7 @@
 ---
 title: "Your Purpose and Destiny"
 menu_title: ""
-description: "Your Purpose and Destiny"
+description: "Jesus, received by Al Fike: “… children, your soul’s created unique, precious and beautiful. As they walk upon this earthly plane, may they come to …”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "You Carry Profound Truth in Your Soul"
 menu_title: ""
-description: "You Carry Profound Truth in Your Soul"
+description: "Augustine, received by Al Fike: “Each of you carries the truth within you. That truth motivates and prompts you to come together in prayer.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

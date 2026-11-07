@@ -1,7 +1,7 @@
 ---
 title: "Harmonizing of Your Prayers Make Great Light"
 menu_title: ""
-description: "Harmonizing of Your Prayers Make Great Light"
+description: "Keea Atta Kem, received by Al Fike: “Harmonisation of your prayers together makes a great light in the world. As you come closer in mind and intention, as …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

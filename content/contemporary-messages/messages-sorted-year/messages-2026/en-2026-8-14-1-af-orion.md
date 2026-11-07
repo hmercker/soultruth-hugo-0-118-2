@@ -1,7 +1,7 @@
 ﻿---
 title: "Wondrous Things Will Come About Once You Are Completely Attuned to the Will of God"
 menu_title: ""
-description: "Wondrous Things Will Come About Once You Are Completely Attuned to the Will of God"
+description: "Orion, received by Al Fike: “You often face the dilemma of acting upon your guidance, of acting upon God's Will. The most comfortable position for you is …”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

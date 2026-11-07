@@ -1,7 +1,7 @@
 ---
 title: "Open Yourselves to the Changes God Intends for You"
 menu_title: ""
-description: "Open Yourselves to the Changes God Intends for You"
+description: "Bartholomew, received by Al Fike: “I will continue to come and be by his side as he makes great leaps and bounds towards light and love everlasting.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

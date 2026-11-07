@@ -1,7 +1,7 @@
 ---
 title: "Praying for the World, Especially the World Healing Center"
 menu_title: ""
-description: "Praying for the World, Especially the World Healing Center"
+description: "Faith Nyquist, received by Al Fike: “The peace that surpasses all understanding be with you, my beloved brothers and sisters. I thank you, my sister, for …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

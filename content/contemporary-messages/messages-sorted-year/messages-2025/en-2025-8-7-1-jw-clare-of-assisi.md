@@ -1,7 +1,7 @@
 ---
 title: "Worry and Concern"
 menu_title: ""
-description: "Worry and Concern"
+description: "Clare of Assisi, received by Jimbeau Walsh: “How wonderful it is to come and speak to you. And I wish to tell you I wish to tell you that I’m with my dear …”"
 date: 2025-08-10 07:21:03+00:00
 draft: False
 hidden: True

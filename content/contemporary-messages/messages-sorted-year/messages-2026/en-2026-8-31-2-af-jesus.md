@@ -1,7 +1,7 @@
 ﻿---
 title: "Obstructions of the Spirit and Soul"
 menu_title: ""
-description: "Obstructions of the Spirit and Soul"
+description: "Jesus, received by Al Fike: “Indeed, angels are with you and accompany you along this path and God lights the way for each of you, though it may not seem …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

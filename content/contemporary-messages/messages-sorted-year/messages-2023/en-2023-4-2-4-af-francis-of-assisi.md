@@ -1,7 +1,7 @@
 ---
 title: "Love the World"
 menu_title: ""
-description: "Love the World"
+description: "Francis of Assisi, received by Al Fike: “I merely wish to encourage you to love the world. For many of you, it is spring emerging.”"
 date: 2025-04-17 07:21:03+11:00
 draft: False
 hidden: True

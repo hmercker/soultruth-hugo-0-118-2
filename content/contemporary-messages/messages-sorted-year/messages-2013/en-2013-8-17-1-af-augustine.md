@@ -1,7 +1,7 @@
 ﻿---
 title: "All you need do is ask, and receive"
 menu_title: ""
-description: "All you need do is ask, and receive"
+description: "Augustine, received by Al Fike: “And in this you are all beautiful, my children, in this you all long for the light, in this your souls long for the Love …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

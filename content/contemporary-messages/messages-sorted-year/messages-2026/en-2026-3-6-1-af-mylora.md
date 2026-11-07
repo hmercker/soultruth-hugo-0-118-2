@@ -1,7 +1,7 @@
 ---
 title: "Awakening Like the Garden in Spring"
 menu_title: ""
-description: "Awakening Like the Garden in Spring"
+description: "Mylora, received by Al Fike: “For all that God creates is a gift and a perception of the soul that continues to be awakened by the Father's Love.”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

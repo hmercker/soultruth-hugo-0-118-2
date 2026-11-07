@@ -1,7 +1,7 @@
 ﻿---
 title: "You Are On A Trajectory of Great Change"
 menu_title: ""
-description: "You Are On A Trajectory of Great Change"
+description: "Faith Nyquist, received by Maureen Cardoso: “How wonderful it is to hear the prayer of the dear sister, praying for the Pentecostal inflowing of God’s …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

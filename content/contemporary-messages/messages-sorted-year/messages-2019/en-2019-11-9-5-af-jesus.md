@@ -1,7 +1,7 @@
 ---
 title: "Breathe in this Light"
 menu_title: ""
-description: "Breathe in this Light"
+description: "Jesus, received by Al Fike: “Blessings upon you, beloved souls. Allow yourselves to absorb all these Gifts and Blessings from God.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Be Aware of Windows of Opportunities"
 menu_title: ""
-description: "Be Aware of Windows of Opportunities"
+description: "Prof Salyards, received by Al Fike: “Windows and avenues of opportunity will come and go as you continue to reach out into the world and your community of …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

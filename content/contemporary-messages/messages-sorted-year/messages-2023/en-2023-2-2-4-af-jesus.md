@@ -1,7 +1,7 @@
 ---
 title: "Closing Blessing"
 menu_title: ""
-description: "Closing Blessing"
+description: "Jesus, received by Al Fike: “…and be my disciples in the world. Put down all that is not in harmony with the truth of love and step forth in the light of love.”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

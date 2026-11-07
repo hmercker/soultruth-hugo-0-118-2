@@ -1,7 +1,7 @@
 ﻿---
 title: "Pray for These Tender but Greatly Hurt Souls"
 menu_title: ""
-description: "Pray for These Tender but Greatly Hurt Souls"
+description: "Bartholomew, received by Elizabeth Mack: “Worries of this world are not necessary for you to concern yourselves with, although praying about it, about the …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

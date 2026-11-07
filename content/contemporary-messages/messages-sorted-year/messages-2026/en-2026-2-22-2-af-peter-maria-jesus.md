@@ -1,7 +1,7 @@
 ---
 title: "Have Faith and Make Efforts to Establish this Truth in the World"
 menu_title: ""
-description: "Have Faith and Make Efforts to Establish this Truth in the World"
+description: "Peter, Maria & Jesus, received by Al Fike: “Peter: May the gift of the Father's Love be yours, beautiful seeking souls, souls for truth, for God and for love.”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

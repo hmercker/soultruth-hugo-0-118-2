@@ -1,7 +1,7 @@
 ---
 title: "I Stand With You and I am Here for You"
 menu_title: ""
-description: "I Stand With You and I am Here for You"
+description: "James Tudor Snr, received by Elizabeth Mack: “Oh, Father, I ask that You bless these souls, these not only Your children but Your workers upon this Earth.”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

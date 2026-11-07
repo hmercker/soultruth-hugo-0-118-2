@@ -1,7 +1,7 @@
 ---
 title: "Earth Is Blessed with Many New Creations of the Father"
 menu_title: ""
-description: "Earth Is Blessed with Many New Creations of the Father"
+description: "Mary, received by Elizabeth Mack: “You know your Father, who blesses you all the time, always in so many ways and looks down upon you with the greatest Love.”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

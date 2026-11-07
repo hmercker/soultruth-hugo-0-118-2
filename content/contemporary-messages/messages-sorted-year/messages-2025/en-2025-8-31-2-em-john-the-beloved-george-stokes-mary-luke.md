@@ -1,7 +1,7 @@
 ---
 title: "A Great Service Performed in the Circle Today "
 menu_title: ""
-description: "A Great Service Performed in the Circle Today "
+description: "John the Beloved, George Stokes, Mary & Luke, received by Elizabeth Mack: “John: I am here, my beautiful friends. I have come to also pray with you and …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

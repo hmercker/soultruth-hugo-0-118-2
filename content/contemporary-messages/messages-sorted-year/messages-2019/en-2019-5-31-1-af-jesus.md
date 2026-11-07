@@ -1,7 +1,7 @@
 ---
 title: "You Carry the Truth That I Carried"
 menu_title: ""
-description: "You Carry the Truth That I Carried"
+description: "Jesus, received by Al Fike: “This longing and desire is blessed by God and gives the impetus for you to be guided to bring this Truth to those you meet in …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Be the Living Lesson of Love and Light"
 menu_title: ""
-description: "Be the Living Lesson of Love and Light"
+description: "Confucius, received by Al Fike: “Rejoice, for you know the key that opens your heart and your soul to the wonders that God has created within you, that key …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

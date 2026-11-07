@@ -1,7 +1,7 @@
 ---
 title: "You Who Are Willing to Be Channels of Light Have Brought Many, Many Spirits Here to Receive God’s Love"
 menu_title: ""
-description: "You Who Are Willing to Be Channels of Light Have Brought Many, Many Spirits Here to Receive God’s Love"
+description: "George Stokes & Jesus, received by Elisabeth Mack: “And I may say there are far more souls here than you can imagine and that even you cannot see.”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

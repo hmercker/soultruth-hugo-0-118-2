@@ -1,7 +1,7 @@
 ---
 title: "Prove Yourselves My Beautiful and Beloved Students"
 menu_title: ""
-description: "Prove Yourselves My Beautiful and Beloved Students"
+description: "Augustine, received by Al Fike: “Do you have any idea of the efforts that have been made on your behalf to help you grow and develop in the highest Truth …”"
 date: 2025-05-29 07:21:03+11:00
 draft: False
 hidden: True

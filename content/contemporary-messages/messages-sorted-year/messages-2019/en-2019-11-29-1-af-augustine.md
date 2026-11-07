@@ -1,7 +1,7 @@
 ---
 title: "Angels of heaven are by your side"
 menu_title: ""
-description: "Angels of heaven are by your side"
+description: "Augustine, received by Al Fike: “In this time together, our hope is that many of your gifts may be encouraged to open, that you may have experiences, a …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

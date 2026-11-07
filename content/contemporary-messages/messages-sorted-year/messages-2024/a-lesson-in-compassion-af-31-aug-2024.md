@@ -1,5 +1,6 @@
 ---
 title: "A Lesson in Practicing Compassion to Reach Soul Consciousness"
+description: "Received by Al Fike: “Blessings to you, my friends, I am Orion. I urge you to have compassion, compassion for yourselves and compassion for others.”"
 menu_title: "Orion gives a A Lesson in Practicing Compassion to Reach Soul Consciousness"
 date: 2024-11-20 07:21:03+11:00
 draft: False

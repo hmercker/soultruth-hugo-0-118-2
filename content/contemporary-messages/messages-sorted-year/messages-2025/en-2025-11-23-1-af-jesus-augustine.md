@@ -1,7 +1,7 @@
 ---
 title: "Awakened to Purpose"
 menu_title: ""
-description: "Awakened to Purpose"
+description: "Jesus & Augustine, received by Al Fike: “Jesus: I come to be with you, my beloveds. Your brother and friend, Jesus, is here.”"
 date: 2025-12-17 06:00:00+00:00
 draft: False
 hidden: True

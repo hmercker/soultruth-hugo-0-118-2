@@ -1,7 +1,7 @@
 ---
 title: "Take Heed in God's Will"
 menu_title: ""
-description: "Take Heed in God's Will"
+description: "Keea Atta Kem, received by Al Fike: “I wish to thank you all for your service to God, for your dedication to this Truth of God's Love for each time you …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

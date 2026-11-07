@@ -1,7 +1,7 @@
 ---
 title: "Walking the path of Divine Love"
 menu_title: ""
-description: "Walking the path of Divine Love"
+description: "Augustine, received by Helge Mercker: “I assist all of you on your paths to soul awakening, in your progressions of soul, teaching and bringing lessons of …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

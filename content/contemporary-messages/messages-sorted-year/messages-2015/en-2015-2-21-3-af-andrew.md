@@ -1,7 +1,7 @@
 ﻿---
 title: "Who you truly are"
 menu_title: ""
-description: "Who you truly are"
+description: "Andrew, received by Al Fike: “Each of you has received Divine Love within your souls. Each of you seeks for greater Love and understanding.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

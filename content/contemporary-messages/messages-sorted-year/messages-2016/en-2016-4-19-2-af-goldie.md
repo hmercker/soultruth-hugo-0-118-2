@@ -1,7 +1,7 @@
 ﻿---
 title: "Be with God in the Garden"
 menu_title: ""
-description: "Be with God in the Garden"
+description: "Goldie, received by Al Fike: “To be with the birds and the trees and the green grass especially when you are feeling upset and vexed, go to the ground, let …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

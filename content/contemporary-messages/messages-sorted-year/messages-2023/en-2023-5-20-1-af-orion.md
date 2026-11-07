@@ -1,7 +1,7 @@
 ---
 title: "Passageway of Light"
 menu_title: ""
-description: "Passageway of Light"
+description: "Orion, received by Al Fike: “The passageway to light is open to you, beloved brothers and sisters. This crucial decision and choice has allowed for much to …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

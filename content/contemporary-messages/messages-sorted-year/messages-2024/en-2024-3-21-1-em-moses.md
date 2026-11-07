@@ -1,7 +1,7 @@
 ---
 title: "Law of Divine Love"
 menu_title: ""
-description: "Law of Divine Love"
+description: "Moses, received by Elizabeth Mack: “We know that God’s law of love, Divine Love, is at the pinnacle of all these other laws and when you pray, children …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

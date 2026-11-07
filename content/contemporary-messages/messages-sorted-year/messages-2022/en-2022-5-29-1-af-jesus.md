@@ -1,7 +1,7 @@
 ---
 title: "We are All Part of the Coming Transition of the World"
 menu_title: ""
-description: "We are All Part of the Coming Transition of the World"
+description: "Jesus, received by Al Fike: “I love you as true brothers and sisters. We are part of this family, this family of love.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

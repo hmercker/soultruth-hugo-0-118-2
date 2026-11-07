@@ -1,7 +1,7 @@
 ﻿---
 title: "I welcome you to my Home"
 menu_title: ""
-description: "I welcome you to my Home"
+description: "Brother Mandus, received by Al Fike: “And I welcome you to my home, and I encourage you in your efforts to clean this place, for my day is finished, and …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

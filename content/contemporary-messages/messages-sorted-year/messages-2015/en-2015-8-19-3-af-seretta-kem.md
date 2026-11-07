@@ -1,7 +1,7 @@
 ﻿---
 title: "Some Comments on what the Angels are doing to facilitate our Soul Growth"
 menu_title: ""
-description: "Some Comments on what the Angels are doing to facilitate our Soul Growth"
+description: "Seretta Kem, received by Al Fike: “I lived in this world approximately 4000 years ago. I lived at the time when Egypt was a great nation and we had a …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

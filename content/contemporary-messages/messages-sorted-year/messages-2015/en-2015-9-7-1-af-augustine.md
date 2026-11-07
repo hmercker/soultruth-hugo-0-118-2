@@ -1,7 +1,7 @@
 ﻿---
 title: "Like a newborn, the Eyes of your Soul begin to open bringing Shifts and Changes of Perception"
 menu_title: ""
-description: "Like a newborn, the Eyes of your Soul begin to open bringing Shifts and Changes of Perception"
+description: "Augustine, received by Al Fike: “Bless you, my beloveds, your teacher Augustine is here. Each of you is experiencing a deep shift within yourselves.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

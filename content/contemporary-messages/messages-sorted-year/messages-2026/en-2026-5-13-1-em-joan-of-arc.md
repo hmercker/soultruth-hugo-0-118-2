@@ -1,7 +1,7 @@
 ﻿---
 title: "Through You, We Will Be Working to Bring About More Harmony in This Earth"
 menu_title: ""
-description: "Through You, We Will Be Working to Bring About More Harmony in This Earth"
+description: "Joan of Arc, received by Elizabeth Mack: “Thank you, dear children, for gathering together, for allowing the blessings that our Father has to give to you …”"
 date: 2026-11-02 00:00:00+00:00
 draft: False
 hidden: True

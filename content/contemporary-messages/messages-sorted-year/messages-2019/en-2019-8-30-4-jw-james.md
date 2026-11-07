@@ -1,7 +1,7 @@
 ---
 title: "See the Wonderful Light with the Eyes of Your Soul"
 menu_title: ""
-description: "See the Wonderful Light with the Eyes of Your Soul"
+description: "James, received by Jimbeau Walsh: “See with the eyes of your soul, this wonderful Light. As you open your hearts in celebration, as you release any thing …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

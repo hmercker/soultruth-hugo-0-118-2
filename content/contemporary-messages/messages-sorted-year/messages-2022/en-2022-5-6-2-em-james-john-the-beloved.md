@@ -1,7 +1,7 @@
 ---
 title: "You Are Blessed Beyond Comprehension"
 menu_title: ""
-description: "You Are Blessed Beyond Comprehension"
+description: "James & John the Beloved, received by Elizabeth Mack: “You are blessed mightily this day. You all are blessed, beyond what you can conceive of.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

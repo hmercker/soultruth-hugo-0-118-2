@@ -1,7 +1,7 @@
 ﻿---
 title: "Give to others but do not do so with an empty Basket"
 menu_title: ""
-description: "Give to others but do not do so with an empty Basket"
+description: "Martin Luther, received by Al Fike: “You have received this in your prayers together. There is such diversity in this room.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

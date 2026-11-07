@@ -1,7 +1,7 @@
 ﻿---
 title: "Welcome All in Love and Use a Light Touch When Teaching Others This Truth"
 menu_title: ""
-description: "Welcome All in Love and Use a Light Touch When Teaching Others This Truth"
+description: "Orion, received by Al Fike: “The flow of Love and blessings to you all continues to increase and intensify. I, as an observer of you and your planet, see …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

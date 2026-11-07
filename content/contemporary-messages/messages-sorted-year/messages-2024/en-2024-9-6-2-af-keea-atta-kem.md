@@ -1,7 +1,7 @@
 ---
 title: "Be At One with God"
 menu_title: ""
-description: "Be At One with God"
+description: "Keea Atta Kem, received by Al Fike: “The Breath of God is upon you, beloveds. You come together with pure hearts, sincere minds filled with desire to be …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

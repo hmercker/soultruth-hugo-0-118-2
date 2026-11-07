@@ -1,7 +1,7 @@
 ---
 title: "Recognizing Receipt of Divine Love in Your Soul"
 menu_title: ""
-description: "Recognizing Receipt of Divine Love in Your Soul"
+description: "James, received by Al Fike: “You ask about the nature of the soul. Indeed, as each of your minds continue to ruminate on this Truth, the existence of your …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

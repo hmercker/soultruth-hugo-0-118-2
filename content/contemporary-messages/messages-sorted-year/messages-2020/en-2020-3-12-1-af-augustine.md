@@ -1,7 +1,7 @@
 ---
 title: "The Awakening of the Soul Is Paramount at This Time"
 menu_title: ""
-description: "The Awakening of the Soul Is Paramount at This Time"
+description: "Augustine, received by Al Fike: “I have come to thank you for your service and your contributions to this time together in prayer.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

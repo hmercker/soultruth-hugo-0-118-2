@@ -1,7 +1,7 @@
 ---
 title: "Is Today the Day?"
 menu_title: ""
-description: "Is Today the Day?"
+description: "Jesus, received by Al Fike: “…the Father’s Love be bestowed upon you, my beloved brothers and sisters. Is this the day where the Holy Spirit will touch you …”"
 date: 2025-03-24 07:21:03+11:00
 draft: False
 hidden: True

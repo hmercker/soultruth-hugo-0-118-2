@@ -1,7 +1,7 @@
 ---
 title: "The Unique Creation of Archangels and the Role of Celestial Angels"
 menu_title: ""
-description: "The Unique Creation of Archangels and the Role of Celestial Angels"
+description: "Shelayis, received by Al Fike: “May the grace of the Father's Love be with you, my beloved friends. You do not know of me, but I know of you.”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

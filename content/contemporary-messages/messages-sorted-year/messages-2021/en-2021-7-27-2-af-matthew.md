@@ -1,7 +1,7 @@
 ---
 title: "The power of prayer is the great lever that opens the door to God"
 menu_title: ""
-description: "The power of prayer is the great lever that opens the door to God"
+description: "Matthew, received by Al Fike: “The power of prayer is the great lever that opens the door to God. How very crucial it is to express your thoughts and …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

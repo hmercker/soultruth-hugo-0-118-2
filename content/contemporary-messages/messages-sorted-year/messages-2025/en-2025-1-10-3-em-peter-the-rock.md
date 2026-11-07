@@ -1,7 +1,7 @@
 ---
 title: "Know That You Are Being Used"
 menu_title: ""
-description: "Know That You Are Being Used"
+description: "Peter the Rock, received by Elisabeth Mack: “(I am Peter) I come from my Father’s house where my Father’s love is ever present, omnipresent and I come with …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

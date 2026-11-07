@@ -1,7 +1,7 @@
 ---
 title: "Now is the Time to Answer the Invitation to Seek Harmony through Prayer"
 menu_title: ""
-description: "Now is the Time to Answer the Invitation to Seek Harmony through Prayer"
+description: "Augustine, received by Al Fike: “As the winds of change blow across your world, are you not seeing how inadequate humanity is in its ability to bring …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessed are you in your Fellowship"
 menu_title: ""
-description: "Blessed are you in your Fellowship"
+description: "Jesus, received by Al Fike: “Bless you on your journey back to your home. In the time to come there will be an opening of faculties of the soul, gifts …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

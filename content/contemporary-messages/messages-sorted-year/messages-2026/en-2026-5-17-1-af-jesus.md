@@ -1,7 +1,7 @@
 ﻿---
 title: "I Am with You: Awakening the Soul Through Divine Love"
 menu_title: ""
-description: "I Am with You: Awakening the Soul Through Divine Love"
+description: "Jesus, received by Al Fike: “The aching of your souls is evident. The power of that desire within to know God motivates your ascension into light, for as …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "God Encourages You to Create Light in Your Abodes"
 menu_title: ""
-description: "God Encourages You to Create Light in Your Abodes"
+description: "Andrew, received by Al Fike: “The Touch of God is upon you all. He embraces you all in His Love and carries you upward into conditions that are beyond the …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

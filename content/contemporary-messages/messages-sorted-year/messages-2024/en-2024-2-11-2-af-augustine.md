@@ -1,7 +1,7 @@
 ---
 title: "The Activation of God’s Love Will Bring Many Blessings and Changes in You"
 menu_title: ""
-description: "The Activation of God’s Love Will Bring Many Blessings and Changes in You"
+description: "Augustine, received by Al Fike: “Your souls are being activated by the great blessing of the Father’s Love. Do you see what this means in your life?”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

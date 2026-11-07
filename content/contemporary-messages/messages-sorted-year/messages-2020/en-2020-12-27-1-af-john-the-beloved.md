@@ -1,7 +1,7 @@
 ---
 title: "God's River of Love"
 menu_title: ""
-description: "God's River of Love"
+description: "John the Beloved, received by Al Fike: “You are all entering a river, a river of Love, empowered and directed by God’s Will. It carries you forward, not …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

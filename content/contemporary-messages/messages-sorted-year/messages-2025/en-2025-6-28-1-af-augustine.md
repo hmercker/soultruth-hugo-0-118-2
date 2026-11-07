@@ -1,7 +1,7 @@
 ---
 title: "Difference Between Faith and Belief"
 menu_title: ""
-description: "Difference Between Faith and Belief"
+description: "Augustine, received by Al Fike: “May the blessings of the Father's Love continue to flow into your souls, beloved children of truth.”"
 date: 2025-07-29 07:21:03+00:00
 draft: False
 hidden: True

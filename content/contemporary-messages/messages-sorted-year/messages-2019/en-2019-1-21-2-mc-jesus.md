@@ -1,7 +1,7 @@
 ---
 title: "Jesus brings a blessing"
 menu_title: ""
-description: "Jesus brings a blessing"
+description: "Jesus, received by Maureen Cardoso: “May the Father’s Love wash over you and through you in great abundance. May this Love cleanse you and bring comfort …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

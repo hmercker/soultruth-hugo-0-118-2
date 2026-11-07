@@ -1,7 +1,7 @@
 ﻿---
 title: "The Winds of Change bring many Blessings and Disruptions"
 menu_title: ""
-description: "The Winds of Change bring many Blessings and Disruptions"
+description: "Augustine, received by Al Fike: “Your teacher, Augustine, wishes to speak to you. And I wish to instruct you upon your travels to your gathering.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Awaken from the Sleep of Materialism"
 menu_title: ""
-description: "Awaken from the Sleep of Materialism"
+description: "Faith Nyquist, received by Al Fike: “So many are seeking a good life by encouraging material gain and physical pleasure. Yet, this cannot and never has …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

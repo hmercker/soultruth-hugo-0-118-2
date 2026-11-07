@@ -1,7 +1,7 @@
 ﻿---
 title: "You Contribute to the Birthing of a New World"
 menu_title: ""
-description: "You Contribute to the Birthing of a New World"
+description: "Timothy, received by Elizabeth Mack: “Dear children, you contribute to the birth of this new world, today, yesterday and tomorrow, every day that you pray …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

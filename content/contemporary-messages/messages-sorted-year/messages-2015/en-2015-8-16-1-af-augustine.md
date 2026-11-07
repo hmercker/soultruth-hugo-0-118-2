@@ -1,7 +1,7 @@
 ﻿---
 title: "Consider the differences between our Thoughts and Soul Perceptions"
 menu_title: ""
-description: "Consider the differences between our Thoughts and Soul Perceptions"
+description: "Augustine, received by Al Fike: “Today I wish for you to perform an exercise. When you speak your mind, I want you to indicate, and to be honest, whether …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,5 +1,6 @@
 ---
 title: "Expect the Coming Onrush"
+description: "Received by Al Fike: “Soon you will be called into action to fulfill your purposes and destinies as a group and individually to bring enlightenment to the …”"
 menu_title: "Seretta Ken says Expect the Coming Onrush"
 date: 2022-04-14 07:21:03+11:00
 draft: False

@@ -1,7 +1,7 @@
 ﻿---
 title: "Being God’s Instruments of Love in the World"
 menu_title: ""
-description: "Being God’s Instruments of Love in the World"
+description: "Barbara Davies, received by Al Fike: “Blessings to you, beloved souls. The joy in my heart is great.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

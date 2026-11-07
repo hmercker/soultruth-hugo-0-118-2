@@ -1,7 +1,7 @@
 ---
 title: "Stand Up and Declare the Truth of God’s Love"
 menu_title: ""
-description: "Stand Up and Declare the Truth of God’s Love"
+description: "James Tudor Snr, received by Al Fike: “Leadership, you must come to realise and express the gifts of leadership that reside within you.”"
 date: 2025-04-08 07:21:03+00:00
 draft: False
 hidden: True

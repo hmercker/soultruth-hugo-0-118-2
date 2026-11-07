@@ -1,7 +1,7 @@
 ---
 title: "Yogananda Describes His Journey Through the Spheres Towards the Celestial Heavens"
 menu_title: ""
-description: "Yogananda Describes His Journey Through the Spheres Towards the Celestial Heavens"
+description: "Received by Al Fike: “When I passed into spirit, I carried with me many ideas and thoughts that originated from the Eastern religions.”"
 date: 2020-07-13 08:11:28+11:00
 draft: False
 hidden: True

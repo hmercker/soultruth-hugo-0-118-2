@@ -1,7 +1,7 @@
 ---
 title: "Feel the Surety of Your Steps"
 menu_title: ""
-description: "Feel the Surety of Your Steps"
+description: "Jesus, received by Al Fike: “A blessing upon you, beloveds, I am your brother and friend, Jesus. Remember that you serve your Heavenly Father, that God has …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

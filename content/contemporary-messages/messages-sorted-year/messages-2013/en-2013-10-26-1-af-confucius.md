@@ -1,7 +1,7 @@
 ﻿---
 title: "Love will flow and Guidance will be clear"
 menu_title: ""
-description: "Love will flow and Guidance will be clear"
+description: "Confucius, received by Al Fike: “Precious children, Confucius loves you so. And it is for you to live your lives with each day in dedication to God …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

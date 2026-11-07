@@ -1,7 +1,7 @@
 ---
 title: "Divine Love is the Key to Unravel the Errors in Humanity"
 menu_title: ""
-description: "Divine Love is the Key to Unravel the Errors in Humanity"
+description: "Orion, received by Al Fike: “Blessings and greetings to you, my friends. We gather once again in our efforts and our commitment to be instruments, channels …”"
 date: 2025-08-04 07:21:03+00:00
 draft: False
 hidden: True

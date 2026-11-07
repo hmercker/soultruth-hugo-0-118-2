@@ -1,7 +1,7 @@
 ---
 title: "The Events Taking Place Now Will Help to Awaken Humanity"
 menu_title: ""
-description: "The Events Taking Place Now Will Help to Awaken Humanity"
+description: "Josephus, received by Al Fike: “I have come to reassure you all that God’s Hand is firmly upon each one of you. None of you are forsaken by God nor lost to …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

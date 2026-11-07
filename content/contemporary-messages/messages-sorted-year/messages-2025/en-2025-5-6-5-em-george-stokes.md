@@ -1,7 +1,7 @@
 ---
 title: "The Importance of Your Prayers for Yourselves and Spirits on this Ship"
 menu_title: ""
-description: "The Importance of Your Prayers for Yourselves and Spirits on this Ship"
+description: "George Stokes, received by Elizabeth Mack: “I see growth and development in your longings for God’s Love. I see purpose in this voyage.”"
 date: 2025-07-06 07:21:03+11:00
 draft: False
 hidden: True

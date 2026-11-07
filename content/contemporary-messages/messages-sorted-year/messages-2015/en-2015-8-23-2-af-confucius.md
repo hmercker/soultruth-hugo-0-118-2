@@ -1,7 +1,7 @@
 ﻿---
 title: "Do not make this complicated"
 menu_title: ""
-description: "Do not make this complicated"
+description: "Confucius, received by Al Fike: “And you have each journeyed far, journeyed far within yourselves and shall continue on this journey for all eternity to …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

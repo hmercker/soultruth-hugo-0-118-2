@@ -1,7 +1,7 @@
 ﻿---
 title: "You Have Tremendous Support Behind You"
 menu_title: ""
-description: "You Have Tremendous Support Behind You"
+description: "Orion, received by Al Fike: “The workings of the universe are often misunderstood or not seen at all by humanity, obscured by a mind that is so directed in …”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

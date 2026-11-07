@@ -1,7 +1,7 @@
 ﻿---
 title: "You all will receive your Guidance"
 menu_title: ""
-description: "You all will receive your Guidance"
+description: "Augustine, received by Al Fike: “You must continue to pray for this instrument (Al) in these coming days and support him for we will be using him in many …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Service to God"
 menu_title: ""
-description: "Service to God"
+description: "Andrew, received by Al Fike: “I wish to speak about service and how the exercise of your desire to serve humanity opens the door for God to use you in many …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

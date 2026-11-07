@@ -1,7 +1,7 @@
 ---
 title: "Avoiding Spiritual Apathy - Dive Deeply into Your Challenges"
 menu_title: ""
-description: "Avoiding Spiritual Apathy - Dive Deeply into Your Challenges"
+description: "Orion, received by Al Fike: “May the blessings of the Father's Love be with you. Questioning indicates that you are alive, that you are engaged in life …”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

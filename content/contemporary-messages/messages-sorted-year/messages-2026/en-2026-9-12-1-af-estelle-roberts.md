@@ -1,7 +1,7 @@
 ﻿---
 title: "Ground Yourself in God Before Entering Spirit"
 menu_title: ""
-description: "Ground Yourself in God Before Entering Spirit"
+description: "Estelle Roberts, received by Al Fike: “How unfortunate that more have not come, that they cannot take time out of their day to seek solace of the soul, to …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

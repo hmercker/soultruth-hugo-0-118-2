@@ -1,7 +1,7 @@
 ﻿---
 title: "It’s time to dance the dance of joy"
 menu_title: ""
-description: "It’s time to dance the dance of joy"
+description: "Goldie, received by Al Fike: “It’s time to let go of your worries, my children, all these burdens that you carry. It’s time to dance the dance of joy, of …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

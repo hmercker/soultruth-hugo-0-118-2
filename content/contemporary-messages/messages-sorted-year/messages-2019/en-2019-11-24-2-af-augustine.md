@@ -1,7 +1,7 @@
 ---
 title: "The World Needs More Circles of Light"
 menu_title: ""
-description: "The World Needs More Circles of Light"
+description: "Augustine, received by Al Fike: “I too wish to convey my thanks to you all and for the dedication of time and effort you have put in together as a group.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "May the Living Waters Flow"
 menu_title: ""
-description: "May the Living Waters Flow"
+description: "John the Beloved, received by Al Fike: “…of God’s Love, that it may carry you forth to greater light, greater soul light and love.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

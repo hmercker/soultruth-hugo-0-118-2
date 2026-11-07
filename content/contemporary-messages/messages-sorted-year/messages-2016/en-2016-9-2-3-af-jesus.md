@@ -1,7 +1,7 @@
 ﻿---
 title: "I am your Brother"
 menu_title: ""
-description: "I am your Brother"
+description: "Jesus, received by Al Fike: “And I walk amongst you, beloved souls. I walk amongst you and every soul who longs for the Father’s Love I will walk with you …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

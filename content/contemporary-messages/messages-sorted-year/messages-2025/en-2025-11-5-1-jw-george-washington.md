@@ -1,7 +1,7 @@
 ---
 title: "Show them the Way with Truth and an open Heart"
 menu_title: ""
-description: "Show them the Way with Truth and an open Heart"
+description: "George Washington, received by Jimbeau Walsh: “Although I do not visit this earth plane very often, I am delighted to be here with you all today, and I …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

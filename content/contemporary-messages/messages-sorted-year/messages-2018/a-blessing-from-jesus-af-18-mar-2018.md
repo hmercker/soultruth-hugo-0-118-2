@@ -1,7 +1,7 @@
 ---
 title: "A Blessing From Jesus"
 menu_title: ""
-description: "A Blessing From Jesus"
+description: "Received by Al Fike: “Bless these your beloved children, that your Essence may touch their souls. Awaken them beloved Father to your Presence and your Love.”"
 date: 2018-04-06 00:02:42+00:00
 draft: False
 hidden: True

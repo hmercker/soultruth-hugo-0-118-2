@@ -1,7 +1,7 @@
 ﻿---
 title: "Each of you is being prepared"
 menu_title: ""
-description: "Each of you is being prepared"
+description: "Augustine, received by Al Fike: “Each of you is being prepared, and in this preparation, and as you continue to beseech your Heavenly Father to receive His …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

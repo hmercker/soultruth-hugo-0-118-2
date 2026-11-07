@@ -1,7 +1,7 @@
 ---
 title: "You Are a Part of a Great Mission"
 menu_title: ""
-description: "You Are a Part of a Great Mission"
+description: "Jesus, received by Al Fike: “Blessings to you, beloveds, I am Jesus. I have been with you in your conversations and I am pleased to see a harmony and love …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

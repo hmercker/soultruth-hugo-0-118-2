@@ -1,7 +1,7 @@
 ---
 title: "May You Truly Understand Your Journey"
 menu_title: ""
-description: "May You Truly Understand Your Journey"
+description: "Matthew, received by Al Fike: “Of course you will reflect your journey, your thinking, the ideas and beliefs that you carry in your life.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

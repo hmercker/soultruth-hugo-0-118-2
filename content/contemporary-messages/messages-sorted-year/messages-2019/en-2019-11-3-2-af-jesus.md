@@ -1,7 +1,7 @@
 ---
 title: "Walking the Path of Love and Truth: Part I"
 menu_title: ""
-description: "Walking the Path of Love and Truth: Part I"
+description: "Jesus, received by Al Fike: “Each of you beloved souls are precious to God and each of you are precious to me. For you are truly my brothers and sisters.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

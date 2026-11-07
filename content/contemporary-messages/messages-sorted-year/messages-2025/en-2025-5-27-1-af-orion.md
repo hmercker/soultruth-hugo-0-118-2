@@ -1,7 +1,7 @@
 ---
 title: "The Contradictions Within Us"
 menu_title: ""
-description: "The Contradictions Within Us"
+description: "Orion, received by Al Fike: “The son's prayer is very relevant indeed. We continue to assist you in your preparations.”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

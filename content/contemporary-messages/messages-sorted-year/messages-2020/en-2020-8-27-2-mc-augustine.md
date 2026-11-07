@@ -1,7 +1,7 @@
 ---
 title: "Revealing the Potentials that Come with Divine Love"
 menu_title: ""
-description: "Revealing the Potentials that Come with Divine Love"
+description: "Augustine, received by Maureen Cardoso: “I have come to share a message, to reveal as you say, more fully what the potentials are for your workings …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

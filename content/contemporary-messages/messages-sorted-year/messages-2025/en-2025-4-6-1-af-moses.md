@@ -1,7 +1,7 @@
 ---
 title: "Become an Angel of God's Will"
 menu_title: ""
-description: "Become an Angel of God's Will"
+description: "Moses, received by Al Fike: “Blessings to you, beloved souls. For now, is the time to be strong and to be forthright in the Truth that is God's Love, for …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

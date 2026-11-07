@@ -1,7 +1,7 @@
 ---
 title: "Open Your Soul and Enter into Holy Communion with God"
 menu_title: ""
-description: "Open Your Soul and Enter into Holy Communion with God"
+description: "Jesus & Mary, received by Al Fike: “Jesus: May the Essence of God enter into your souls. As God opens that door and the Holy Spirit comes, may you have the …”"
 date: 2025-06-17 00:00:00+00:00
 draft: False
 hidden: True

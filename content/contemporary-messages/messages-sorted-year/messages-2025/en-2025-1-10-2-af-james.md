@@ -1,7 +1,7 @@
 ---
 title: "Welcomes First In-Person Prayer in Barbados"
 menu_title: ""
-description: "Welcomes First In-Person Prayer in Barbados"
+description: "James, received by Al Fike: “May the peace that passes all understanding be yours, my beloveds. The power of God's Hand upon each one of you will be mighty …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Divine Love is the Key to Interstellar Communication and Avoiding Distortion and Distraction"
 menu_title: ""
-description: "Divine Love is the Key to Interstellar Communication and Avoiding Distortion and Distraction"
+description: "Orion, received by Al Fike: “Indeed, the most important thing you can do is to continue to lay the foundation of love within your soul.”"
 date: 2025-03-17 07:21:03+11:00
 draft: False
 hidden: True

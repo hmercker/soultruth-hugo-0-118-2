@@ -1,7 +1,7 @@
 ---
 title: "Recognising Some of God's Blessings"
 menu_title: ""
-description: "Recognising Some of God's Blessings"
+description: "Jesus, received by Elizabeth Mack: “My Father sends me with blessings, some of which are already bestowed upon your souls as I entered this circle, for He …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

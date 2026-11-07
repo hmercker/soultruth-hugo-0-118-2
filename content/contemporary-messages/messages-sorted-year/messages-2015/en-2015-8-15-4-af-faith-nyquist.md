@@ -1,7 +1,7 @@
 ﻿---
 title: "Creating Centres of Light"
 menu_title: ""
-description: "Creating Centres of Light"
+description: "Faith Nyquist, received by Al Fike: “I walked this Earth not too long ago and I did my Father’s bidding. My life was dedicated to following the Father’s …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

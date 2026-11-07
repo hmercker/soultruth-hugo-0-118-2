@@ -1,7 +1,7 @@
 ---
 title: "Do Not Doubt"
 menu_title: ""
-description: "Do Not Doubt"
+description: "Judas, received by Elizabeth Mack: “We are always with you, children. God shines His light upon you and raises you and I say to you, you never have to …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

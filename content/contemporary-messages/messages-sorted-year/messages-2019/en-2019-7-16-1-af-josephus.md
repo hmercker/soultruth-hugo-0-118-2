@@ -1,7 +1,7 @@
 ---
 title: "There is Much We Wish to Give You"
 menu_title: ""
-description: "There is Much We Wish to Give You"
+description: "Josephus, received by Al Fike: “I have come to give you my appreciation for your support and prayers as these two dear souls and their friends and loved …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Follow that Joy"
 menu_title: ""
-description: "Follow that Joy"
+description: "Jesus, received by Al Fike: “Blessed and beloved brothers and sisters, I come, I am Jesus. Each of you within your souls have come to that decision.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "We Protect You When You Travel"
 menu_title: ""
-description: "We Protect You When You Travel"
+description: "Joseph, received by Jimbeau Walsh: “I was here when James spoke. I wish to tell you that you are all precious cargo.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

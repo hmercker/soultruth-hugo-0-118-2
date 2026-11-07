@@ -1,7 +1,7 @@
 ---
 title: "The World Will Know These Truths in Time"
 menu_title: ""
-description: "The World Will Know These Truths in Time"
+description: "James Padgett, received by Al Fike: “We have done our part, have we not? Well and true to God's Will, and you and me and many others will continue upon …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

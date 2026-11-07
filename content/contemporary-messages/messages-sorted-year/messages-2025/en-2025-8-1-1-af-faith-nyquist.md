@@ -1,7 +1,7 @@
 ---
 title: "A Call to Reclaim Balance with God’s Creation"
 menu_title: ""
-description: "A Call to Reclaim Balance with God’s Creation"
+description: "Faith Nyquist, received by Al Fike: “What has happened in your world is that the places of ideal habitation for all creatures of God’s creation have been …”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

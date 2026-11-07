@@ -1,7 +1,7 @@
 ---
 title: "We All Walk in the Same Direction"
 menu_title: ""
-description: "We All Walk in the Same Direction"
+description: "Jesus, received by Al Fike: “We all walk in the same direction toward our Heavenly Father and we shall find our way upon that path that brings us to …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

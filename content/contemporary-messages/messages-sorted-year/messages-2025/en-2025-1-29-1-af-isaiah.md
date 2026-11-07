@@ -1,7 +1,7 @@
 ---
 title: "A Lesson in Humility and Guidance to Avoid Pitfalls"
 menu_title: ""
-description: "A Lesson in Humility and Guidance to Avoid Pitfalls"
+description: "Isaiah, received by Al Fike: “May the great blessings of God's Love be yours for eternity. Those who are dedicated and faithful shall be rewarded.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

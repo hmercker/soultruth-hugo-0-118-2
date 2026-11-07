@@ -1,7 +1,7 @@
 ﻿---
 title: "As you give in Love, so you grow in Love"
 menu_title: ""
-description: "As you give in Love, so you grow in Love"
+description: "Mary, received by Al Fike: “I will be with you when you are amongst the children. This work you do my beloveds is a work of love, a manifestation of God’s …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

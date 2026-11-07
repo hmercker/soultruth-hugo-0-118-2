@@ -1,7 +1,7 @@
 ---
 title: "Jesus brings his blessing to the group"
 menu_title: "Jesus brings his blessing to the group"
-description: "Jesus brings his blessing to the group"
+description: "Received by Al Fike: “As you continue to seek the Father’s Love and know of all the wonderment and glories of this Love.”"
 date: 2016-10-03 04:44:39+00:00
 draft: False
 hidden: True

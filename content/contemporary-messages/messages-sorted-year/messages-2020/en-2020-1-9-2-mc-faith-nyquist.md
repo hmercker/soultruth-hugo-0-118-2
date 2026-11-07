@@ -1,7 +1,7 @@
 ---
 title: "The Intention to Know Who You Are"
 menu_title: ""
-description: "The Intention to Know Who You Are"
+description: "Faith Nyquist, received by Maureen Cardoso: “My name is Faith and may each of you feel the grace, the essence and Love of your beloved Creator touching you …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

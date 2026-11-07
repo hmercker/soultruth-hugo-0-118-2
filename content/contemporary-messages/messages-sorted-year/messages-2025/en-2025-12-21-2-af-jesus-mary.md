@@ -1,7 +1,7 @@
 ---
 title: "Walking the Eternal Path of Divine Love"
 menu_title: ""
-description: "Walking the Eternal Path of Divine Love"
+description: "Jesus & Mary, received by Al Fike: “Jesus: Thank you, my brother for reciting my prayer, a prayer that I gave that describes the truth that I shared when I …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

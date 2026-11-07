@@ -1,7 +1,7 @@
 ﻿---
 title: "Pray daily"
 menu_title: ""
-description: "Pray daily"
+description: "Confucius, received by Al Fike: “Once again, my little birds have gathered and oh how you love to chatter together, to share your lives with one another …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

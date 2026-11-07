@@ -1,7 +1,7 @@
 ﻿---
 title: "Getting Beyond Mind and Spirit Consciousness to Soul"
 menu_title: ""
-description: "Getting Beyond Mind and Spirit Consciousness to Soul"
+description: "Josephus, received by Al Fike: “Indeed, you pray for the great gift of God’s Love. That prayer is answered with each longing.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "The Way that is Spoken is not the Eternal Way"
 menu_title: ""
-description: "The Way that is Spoken is not the Eternal Way"
+description: "Lao Tzu, received by Jimbeau Walsh: “My brothers and sisters, when I wrote so long ago, the way that can be spoken is not the Eternal Way, I meant to …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

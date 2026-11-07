@@ -1,7 +1,7 @@
 ---
 title: "Catherine Koch Speaks About Her Passing"
 menu_title: ""
-description: "Catherine Koch Speaks About Her Passing"
+description: "Received by Al Fike: “It has certainly been a good run, don’t you think, my efforts, something that began as a mere idea that blossomed and bore much fruit?”"
 date: 2023-11-26 07:21:03+11:00
 draft: False
 hidden: True

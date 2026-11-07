@@ -1,7 +1,7 @@
 ﻿---
 title: "Let your Soul Consciousness take precedence over your Minds"
 menu_title: ""
-description: "Let your Soul Consciousness take precedence over your Minds"
+description: "Confucius, received by Al Fike: “My beautiful birds, loving souls, in the beginning of these prayers, I promised you clarity and understanding.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

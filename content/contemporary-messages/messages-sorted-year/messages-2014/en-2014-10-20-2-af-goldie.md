@@ -1,7 +1,7 @@
 ﻿---
 title: "Yes, we bring Joy"
 menu_title: ""
-description: "Yes, we bring Joy"
+description: "Goldie, received by Al Fike: “Your prayers were answered the other day, and I put the ring on the bed. Our dear sweet soul who worries for her mother, her …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

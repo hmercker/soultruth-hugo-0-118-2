@@ -1,7 +1,7 @@
 ---
 title: "You Will Not Falter When You Live in Alignment with God's Will"
 menu_title: ""
-description: "You Will Not Falter When You Live in Alignment with God's Will"
+description: "Andrew, received by Al Fike: “May understanding be yours, my beloved friends. Is it not wonderful how God brings you together in places that, not long ago …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

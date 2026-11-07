@@ -1,7 +1,7 @@
 ---
 title: "The Wisdom of Your Soul Will Inform You During Earth Changes"
 menu_title: ""
-description: "The Wisdom of Your Soul Will Inform You During Earth Changes"
+description: "Keea Atta Kem, received by Al Fike: “There is much coming to your world as God continues to bless this world with activating energies that will affect all …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

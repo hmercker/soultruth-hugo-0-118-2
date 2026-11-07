@@ -1,7 +1,7 @@
 ---
 title: "Matthew and Jesus Comment on Conspiracy Theories"
 menu_title: ""
-description: "Matthew and Jesus Comment on Conspiracy Theories"
+description: "Received by Al Fike: “I wish to speak about the forces of evil in the world, since you have heard from one of your sisters who is very concerned about this …”"
 date: 2020-05-08 07:40:28+10:00
 draft: False
 hidden: True

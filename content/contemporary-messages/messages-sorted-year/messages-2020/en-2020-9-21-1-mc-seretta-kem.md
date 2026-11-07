@@ -1,7 +1,7 @@
 ---
 title: "Discerning if Messages are Truly Celestial"
 menu_title: ""
-description: "Discerning if Messages are Truly Celestial"
+description: "Seretta Kem, received by Maureen Cardoso: “Thank you for bringing light into this dear soul. As to the conversation that you have had regarding discerning …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

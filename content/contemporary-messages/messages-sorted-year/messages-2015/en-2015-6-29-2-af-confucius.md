@@ -1,7 +1,7 @@
 ﻿---
 title: "You must prepare yourselves for what is coming"
 menu_title: ""
-description: "You must prepare yourselves for what is coming"
+description: "Confucius, received by Al Fike: “My precious and beautiful souls, such a blessing it is for you to come together in this way to receive the Father’s Love.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

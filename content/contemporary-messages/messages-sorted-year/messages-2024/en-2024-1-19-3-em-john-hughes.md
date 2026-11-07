@@ -1,7 +1,7 @@
 ---
 title: "Give Thanks"
 menu_title: ""
-description: "Give Thanks"
+description: "John Hughes, received by Elizabeth Mack: “You have much to be thankful for. There have been many blessings bestowed upon you all.”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

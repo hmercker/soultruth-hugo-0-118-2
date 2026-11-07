@@ -1,7 +1,7 @@
 ---
 title: "I Come with Compassion, Upliftment, Healing and Peace"
 menu_title: ""
-description: "I Come with Compassion, Upliftment, Healing and Peace"
+description: "Jesus, received by Al Fike: “The earnestness of our dear brother who wishes for the world to not have the suffering and pain that it is in, is truly his …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

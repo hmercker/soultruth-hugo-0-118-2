@@ -1,7 +1,7 @@
 ---
 title: "Much Is Being Given to the Earth"
 menu_title: ""
-description: "Much Is Being Given to the Earth"
+description: "John Hughes, received by Elizabeth Mack: “As you lift your souls, your intentions and your longings, you are blessed with the mightiest of blessings that …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

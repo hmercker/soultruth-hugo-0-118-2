@@ -1,7 +1,7 @@
 ﻿---
 title: "Change is the One Constant in Life’s Experience"
 menu_title: ""
-description: "Change is the One Constant in Life’s Experience"
+description: "Keea Atta Kem, received by Maureen Cardoso: “For each of you here in this circle and each beloved soul upon your earth and your earth are moving through …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

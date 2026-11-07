@@ -1,7 +1,7 @@
 ---
 title: "Jesus Brings Blessings of Love"
 menu_title: ""
-description: "Jesus Brings Blessings of Love"
+description: "Received by Al Fike: “Blessed are the children who seek their Creator, yearning, desiring that connection and blessing from God.”"
 date: 2024-11-19 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Take Advantage of Your Time in Prayer"
 menu_title: ""
-description: "Take Advantage of Your Time in Prayer"
+description: "Augustine, received by Al Fike: “So, the tides of change are washing over you, my friends. So, you are having to adjust and contemplate your purpose as …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

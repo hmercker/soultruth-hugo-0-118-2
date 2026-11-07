@@ -1,7 +1,7 @@
 ---
 title: "Faith and the Soul 4: Extricate Yourself from the Limiting Influence of Self-Doubt"
 menu_title: ""
-description: "Faith and the Soul 4: Extricate Yourself from the Limiting Influence of Self-Doubt"
+description: "Michael Collier, received by Al Fike: “Spreading the Truth of this Love, the blessings of God’s Essence, requires many faculties and abilities, so that …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

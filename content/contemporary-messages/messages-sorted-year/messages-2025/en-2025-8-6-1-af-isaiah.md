@@ -1,7 +1,7 @@
 ---
 title: "Awakening the Faculties of the Soul"
 menu_title: ""
-description: "Awakening the Faculties of the Soul"
+description: "Isaiah, received by Al Fike: “Your experience with your Creator is your own. Yet, the faculties required within the soul to know God are well in place …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

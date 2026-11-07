@@ -1,7 +1,7 @@
 ---
 title: "Describes His Progress in Spirit"
 menu_title: ""
-description: "Describes His Progress in Spirit"
+description: "George Stokes, received by Al Fike: “Blessings to you, my friends. Indeed, as you continue to pray and to work toward light, that perspective changes and …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

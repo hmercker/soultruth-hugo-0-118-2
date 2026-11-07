@@ -1,7 +1,7 @@
 ---
 title: "Pleased With Our Progress"
 menu_title: ""
-description: "Pleased With Our Progress"
+description: "George Stokes, received by Elizabeth Mack: “By “your” development, I mean each and every one of you, seen and unseen. The Father's Love pours upon you.”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

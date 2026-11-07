@@ -1,7 +1,7 @@
 ---
 title: "Encourages a Planning Group for Padgett Messages"
 menu_title: ""
-description: "Encourages a Planning Group for Padgett Messages"
+description: "James Padgett, received by Al Fike: “Blessings to you my friends, I am James Padgett. I have certainly been with you during your conversations and heartily …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

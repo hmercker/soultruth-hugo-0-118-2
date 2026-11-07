@@ -1,7 +1,7 @@
 ---
 title: "Breaking Open the Tombs of God"
 menu_title: ""
-description: "Breaking Open the Tombs of God"
+description: "Peter, received by Jimbeau Walsh: “As you look around the world and see the edifices that have been created as places of worship and their beauty, one can …”"
 date: 2025-05-18 07:21:03+00:00
 draft: False
 hidden: True

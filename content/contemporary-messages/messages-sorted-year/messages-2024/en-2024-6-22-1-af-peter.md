@@ -1,7 +1,7 @@
 ---
 title: "Implores Us to Share the Truth of God’s Love"
 menu_title: ""
-description: "Implores Us to Share the Truth of God’s Love"
+description: "Peter, received by Al Fike: “For I carried on his work after his unfortunate demise as did many of us. Though it was a great struggle to bring this truth …”"
 date: 2025-04-08 07:21:03+00:00
 draft: False
 hidden: True

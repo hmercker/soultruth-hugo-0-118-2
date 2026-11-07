@@ -1,7 +1,7 @@
 ﻿---
 title: "Bringing forward the Gift of yourselves in Service to God will bring many Rewards"
 menu_title: ""
-description: "Bringing forward the Gift of yourselves in Service to God will bring many Rewards"
+description: "Augustine, received by Al Fike: “You have done good work today, my dear students. You have looked within yourselves and you have assessed your desires, and …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Honours Her Husband and Soulmate"
 menu_title: ""
-description: "Honours Her Husband and Soulmate"
+description: "Helen Padgett, received by Al Fike: “I merely wish to say a few words of acknowledgement to my dear husband and soulmate, how much I love him.”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Expectations are speculative, Faith is Certitude"
 menu_title: ""
-description: "Expectations are speculative, Faith is Certitude"
+description: "Lao Tzu, received by Jimbeau Walsh: “I’ve been knocking on this brother’s door all day and giving him a bit of what I wish to say, but for those who do not …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

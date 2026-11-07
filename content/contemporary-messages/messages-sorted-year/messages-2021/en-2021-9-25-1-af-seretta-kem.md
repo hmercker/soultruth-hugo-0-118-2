@@ -1,7 +1,7 @@
 ---
 title: "Closing Message for Retreat"
 menu_title: ""
-description: "Closing Message for Retreat"
+description: "Seretta Kem, received by Al Fike: “So now you see why we do not go to great detail in terms of explaining your spiritual journey and awakening, for if I …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

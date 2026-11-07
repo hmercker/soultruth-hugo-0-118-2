@@ -1,7 +1,7 @@
 ---
 title: "Welcomes Us To Victoria and Acknowledges Many Prayers for Divine Love from this Beautiful City"
 menu_title: ""
-description: "Welcomes Us To Victoria and Acknowledges Many Prayers for Divine Love from this Beautiful City"
+description: "Matthew, received by Elizabeth Mack: “I welcome you to this beautiful city of Victoria, where many prayers for Divine Love have been offered to our …”"
 date: 2025-07-06 07:21:03+11:00
 draft: False
 hidden: True

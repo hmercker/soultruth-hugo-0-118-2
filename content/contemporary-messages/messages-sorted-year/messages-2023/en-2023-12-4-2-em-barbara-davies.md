@@ -1,7 +1,7 @@
 ---
 title: "Barbara Shares Her Love"
 menu_title: ""
-description: "Barbara Shares Her Love"
+description: "Barbara Davies, received by Elizabeth Mack: “So pleased to be here with you today on this adventure. I watch you often and notice how well you are …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

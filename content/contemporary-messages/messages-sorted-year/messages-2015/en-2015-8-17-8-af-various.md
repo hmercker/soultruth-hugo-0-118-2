@@ -1,7 +1,7 @@
 ﻿---
 title: "The Angels come to bless a Retreat gathering in Gibsons"
 menu_title: ""
-description: "The Angels come to bless a Retreat gathering in Gibsons"
+description: "Various, received by Al Fike: “Continue to walk together and many will walk with you….. many, many await you upon the Path.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

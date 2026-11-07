@@ -1,7 +1,7 @@
 ﻿---
 title: "As one steps forwards, you all step forward"
 menu_title: ""
-description: "As one steps forwards, you all step forward"
+description: "Alec Gaunt, received by Al Fike: “I want you to realize that a great effort has been made for you to do this work, to make these travels, and I am so very …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

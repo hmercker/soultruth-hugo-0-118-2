@@ -1,7 +1,7 @@
 ﻿---
 title: "The true Journey begins in the Discovery of the Soul"
 menu_title: ""
-description: "The true Journey begins in the Discovery of the Soul"
+description: "John the Beloved, received by Al Fike: “Indeed, the winds of change blow through all of your lives and shall continue to do so. As the changing conditions …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

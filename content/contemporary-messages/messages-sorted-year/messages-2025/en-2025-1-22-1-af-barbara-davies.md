@@ -1,7 +1,7 @@
 ---
 title: "Describes Her Service and Sensitivities While on Earth"
 menu_title: ""
-description: "Describes Her Service and Sensitivities While on Earth"
+description: "Barbara Davies, received by Al Fike: “Beautiful friends, I am Barbara. Sensitivity comes with a great price.”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Freedom of God's Love"
 menu_title: ""
-description: "The Freedom of God's Love"
+description: "Jesus, received by Elizabeth Mack: “Such freedom you have never experienced, but you will as you grow in this Love, as you grow in the Truth of your …”"
 date: 2025-07-06 07:21:03+11:00
 draft: False
 hidden: True

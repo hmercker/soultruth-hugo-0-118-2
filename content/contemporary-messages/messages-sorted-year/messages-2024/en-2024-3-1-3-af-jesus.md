@@ -1,7 +1,7 @@
 ---
 title: "Honouring Age Old Tradition of Prayer"
 menu_title: ""
-description: "Honouring Age Old Tradition of Prayer"
+description: "Jesus, received by Al Fike: “It was like this in my day, groups gathering in prayer, seeking the blessings of the Heavenly Father, seeking knowledge …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

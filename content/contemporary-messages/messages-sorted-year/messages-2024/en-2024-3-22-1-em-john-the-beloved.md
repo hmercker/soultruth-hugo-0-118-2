@@ -1,7 +1,7 @@
 ---
 title: "Immerse Yourselves in the River of God’s Love"
 menu_title: ""
-description: "Immerse Yourselves in the River of God’s Love"
+description: "John the Beloved, received by Elizabeth Mack: “I welcome you all to this condition of love, to this sacred space where your souls may open to the inflowing …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

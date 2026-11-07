@@ -1,7 +1,7 @@
 ---
 title: "We Have Brought You Together For a Purpose"
 menu_title: ""
-description: "We Have Brought You Together For a Purpose"
+description: "Joan of Arc, received by Elizabeth Mack: “You have us, with protection all around, uplifting you, bringing you blessings from your Heavenly Father.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

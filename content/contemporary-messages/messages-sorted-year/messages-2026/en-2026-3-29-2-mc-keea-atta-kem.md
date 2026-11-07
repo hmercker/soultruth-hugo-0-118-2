@@ -1,7 +1,7 @@
 ﻿---
 title: "Growing Awareness of Soul Perceptions and Attributes Guiding You"
 menu_title: ""
-description: "Growing Awareness of Soul Perceptions and Attributes Guiding You"
+description: "Keea Atta Kem, received by Maureen Cardoso: “How wonderful it is to join you as we open our souls to the great flowing of God's Love, His Essence, the …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

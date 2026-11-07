@@ -1,7 +1,7 @@
 ﻿---
 title: "Encourages Us to Engage With the World and Confront Its Many Tests Head On"
 menu_title: ""
-description: "Encourages Us to Engage With the World and Confront Its Many Tests Head On"
+description: "Orion, received by Al Fike: “Blessings and greetings to you all. I realise how difficult it is on your earthly plane to continuously be focused on your …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

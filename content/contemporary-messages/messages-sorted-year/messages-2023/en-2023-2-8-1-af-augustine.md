@@ -1,7 +1,7 @@
 ---
 title: "The Journey to Truth and Soul Awakening"
 menu_title: ""
-description: "The Journey to Truth and Soul Awakening"
+description: "Augustine, received by Al Fike: “We shall continue to teach you many things as you progress upon this Path Divine, for your minds crave knowledge.”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

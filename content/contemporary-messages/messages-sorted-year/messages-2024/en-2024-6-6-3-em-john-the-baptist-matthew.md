@@ -1,7 +1,7 @@
 ---
 title: "It Is Your Turn, now is the Time"
 menu_title: ""
-description: "It Is Your Turn, now is the Time"
+description: "John the Baptist & Matthew, received by Elizabeth Mack: “For we can never pray too much to the Father of all of us. We can never love God too much.”"
 date: 2025-03-17 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Know the Instrument of Your Soul"
 menu_title: ""
-description: "Know the Instrument of Your Soul"
+description: "Keea Atta Kem, received by Maureen Cardoso: “Welcome to each one of you as we all draw together, standing in the grace of God's Love, having our souls …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Your efforts will be in alignmnet with God's will"
 menu_title: ""
-description: "Your efforts will be in alignmnet with God's will"
+description: "Professor Salyards, received by Al Fike: “If this is what you wish, then of course we in the Celestial kingdom are happy to acknowledge you, to give you …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Do not stand in the Way of your own true and perfect Healing"
 menu_title: ""
-description: "Do not stand in the Way of your own true and perfect Healing"
+description: "Moses, received by Al Fike: “I have come to be with you in your prayers and to tell you that your Heavenly Father has a great work awaiting you each one …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

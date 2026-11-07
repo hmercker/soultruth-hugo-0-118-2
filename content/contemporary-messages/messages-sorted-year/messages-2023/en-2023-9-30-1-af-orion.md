@@ -1,7 +1,7 @@
 ---
 title: "Contrasts Natural Love and Divine Love Paths"
 menu_title: ""
-description: "Contrasts Natural Love and Divine Love Paths"
+description: "Orion, received by Al Fike: “This instrument has been musing about certain aspects of many who are upon what you call the natural path, the evolution of …”"
 date: 2025-06-21 07:21:03+00:00
 draft: False
 hidden: True

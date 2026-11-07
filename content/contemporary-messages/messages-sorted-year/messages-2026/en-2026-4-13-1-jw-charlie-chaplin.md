@@ -1,7 +1,7 @@
 ---
 title: "It is time now for us to collaborate"
 menu_title: ""
-description: "It is time now for us to collaborate"
+description: "Charlie Chaplin, received by Jimbeau Walsh: “The last time I came, I spoke a bit about restoring humor, about its roots as a word that had to do with …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

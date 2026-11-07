@@ -1,7 +1,7 @@
 ---
 title: "Attune Youself to Light"
 menu_title: ""
-description: "Attune Youself to Light"
+description: "Andrew, received by Al Fike: “…His Love touch you deeply, beloved souls, I am Andrew. Only those who are willing to continue to sleep and abandon their own …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

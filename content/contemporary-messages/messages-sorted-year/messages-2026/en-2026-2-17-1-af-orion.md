@@ -1,7 +1,7 @@
 ---
 title: "You Cannot Afford to Be Casual in Your Commitment to This Path"
 menu_title: ""
-description: "You Cannot Afford to Be Casual in Your Commitment to This Path"
+description: "Orion, received by Al Fike: “There is a great need for shifting consciousness now, for the time grows short for you to have the luxury of sitting as you do …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

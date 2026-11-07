@@ -1,7 +1,7 @@
 ﻿---
 title: "The Value Of Living the Love While On Earth"
 menu_title: ""
-description: "The Value Of Living the Love While On Earth"
+description: "Clare of Assisi, received by Elizabeth Mack: “I bring with me many other Celestial Angels, some spirits from the Seventh Sphere and even a few from the Fifth.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

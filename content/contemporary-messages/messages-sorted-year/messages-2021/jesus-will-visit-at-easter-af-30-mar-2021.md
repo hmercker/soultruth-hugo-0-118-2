@@ -1,7 +1,7 @@
 ---
 title: "Jesus will Visit the Earth Plane at Easter"
 menu_title: ""
-description: "Jesus will Visit the Earth Plane at Easter"
+description: "Received by Al Fike: “As you well know, this is error. I spoke of these things one hundred years ago through our beloved brother James because in those …”"
 date: 2021-04-17 07:21:03+11:00
 draft: False
 hidden: True

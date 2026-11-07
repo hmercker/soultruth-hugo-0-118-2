@@ -1,7 +1,7 @@
 ---
 title: "Fellow Explorers"
 menu_title: ""
-description: "Fellow Explorers"
+description: "Galileo Galilei, received by Jimbeau Walsh: “Fellow explorers, those who have gone beyond the belief systems that keep the planet in darkness.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

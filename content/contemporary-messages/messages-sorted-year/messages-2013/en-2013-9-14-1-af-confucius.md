@@ -1,7 +1,7 @@
 ﻿---
 title: "You carry the Message of Love"
 menu_title: ""
-description: "You carry the Message of Love"
+description: "Confucius, received by Al Fike: “So, I have seen you have made your plans, my children. After all, is it not the Love that you carry and wish to give?”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Speed of Your Progress is Determined by You"
 menu_title: ""
-description: "The Speed of Your Progress is Determined by You"
+description: "Orion, received by Al Fike: “Your friend Orion is here. You are well aware that the journey toward soul awakening and development has many signposts and …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

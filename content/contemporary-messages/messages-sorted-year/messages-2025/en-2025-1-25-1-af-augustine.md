@@ -1,7 +1,7 @@
 ---
 title: "Opens Starpoint Retreat"
 menu_title: ""
-description: "Opens Starpoint Retreat"
+description: "Augustine, received by Al Fike: “May God touch your soul deeply and profoundly. I have progressed beyond the limitations of that time on Earth so many …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

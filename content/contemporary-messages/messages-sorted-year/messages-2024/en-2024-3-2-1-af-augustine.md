@@ -1,7 +1,7 @@
 ---
 title: "Importance of Sharing the Truth of God’s Love with the World"
 menu_title: ""
-description: "Importance of Sharing the Truth of God’s Love with the World"
+description: "Augustine, received by Al Fike: “I wish to encourage you to be brave and to be strong in your dealings with the world. For it is easy to reside in your own …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

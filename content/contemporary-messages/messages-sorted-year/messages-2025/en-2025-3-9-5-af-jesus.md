@@ -1,7 +1,7 @@
 ---
 title: "Pleads With Us to Be Channels of Light in God's Service"
 menu_title: ""
-description: "Pleads With Us to Be Channels of Light in God's Service"
+description: "Jesus, received by Al Fike: “May God’s Love be with you, my beloveds. Being a light in your world is so important, for there is so much darkness and light …”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

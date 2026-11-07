@@ -1,7 +1,7 @@
 ---
 title: "The Divine Love is the Way to the Soul"
 menu_title: ""
-description: "The Divine Love is the Way to the Soul"
+description: "Jesus, received by Maureen Cardoso: “Our Mighty and Heavenly Father, I pray for these beloved souls who come together at this time to open themselves to …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

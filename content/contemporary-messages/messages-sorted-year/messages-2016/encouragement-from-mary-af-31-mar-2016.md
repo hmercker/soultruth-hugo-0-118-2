@@ -1,7 +1,7 @@
 ---
 title: "Encouragement from Mary"
 menu_title: ""
-description: "Encouragement from Mary"
+description: "Received by Al Fike: “May the Father’s Love find a constant inflowing into your souls, my beloved, beautiful, precious souls, eager for the Love, eager to …”"
 date: 2018-12-19 04:07:41+00:00
 draft: False
 hidden: True

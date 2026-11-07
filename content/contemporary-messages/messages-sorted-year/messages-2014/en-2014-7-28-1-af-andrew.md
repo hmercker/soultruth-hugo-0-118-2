@@ -1,7 +1,7 @@
 ﻿---
 title: "Who am I really?"
 menu_title: ""
-description: "Who am I really?"
+description: "Andrew, received by Al Fike: “You follow the path Divine, you eagerly implore our Heavenly Father to gift you with His Love.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

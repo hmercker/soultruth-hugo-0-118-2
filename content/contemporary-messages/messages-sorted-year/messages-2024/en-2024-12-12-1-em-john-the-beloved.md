@@ -1,7 +1,7 @@
 ---
 title: "Love Is the Measure of Service to God"
 menu_title: ""
-description: "Love Is the Measure of Service to God"
+description: "John the Beloved, received by Elizabeth Mack: “These desires are met everyday in every moment as God provides opportunities for you to serve through your …”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

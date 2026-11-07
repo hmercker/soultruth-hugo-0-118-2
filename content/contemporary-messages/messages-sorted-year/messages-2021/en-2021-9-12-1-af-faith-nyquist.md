@@ -1,7 +1,7 @@
 ---
 title: "Talk on Service"
 menu_title: ""
-description: "Talk on Service"
+description: "Faith Nyquist, received by Al Fike: “I wish to talk about the power of demonstrating the truth, that you cannot merely mouth the words or hand a book over …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

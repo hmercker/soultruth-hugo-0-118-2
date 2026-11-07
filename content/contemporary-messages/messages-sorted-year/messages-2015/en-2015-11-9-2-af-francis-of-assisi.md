@@ -1,7 +1,7 @@
 ﻿---
 title: "Healing for this precious World is required"
 menu_title: ""
-description: "Healing for this precious World is required"
+description: "Francis of Assisi, received by Al Fike: “Each soul has a creative urge to bring beauty in the world in their own way, unique and full of grace.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

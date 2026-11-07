@@ -1,7 +1,7 @@
 ---
 title: "Hall of Peace"
 menu_title: ""
-description: "Hall of Peace"
+description: "Keea Atta Kem, received by Al Fike: “You have been given blessings there and you have found your souls being nourished and upheld, each of you blessed and …”"
 date: 2025-03-24 07:21:03+11:00
 draft: False
 hidden: True

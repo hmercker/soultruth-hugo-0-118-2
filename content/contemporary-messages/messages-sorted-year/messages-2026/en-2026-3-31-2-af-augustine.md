@@ -1,7 +1,7 @@
 ﻿---
 title: "When You Have Faith, You Can Step into the Vast Ocean of God’s Creation Without Fear"
 menu_title: ""
-description: "When You Have Faith, You Can Step into the Vast Ocean of God’s Creation Without Fear"
+description: "Augustine, received by Al Fike: “The universe is filled with truth. It would take an eternity to truly understand this and to absorb it.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

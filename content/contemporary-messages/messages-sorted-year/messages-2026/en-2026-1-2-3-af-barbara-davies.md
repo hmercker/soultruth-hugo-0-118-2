@@ -1,7 +1,7 @@
 ---
 title: "Faith and Desire Will Open the Doors to Your Instrumentality"
 menu_title: ""
-description: "Faith and Desire Will Open the Doors to Your Instrumentality"
+description: "Barbara Davies, received by Al Fike: “Oh, what children we are when we inhabit the Earth. See so very little, understand so very little.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

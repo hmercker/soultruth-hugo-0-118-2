@@ -1,7 +1,7 @@
 ---
 title: "Easter Sunday Proclamation that Jesus Will Manifest to the World Again"
 menu_title: ""
-description: "Easter Sunday Proclamation that Jesus Will Manifest to the World Again"
+description: "Jesus, received by Al Fike: “Your prayers for the great Truth of the Father's Love have great power and the ability to bring the angels of heaven into your …”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

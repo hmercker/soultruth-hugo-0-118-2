@@ -1,7 +1,7 @@
 ---
 title: "It’s Challenging and Intriguing to Make Connections with Earthlings!"
 menu_title: ""
-description: "It’s Challenging and Intriguing to Make Connections with Earthlings!"
+description: "Orion, received by Al Fike: “…of God’s creation, be yours, my beloved friends. I have been spending much time with this instrument as we are engaged on a …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

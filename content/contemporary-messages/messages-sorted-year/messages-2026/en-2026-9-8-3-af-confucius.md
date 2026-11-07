@@ -1,7 +1,7 @@
 ﻿---
 title: "Love is the Answer"
 menu_title: ""
-description: "Love is the Answer"
+description: "Confucius, received by Al Fike: “Indeed, God does love you, my beloveds. Is this not the remedy that the world requires for spiritual sustenance and …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

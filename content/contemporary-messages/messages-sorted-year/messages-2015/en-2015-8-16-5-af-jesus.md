@@ -1,7 +1,7 @@
 ﻿---
 title: "Let go and discover your true Soul Purpose"
 menu_title: ""
-description: "Let go and discover your true Soul Purpose"
+description: "Jesus, received by Al Fike: “I thank you for making that effort to be in this place together, for following your desires of your souls, for seeking …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

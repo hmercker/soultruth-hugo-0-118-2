@@ -1,7 +1,7 @@
 ﻿---
 title: "When God guides you and leads you, you are never alone"
 menu_title: ""
-description: "When God guides you and leads you, you are never alone"
+description: "Alec Gaunt, received by Al Fike: “So you have made all your preparations, you have had all your conversations, you have decided the course to take.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

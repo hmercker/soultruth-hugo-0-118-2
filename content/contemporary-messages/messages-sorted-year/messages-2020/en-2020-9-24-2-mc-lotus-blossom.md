@@ -1,7 +1,7 @@
 ---
 title: "Be Sincere in Your Prayers for the Gift of Healing"
 menu_title: ""
-description: "Be Sincere in Your Prayers for the Gift of Healing"
+description: "Lotus Blossom, received by Maureen Cardoso: “To see the light that is in your soul and to see the desire of your soul coming to know God in this close and …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

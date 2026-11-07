@@ -1,7 +1,7 @@
 ---
 title: "Addresses the Participations of Befriend Your Soul with G.R.A.C.E."
 menu_title: ""
-description: "Addresses the Participations of Befriend Your Soul with G.R.A.C.E."
+description: "Barbara Davies, received by Maureen Cardoso: “Well, dears, you have come through it, haven't you? How wonderful it has been to walk alongside you as you …”"
 date: 2025-06-18 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Be together in gracious Joy, in loving Commitment"
 menu_title: ""
-description: "Be together in gracious Joy, in loving Commitment"
+description: "Jesus, received by Al Fike: “Bless you, my children, it is Jesus. And for many of you the struggle for truth has been great.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

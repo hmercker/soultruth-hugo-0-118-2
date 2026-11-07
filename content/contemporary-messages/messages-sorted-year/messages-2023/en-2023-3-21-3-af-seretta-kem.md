@@ -1,7 +1,7 @@
 ---
 title: "Find the Balance"
 menu_title: ""
-description: "Find the Balance"
+description: "Seretta Kem, received by Al Fike: “Being in a state of harmony and balance in this material world of yours is a difficult thing indeed.”"
 date: 2025-04-17 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "We Enliven the Lattice of Light as We Pray for God's Love"
 menu_title: ""
-description: "We Enliven the Lattice of Light as We Pray for God's Love"
+description: "Jesus, received by Al Fike: “The Holy Spirit will convey this blessing to each of you, and God makes all provision for you to be blessed in this way.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,5 +1,6 @@
 ---
 title: "Warriors of Light"
+description: "Received by Al Fike: “…for the warriors of truth. For there is much in the world that needs to be corrected and healed, transformed from darkness to light …”"
 menu_title: "Isaiah talks of Warriors of Light"
 date: 2024-11-28 07:21:03+11:00
 draft: False

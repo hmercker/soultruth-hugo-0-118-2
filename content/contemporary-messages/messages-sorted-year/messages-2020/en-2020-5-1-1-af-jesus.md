@@ -1,7 +1,7 @@
 ---
 title: "Your Soul Has the Potential to Bloom as Does a Bare Twig"
 menu_title: ""
-description: "Your Soul Has the Potential to Bloom as Does a Bare Twig"
+description: "Jesus, received by Al Fike: “Children of God, I am with you. Each of you are blessed with many gifts and each of you are eager to experience the blessings …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

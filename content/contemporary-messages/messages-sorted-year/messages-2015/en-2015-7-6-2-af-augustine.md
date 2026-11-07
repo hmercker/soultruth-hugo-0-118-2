@@ -1,7 +1,7 @@
 ﻿---
 title: "Embrace all who are coming"
 menu_title: ""
-description: "Embrace all who are coming"
+description: "Augustine, received by Al Fike: “May your souls open wide to the great inflowing of our Father’s Divine Essence, the benediction of His Touch within you …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Social Isolation is a Blessing"
 menu_title: ""
-description: "Social Isolation is a Blessing"
+description: "Augustine, received by Al Fike: “You are experiencing many blessings at this time as you have isolated yourselves from many conditions that you normally …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

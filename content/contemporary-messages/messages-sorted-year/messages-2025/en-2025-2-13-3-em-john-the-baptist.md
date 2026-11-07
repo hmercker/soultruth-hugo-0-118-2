@@ -1,7 +1,7 @@
 ---
 title: "The World To Be Will Be in Harmony"
 menu_title: ""
-description: "The World To Be Will Be in Harmony"
+description: "John the Baptist, received by Elizabeth Mack: “Your blessings are pouring down upon you. As we speak, the Father is answering your prayers, your desires …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

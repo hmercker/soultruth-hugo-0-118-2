@@ -1,7 +1,7 @@
 ---
 title: "Jesus Uplifts Us So We May Receive God's Blessings"
 menu_title: ""
-description: "Jesus Uplifts Us So We May Receive God's Blessings"
+description: "Jesus, received by Elizabeth Mack: “I follow my Father's Will in all that I do and I am Master of the Celestial Heavens far above this Earth plane.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

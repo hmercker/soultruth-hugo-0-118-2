@@ -1,7 +1,7 @@
 ﻿---
 title: "Confucius addresses the Men in this Circle, those who he is charged with guiding"
 menu_title: ""
-description: "Confucius addresses the Men in this Circle, those who he is charged with guiding"
+description: "Confucius, received by Al Fike: “Willful creatures they are but indeed within their souls they carry a great desire to do God’s work; to grow in the Love …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

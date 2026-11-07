@@ -1,7 +1,7 @@
 ---
 title: "Blesses and Encourages Us"
 menu_title: ""
-description: "Blesses and Encourages Us"
+description: "Jesus, received by Al Fike: “Seek the Love of God, my beloved brothers and sisters. For with this blessing and knowledge, all things of good and of light …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

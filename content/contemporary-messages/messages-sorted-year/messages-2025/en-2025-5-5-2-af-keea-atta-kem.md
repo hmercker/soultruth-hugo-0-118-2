@@ -1,7 +1,7 @@
 ---
 title: "The Importance of Coming Together in Person"
 menu_title: ""
-description: "The Importance of Coming Together in Person"
+description: "Keea Atta Kem, received by Al Fike: “You have talked about the importance of coming together in the flesh. It affords us the opportunities to mix chemicals …”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

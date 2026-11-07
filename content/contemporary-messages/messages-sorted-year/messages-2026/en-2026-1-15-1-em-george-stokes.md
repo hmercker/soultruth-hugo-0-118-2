@@ -1,7 +1,7 @@
 ﻿---
 title: "A Gift to Uphold Souls During Chaos"
 menu_title: ""
-description: "A Gift to Uphold Souls During Chaos"
+description: "George Stokes, received by Elizabeth Mack: “May the Father’s Love be with you in great abundance, dear children of God. While in this condition of respite …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

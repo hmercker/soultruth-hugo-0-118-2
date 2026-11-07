@@ -1,7 +1,7 @@
 ---
 title: "Bring the Light of Truth"
 menu_title: ""
-description: "Bring the Light of Truth"
+description: "Mary, received by Al Fike: “I wish to bring my blessings and my wishes to you, my beloved children, that God may indeed increase the love in your hearts in …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

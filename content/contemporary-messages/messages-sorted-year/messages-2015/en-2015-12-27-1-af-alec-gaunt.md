@@ -1,7 +1,7 @@
 ﻿---
 title: "Allow the Love in your Souls to open many Doors"
 menu_title: ""
-description: "Allow the Love in your Souls to open many Doors"
+description: "Alec Gaunt, received by Al Fike: “I’m so pleased to see you come together in this way for prayer and I want to assure you that an angel is with those …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

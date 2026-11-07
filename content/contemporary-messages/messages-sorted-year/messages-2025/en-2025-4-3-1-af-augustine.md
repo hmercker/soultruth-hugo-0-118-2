@@ -1,7 +1,7 @@
 ---
 title: "Q&A"
 menu_title: ""
-description: "Q&A"
+description: "Augustine, received by Al Fike: “Question: Let us start with a question about reincarnation. Why do so many mediums believe in reincarnation?”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

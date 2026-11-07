@@ -1,7 +1,7 @@
 ---
 title: "Pray to God to Redeem Your Soul"
 menu_title: ""
-description: "Pray to God to Redeem Your Soul"
+description: "Elijah, received by Al Fike: “If there is a reason for prayer, beloved and intrepid souls, it is to redeem your soul. To establish and open the way for …”"
 date: 2025-04-15 07:21:03+11:00
 draft: False
 hidden: True

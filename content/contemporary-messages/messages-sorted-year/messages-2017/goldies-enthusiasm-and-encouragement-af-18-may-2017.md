@@ -1,7 +1,7 @@
 ---
 title: "Goldie’s Enthusiasm and Encouragement"
 menu_title: ""
-description: "Goldie’s Enthusiasm and Encouragement"
+description: "Received by Al Fike: “Goldie comes in laughing, bringing great joy! Oh, my friends, I look forward to being able to sing and dance with you in direct voice!!”"
 date: 2017-12-11 23:20:46+00:00
 draft: False
 hidden: True

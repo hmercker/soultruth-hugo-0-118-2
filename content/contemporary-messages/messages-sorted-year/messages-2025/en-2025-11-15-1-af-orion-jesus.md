@@ -1,7 +1,7 @@
 ---
 title: "The Work Will Continue Together"
 menu_title: ""
-description: "The Work Will Continue Together"
+description: "Orion & Jesus, received by Al Fike: “Orion: The work at hand has progressed sufficiently, my friends. There is still much to do, but your coming together …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

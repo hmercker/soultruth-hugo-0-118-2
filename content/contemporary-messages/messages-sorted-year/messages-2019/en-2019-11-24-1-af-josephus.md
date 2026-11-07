@@ -1,7 +1,7 @@
 ---
 title: "Questions and answers"
 menu_title: ""
-description: "Questions and answers"
+description: "Josephus, received by Al Fike: “I first wish to comment on the dear daughter’s gift of perception and creativity. Her gifts will intensify and open more …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

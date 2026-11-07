@@ -1,7 +1,7 @@
 ---
 title: "God Answers Jesus' Prayer"
 menu_title: ""
-description: "God Answers Jesus' Prayer"
+description: "Lotus Blossom, received by Maureen Cardoso: “The Master’s prayer for you has been answered by God in a way where there has been a special blessing and deep …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

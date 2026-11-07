@@ -1,7 +1,7 @@
 ---
 title: "The Fascinating Distractions to Soul Integration"
 menu_title: ""
-description: "The Fascinating Distractions to Soul Integration"
+description: "Seretta Kem, received by Al Fike: “Blessings to you, my beloved friends. Today I wish to speak of the process of integration, of the three aspects of …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

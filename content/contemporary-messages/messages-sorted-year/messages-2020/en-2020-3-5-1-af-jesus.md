@@ -1,7 +1,7 @@
 ---
 title: "I Bless You as My Disciples"
 menu_title: ""
-description: "I Bless You as My Disciples"
+description: "Jesus, received by Al Fike: “As such, I bless you as my disciples who bring this Truth more fully into the realisation and understanding of those you touch …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

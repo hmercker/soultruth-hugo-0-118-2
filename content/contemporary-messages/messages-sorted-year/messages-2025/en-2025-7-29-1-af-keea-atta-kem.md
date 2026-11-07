@@ -1,7 +1,7 @@
 ---
 title: "Love Yourself to Love the World"
 menu_title: ""
-description: "Love Yourself to Love the World"
+description: "Keea Atta Kem, received by Al Fike: “Oh, precious children of God, I am Keea Atta Kem. First and foremost, you are loved by God to such depth and breadth …”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

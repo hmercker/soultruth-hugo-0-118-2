@@ -1,7 +1,7 @@
 ---
 title: "Q&A"
 menu_title: ""
-description: "Q&A"
+description: "Orion, received by Al Fike: “There are many from different planets, quadrants in the Milky Way Galaxy, even other galaxies, individuals who are coming to …”"
 date: 2025-06-18 07:21:03+11:00
 draft: False
 hidden: True

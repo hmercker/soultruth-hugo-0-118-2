@@ -1,7 +1,7 @@
 ---
 title: "You Will be Given What You Require to Serve"
 menu_title: ""
-description: "You Will be Given What You Require to Serve"
+description: "Seretta Kem, received by Al Fike: “I have come to encourage you all on your journeys in the world. I encourage you and tell you that this coming journey to …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

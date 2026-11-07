@@ -1,7 +1,7 @@
 ---
 title: "The power of God's love"
 menu_title: ""
-description: "The power of God's love"
+description: "Jesus, received by Al Fike: “God brings His blessings upon you, beloved souls. As you continue to pray together so God weaves you together in these …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

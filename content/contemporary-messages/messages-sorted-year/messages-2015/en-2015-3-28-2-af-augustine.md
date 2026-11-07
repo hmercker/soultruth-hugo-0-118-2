@@ -1,7 +1,7 @@
 ﻿---
 title: "The Journey of Divine Love takes Time but brings great Benefits"
 menu_title: ""
-description: "The Journey of Divine Love takes Time but brings great Benefits"
+description: "Augustine, received by Al Fike: “Bless you beautiful souls, I am Augustine, once the bishop of Hippo while on Earth. I played a great part in developing …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

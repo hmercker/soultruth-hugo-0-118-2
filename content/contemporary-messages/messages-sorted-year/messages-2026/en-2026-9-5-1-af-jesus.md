@@ -1,7 +1,7 @@
 ﻿---
 title: "Allow Your Soul Desires for God to Shine Forth"
 menu_title: ""
-description: "Allow Your Soul Desires for God to Shine Forth"
+description: "Jesus, received by Al Fike: “May the gift of the Father's Love be yours, beloved souls. The floodgates are at the ready.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

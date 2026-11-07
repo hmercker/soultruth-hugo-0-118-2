@@ -1,7 +1,7 @@
 ---
 title: "Your Perceptions are Limited by Your Minds"
 menu_title: ""
-description: "Your Perceptions are Limited by Your Minds"
+description: "Jesus, received by Al Fike: “…souls, I come; I am Jesus. May the torrents of God’s Living Waters flow upon you, engulfing you in love.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

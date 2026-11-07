@@ -1,7 +1,7 @@
 ---
 title: "Confront That Which Holds You Back from Being God's Instrument of Light"
 menu_title: ""
-description: "Confront That Which Holds You Back from Being God's Instrument of Light"
+description: "Augustine, received by Al Fike: “The great challenge, of course, is to coordinate and bring into alignment these plans, these intentions, between …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True
