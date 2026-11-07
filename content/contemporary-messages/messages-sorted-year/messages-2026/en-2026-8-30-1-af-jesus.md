@@ -28,7 +28,9 @@ We are together, my beloveds. Open yourselves. Open your consciousness to the re
 
 God bless you, beloveds. I am your brother and friend, Jesus, and I love you. No matter the race, where you come, your language, all of these differences mean nothing when the souls are communing in the grace of God. God bless you. My love is with you. God bless you.
 
-Al Fike’s vision of the Hall of Peace shared post-prayer: So I have a few things to share. It was quite an amazing experience that I had going into the Hall of Peace. Every time I go there, I actually see a few more details. It started out almost like a little cave. It was not that big. The conditions in there were quite lovely, but it felt enclosed and not particularly grandiose or anything. Its appearance was very simple.
+## Al Fike’s vision of the Hall of Peace shared post-prayer:
+
+So I have a few things to share. It was quite an amazing experience that I had going into the Hall of Peace. Every time I go there, I actually see a few more details. It started out almost like a little cave. It was not that big. The conditions in there were quite lovely, but it felt enclosed and not particularly grandiose or anything. Its appearance was very simple.
 
 But this time, it was huge. It was an oval shape. I think the length of it was at least 1,000 feet, the breadth was probably 400 feet and the height was maybe 20 storeys high, something like that. This is a big, big space and the walls were luminescent and they were all festooned with garlands of flowers. All around this huge space was just flowers, lots of flowers. We were kind of guests of honour. We got to sit in the front row and these rows of seats were in the same oval shape. There is a dais in the middle and around that were the front row and then on and on. There are probably three or four thousand individuals in this church or place, the Hall of Peace.
 
