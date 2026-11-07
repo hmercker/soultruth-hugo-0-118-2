@@ -1,7 +1,7 @@
 ---
 title: "How Does One Feel the Presence of God?"
 menu_title: ""
-description: "How Does One Feel the Presence of God?"
+description: "Eileen Caddy, received by Jimbeau Walsh: “How does one feel the Presence of God? The key word here being “feel”.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Gratitude"
 menu_title: ""
-description: "Gratitude"
+description: "Joseph, received by Elizabeth Mack: “Gratitude I felt after feeling the compassion from our Heavenly Father, the mercy and the Love that my son taught …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

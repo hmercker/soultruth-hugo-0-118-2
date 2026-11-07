@@ -1,7 +1,7 @@
 ﻿---
 title: "Your World needs you dearly"
 menu_title: ""
-description: "Your World needs you dearly"
+description: "Jesus, received by Barbara Davies: “You are uniquely beautiful and wondrous, and your world needs you dearly and deeply. I have deep love and regard for …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

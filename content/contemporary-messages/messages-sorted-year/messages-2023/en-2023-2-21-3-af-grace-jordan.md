@@ -1,7 +1,7 @@
 ---
 title: "Confirms Barbara’s Message"
 menu_title: ""
-description: "Confirms Barbara’s Message"
+description: "Grace Jordan, received by Al Fike: “I too, wish to confirm the truth, and I’m so happy that my dear and beloved son follows this path.”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

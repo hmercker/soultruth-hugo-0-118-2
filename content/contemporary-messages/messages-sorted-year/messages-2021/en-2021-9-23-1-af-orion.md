@@ -1,7 +1,7 @@
 ---
 title: "All Souls in the Universe are Created with Free-will Choice to Follow the Natural or Divine Path"
 menu_title: ""
-description: "All Souls in the Universe are Created with Free-will Choice to Follow the Natural or Divine Path"
+description: "Orion, received by Al Fike: “I wish for you to know that God has seeded many places in the universe with souls waiting for their journey back to God.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

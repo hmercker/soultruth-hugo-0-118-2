@@ -1,7 +1,7 @@
 ﻿---
 title: "A Prayer from Care"
 menu_title: ""
-description: "A Prayer from Care"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “If we are in need of healing, let us reach out with our souls, that those angels who do this work will come.”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

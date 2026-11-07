@@ -1,7 +1,7 @@
 ---
 title: "Blessed are the Souls Who Yearn for God's Love"
 menu_title: ""
-description: "Blessed are the Souls Who Yearn for God's Love"
+description: "Elijah, received by Maureen Cardoso: “Blessed are the souls who yearn for the Love of God, awakened by this touch and who come to express in their lives …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Remember that when the Father opens a Door for you to do a Task, Blessings come on many different Levels"
 menu_title: ""
-description: "Remember that when the Father opens a Door for you to do a Task, Blessings come on many different Levels"
+description: "Augustine, received by Al Fike: “So you have made your plans, and you have looked at all the details, mulled over the scenarios, the possibilities, and now …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

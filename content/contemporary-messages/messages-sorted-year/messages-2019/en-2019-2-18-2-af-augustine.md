@@ -1,7 +1,7 @@
 ---
 title: "Be Receptive to God and the Celestial Angels"
 menu_title: ""
-description: "Be Receptive to God and the Celestial Angels"
+description: "Augustine, received by Al Fike: “… Wherever there are those who have an interest and a desire to pursue this gift of Divine Love, we will be with you …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

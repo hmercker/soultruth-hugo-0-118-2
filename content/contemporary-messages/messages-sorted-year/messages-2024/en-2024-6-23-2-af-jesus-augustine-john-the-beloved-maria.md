@@ -1,7 +1,7 @@
 ---
 title: "Angels Pray with Us"
 menu_title: ""
-description: "Angels Pray with Us"
+description: "Jesus, Augustine, John the Beloved and Maria, received by Al Fike: “Jesus: The angels in Heaven pray for the awakening of your souls and the awakening of …”"
 date: 2025-04-08 07:21:03+00:00
 draft: False
 hidden: True

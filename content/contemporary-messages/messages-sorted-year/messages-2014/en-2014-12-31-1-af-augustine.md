@@ -1,7 +1,7 @@
 ﻿---
 title: "Unshackle yourselves from the Conditions of this World"
 menu_title: ""
-description: "Unshackle yourselves from the Conditions of this World"
+description: "Augustine, received by Al Fike: “For you have progressed, my beloveds, you have walked this path Divine and listened to your guidance, and walked in faith …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

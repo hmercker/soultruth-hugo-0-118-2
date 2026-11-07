@@ -1,7 +1,7 @@
 ---
 title: "The Way to Heaven: Choosing Light Over Darkness"
 menu_title: ""
-description: "The Way to Heaven: Choosing Light Over Darkness"
+description: "Augustine, received by Al Fike: “How wonderful it is to see so many from different parts of your world, each one a seeker, each one diligent in their …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

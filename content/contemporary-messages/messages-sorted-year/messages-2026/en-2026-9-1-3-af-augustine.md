@@ -1,7 +1,7 @@
 ﻿---
 title: "You Must Take Heed of Our Warnings and Prepare for the Storm of Change"
 menu_title: ""
-description: "You Must Take Heed of Our Warnings and Prepare for the Storm of Change"
+description: "Augustine, received by Al Fike: “May the grace of the Father's Love be with you, my beloved students. The time fast approaches where you will be needed in …”"
 date: 2026-10-06 00:00:00+00:00
 draft: False
 hidden: True

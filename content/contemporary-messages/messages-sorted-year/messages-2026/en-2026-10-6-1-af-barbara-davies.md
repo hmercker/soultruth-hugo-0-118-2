@@ -1,7 +1,7 @@
 ﻿---
 title: "Barbara Describes How She Pushed Herself to be God’s Instrument in the World and Asks Us to Consider Our Own Instrumentality"
 menu_title: ""
-description: "Barbara Describes How She Pushed Herself to be God’s Instrument in the World and Asks Us to Consider Our Own Instrumentality"
+description: "Barbara Davies, received by Al Fike: “Thank you and blessings to you, dear sister, one who I know well and am close to in guidance and in friendship.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Walk in the World as loving Channels to one another"
 menu_title: ""
-description: "Walk in the World as loving Channels to one another"
+description: "Alec Gaunt, received by Al Fike: “... and I too wish to add my love and my appreciation for your efforts, beautiful souls, and I want you to know that many …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

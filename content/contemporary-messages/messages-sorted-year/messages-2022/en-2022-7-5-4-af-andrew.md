@@ -1,7 +1,7 @@
 ---
 title: "We Are All Loved"
 menu_title: ""
-description: "We Are All Loved"
+description: "Andrew, received by Al Fike: “No matter where you are upon this journey of soul awakening, know that there is and are blessings given equally to all of you.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

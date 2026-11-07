@@ -1,7 +1,7 @@
 ---
 title: "Be a Channel of Love"
 menu_title: ""
-description: "Be a Channel of Love"
+description: "Andrew, received by Al Fike: “I see that you walk amongst a great variation of the human condition. I wish to remind you, beloved souls, that you may act …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

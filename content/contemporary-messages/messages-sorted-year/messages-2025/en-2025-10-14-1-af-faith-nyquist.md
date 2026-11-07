@@ -1,7 +1,7 @@
 ---
 title: "Anchor Your Life in Prayer"
 menu_title: ""
-description: "Anchor Your Life in Prayer"
+description: "Faith Nyquist, received by Al Fike: “Blessings to you, my beloved friends. Make prayer the anchor to your life, my friends, for when you create your …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

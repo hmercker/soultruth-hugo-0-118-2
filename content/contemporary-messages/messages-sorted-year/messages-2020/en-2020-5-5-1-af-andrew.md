@@ -1,7 +1,7 @@
 ---
 title: "The Great River of God's Love"
 menu_title: ""
-description: "The Great River of God's Love"
+description: "Andrew, received by Al Fike: “Blessed are all of you who are lights in the world. In this Circle of Light, you are like a necklace of pearls, God's …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

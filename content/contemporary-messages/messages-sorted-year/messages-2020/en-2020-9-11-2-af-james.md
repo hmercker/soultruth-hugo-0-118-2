@@ -1,7 +1,7 @@
 ---
 title: "The Power of Prayer"
 menu_title: ""
-description: "The Power of Prayer"
+description: "James, received by Al Fike: “May blessings of His Love be upon each one of you, my beloved brothers and sisters. We are greatly encouraged by your …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

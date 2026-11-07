@@ -1,7 +1,7 @@
 ---
 title: "This Gift of Love Will Carry You Through"
 menu_title: ""
-description: "This Gift of Love Will Carry You Through"
+description: "Mary, received by Al Fike: “…my beloveds, my beloved's, I am Mary. May you come to know the peace that passes all understanding, that God’s Hands may rest …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

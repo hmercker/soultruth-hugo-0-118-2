@@ -1,7 +1,7 @@
 ---
 title: "Blessings for Everyone on the Ship"
 menu_title: ""
-description: "Blessings for Everyone on the Ship"
+description: "Joseph, received by Elizabeth Mack: “Lift up your souls for the great blessings of God’s Love to pour into your souls. There are many who are here with you.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

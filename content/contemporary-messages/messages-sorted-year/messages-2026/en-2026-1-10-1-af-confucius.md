@@ -1,7 +1,7 @@
 ---
 title: "Finds Humour in Our Conversations About Truth"
 menu_title: ""
-description: "Finds Humour in Our Conversations About Truth"
+description: "Confucius, received by Al Fike: “You have your own words and your own thoughts. No one man or woman here knows all the truth, but each of you is a walking …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

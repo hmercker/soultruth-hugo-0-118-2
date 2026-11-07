@@ -1,7 +1,7 @@
 ---
 title: "Guidance for Hosting Circles of Light"
 menu_title: ""
-description: "Guidance for Hosting Circles of Light"
+description: "Augustine, received by Al Fike: “This medium is used to making a rapport with a Celestial angel and in the process of making a rapport, he senses an …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

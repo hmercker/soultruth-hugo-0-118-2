@@ -1,7 +1,7 @@
 ﻿---
 title: "His Love clears away the Shadows and the Mists, allowing you to know your own Souls"
 menu_title: ""
-description: "His Love clears away the Shadows and the Mists, allowing you to know your own Souls"
+description: "Augustine, received by Al Fike: “As you clear away the obstructions within you and learn to truly love and acknowledge yourselves as the true and beautiful …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

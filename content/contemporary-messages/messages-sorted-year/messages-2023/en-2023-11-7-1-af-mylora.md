@@ -1,7 +1,7 @@
 ---
 title: "Comments on Levels of Healing"
 menu_title: ""
-description: "Comments on Levels of Healing"
+description: "Mylora, received by Al Fike: “Friends, I am Mylora and I come to bring my healing energies as do many angels to come to bring upliftment and light and …”"
 date: 2025-07-01 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Learning Comes Through Life's Experiences"
 menu_title: ""
-description: "Learning Comes Through Life's Experiences"
+description: "Keea Atta Kem, received by Maureen Cardoso: “Your learning comes from within through your life's examples and experiences. In order for true healing to …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

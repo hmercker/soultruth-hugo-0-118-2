@@ -1,7 +1,7 @@
 ---
 title: "There is a Wealth of Information about Truths in Messages Given"
 menu_title: ""
-description: "There is a Wealth of Information about Truths in Messages Given"
+description: "James Padgett, received by Al Fike: “May the Father’s Love flow into your soul, my friends. All the truth that is God’s Love, His Presence, His Soul, your …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

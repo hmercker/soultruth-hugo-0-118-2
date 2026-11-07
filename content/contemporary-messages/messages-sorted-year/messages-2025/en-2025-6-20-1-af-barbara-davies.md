@@ -1,7 +1,7 @@
 ---
 title: "Live your Life With Love"
 menu_title: ""
-description: "Live your Life With Love"
+description: "Barbara Davies, received by Al Fike: “May the Father's Love continue to awaken you, dear friends. Every day is a gift from God.”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

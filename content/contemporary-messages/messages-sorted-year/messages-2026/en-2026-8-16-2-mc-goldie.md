@@ -1,7 +1,7 @@
 ﻿---
 title: "Boundless Joy, Boundless Love"
 menu_title: ""
-description: "Boundless Joy, Boundless Love"
+description: "Goldie, received by Maureen Cardoso: “An expression of expandedness for true joy knows no bounds, just as pure love has no bounds.”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

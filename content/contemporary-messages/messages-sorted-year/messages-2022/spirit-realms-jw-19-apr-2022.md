@@ -1,5 +1,6 @@
 ---
 title: "Spirit Realms"
+description: "Received by Jimbeau Walsh: “My brother, I am pleased with what you received the other day to make those souls aware of what Anthony Borgia channeled …”"
 menu_title: ""
 descriLtion: "Robert Hugh Benson talks of the Spirit Realms"
 date: 2022-06-09 07:21:03+11:00

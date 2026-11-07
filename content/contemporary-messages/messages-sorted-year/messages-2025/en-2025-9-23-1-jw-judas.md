@@ -1,7 +1,7 @@
 ---
 title: "May the Blessing of God's Love be in this Place and touch every Soul who enters"
 menu_title: ""
-description: "May the Blessing of God's Love be in this Place and touch every Soul who enters"
+description: "Judas, received by Jimbeau Walsh: “I wish to acknowledge and honor this family open to the path of Divine Love and having committed themselves to service …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

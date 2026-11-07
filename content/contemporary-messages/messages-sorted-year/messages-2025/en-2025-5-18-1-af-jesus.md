@@ -1,7 +1,7 @@
 ---
 title: "A Magnificent Blessing of God’s Love in Response to Prayers"
 menu_title: ""
-description: "A Magnificent Blessing of God’s Love in Response to Prayers"
+description: "Jesus, received by Al Fike: “Allow the grace of God to enfold you, beloveds. For my desire and my joy is in this relationship with our Heavenly Father.”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

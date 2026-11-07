@@ -1,7 +1,7 @@
 ﻿---
 title: "The title of Reverend does not necessarily indicate Soul Progression but if earned in Prayer, has some Value"
 menu_title: ""
-description: "The title of Reverend does not necessarily indicate Soul Progression but if earned in Prayer, has some Value"
+description: "Augustine, received by Al Fike: “May His Love find a constant inflowing into your souls. For those who see these titles as important, the doors will be …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

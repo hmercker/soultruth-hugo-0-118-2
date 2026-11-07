@@ -1,7 +1,7 @@
 ---
 title: "You are all part of God's plan"
 menu_title: ""
-description: "You are all part of God's plan"
+description: "Augustine, received by Al Fike: “How good it is to be speaking through this instrument in this place where I have spoken many times to my beloved brothers …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

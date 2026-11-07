@@ -1,7 +1,7 @@
 ---
 title: "Bring Joy to All You Do"
 menu_title: ""
-description: "Bring Joy to All You Do"
+description: "Goldie, received by Maureen Cardoso: “I think there needs to be a dusting of joy and sprinkling of sparkly dust upon you all. Bring joy into everything …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

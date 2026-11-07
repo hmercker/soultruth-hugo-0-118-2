@@ -1,7 +1,7 @@
 ﻿---
 title: "We cannot interfere with the Free Will of Mankind"
 menu_title: ""
-description: "We cannot interfere with the Free Will of Mankind"
+description: "Andrew, received by Al Fike: “Please do not blame God for this outcome that is disappointing, for this is the result of the human condition.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

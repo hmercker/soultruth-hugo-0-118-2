@@ -1,7 +1,7 @@
 ---
 title: "This is Your Work"
 menu_title: ""
-description: "This is Your Work"
+description: "Yogananda, received by Jimbeau Walsh: “So many messages from us in such a short period of time you have received. I watched you as you were amazed at your …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

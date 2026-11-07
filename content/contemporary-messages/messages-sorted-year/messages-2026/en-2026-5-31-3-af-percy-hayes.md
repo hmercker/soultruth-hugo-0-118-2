@@ -1,7 +1,7 @@
 ﻿---
 title: "The FUSC is a Refuge of Light"
 menu_title: ""
-description: "The FUSC is a Refuge of Light"
+description: "Percy Hayes, received by Al Fike: “May you continue to avail yourselves of what is here, for much effort is made by we in spirit to create the conditions …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

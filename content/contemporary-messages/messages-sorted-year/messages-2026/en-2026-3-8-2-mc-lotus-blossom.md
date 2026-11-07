@@ -1,7 +1,7 @@
 ﻿---
 title: "The Creative Flowering Of the Soul Through Divine Love"
 menu_title: ""
-description: "The Creative Flowering Of the Soul Through Divine Love"
+description: "Lotus Blossom, received by Maureen Cardoso: “As you come into that rested place within you that allows the longings of your soul to open to God's Essence …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

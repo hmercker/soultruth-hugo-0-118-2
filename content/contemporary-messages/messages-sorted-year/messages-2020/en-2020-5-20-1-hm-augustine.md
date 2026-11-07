@@ -1,7 +1,7 @@
 ---
 title: "A Morning Greeting"
 menu_title: ""
-description: "A Morning Greeting"
+description: "Augustine, received by Helge Mercker: “My daughter, it is a good time to write as you are in a receptive condition and open to receiving my words.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

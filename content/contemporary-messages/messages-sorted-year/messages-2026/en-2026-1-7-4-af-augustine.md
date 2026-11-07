@@ -1,7 +1,7 @@
 ---
 title: "Seek the Limitless Love of God and Do Not Hold Yourself Back"
 menu_title: ""
-description: "Seek the Limitless Love of God and Do Not Hold Yourself Back"
+description: "Augustine, received by Al Fike: “I lived many centuries ago, and my path toward God was varied. It had its dead ends in the journey, but in time, I came to …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Jesus, received by Barbara Davies: “You have been blessed by Divine Love. Each of you, my beloveds, you have received this blessing.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

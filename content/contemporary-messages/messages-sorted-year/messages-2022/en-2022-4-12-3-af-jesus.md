@@ -1,7 +1,7 @@
 ---
 title: "Guidance for our Service to God"
 menu_title: ""
-description: "Guidance for our Service to God"
+description: "Jesus, received by Al Fike: “For, how can others know of it if it is not shared and spoken? How can others feel the gift, the Touch of God’s Love, if they …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

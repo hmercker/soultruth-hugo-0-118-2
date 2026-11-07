@@ -1,7 +1,7 @@
 ---
 title: "There is not a Hair's Breadth"
 menu_title: ""
-description: "There is not a Hair's Breadth"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “May the love of God be upon us. ‘Tis the season to sing a joyful song unto the Lord. ‘Tis the season to give …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

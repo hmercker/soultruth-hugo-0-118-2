@@ -1,7 +1,7 @@
 ---
 title: "Guidance for European Trip"
 menu_title: ""
-description: "Guidance for European Trip"
+description: "Augustine & Andrew, received by Al Fike: “Augustine: It is your teacher, Augustine. We are happy with the progress you have made so far in your plans.”"
 date: 2025-03-24 07:21:03+11:00
 draft: False
 hidden: True

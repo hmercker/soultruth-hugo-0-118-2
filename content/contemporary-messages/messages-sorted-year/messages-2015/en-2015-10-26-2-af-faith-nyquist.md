@@ -1,7 +1,7 @@
 ﻿---
 title: "Guidance about our Choices in the Flow of God’s Love"
 menu_title: ""
-description: "Guidance about our Choices in the Flow of God’s Love"
+description: "Faith Nyquist, received by Al Fike: “As you begin to release your will to the Father’s Will, so your worries and cares are absorbed in your faith and trust …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

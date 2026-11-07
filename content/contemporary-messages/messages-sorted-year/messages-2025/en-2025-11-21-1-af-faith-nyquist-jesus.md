@@ -1,7 +1,7 @@
 ---
 title: "The Journey of Love: Embracing the Soul's Highest Calling"
 menu_title: ""
-description: "The Journey of Love: Embracing the Soul's Highest Calling"
+description: "Faith Nyquist & Jesus, received by Al Fike: “The journey of life is all about how to learn how to love. Of course, as you take that journey of life, you …”"
 date: 2025-12-17 06:00:00+00:00
 draft: False
 hidden: True

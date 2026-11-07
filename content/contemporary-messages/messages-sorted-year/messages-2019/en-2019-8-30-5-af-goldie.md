@@ -1,7 +1,7 @@
 ---
 title: "Have Fun While You are Together"
 menu_title: ""
-description: "Have Fun While You are Together"
+description: "Goldie, received by Al Fike: “Be sure to have fun, my friends, while you are together. Life is not all seriousness and worry and concern for your brothers …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

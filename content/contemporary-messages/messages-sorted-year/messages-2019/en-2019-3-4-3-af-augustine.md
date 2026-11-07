@@ -1,7 +1,7 @@
 ---
 title: "A Bridge is Set Before You"
 menu_title: ""
-description: "A Bridge is Set Before You"
+description: "Augustine, received by Al Fike: “A bridge is set before each of you, beloved souls. God invites, and if you are willing to accept this invitation then …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

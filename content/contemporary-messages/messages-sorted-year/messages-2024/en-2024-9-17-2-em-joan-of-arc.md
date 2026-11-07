@@ -1,7 +1,7 @@
 ---
 title: "Open Your Souls Wide to Receive God's Love"
 menu_title: ""
-description: "Open Your Souls Wide to Receive God's Love"
+description: "Joan of Arc, received by Elizabeth Mack: “You feel the Touch of God upon your souls, the gentleness of His blessings that pour down upon you at this time.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

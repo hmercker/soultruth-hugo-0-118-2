@@ -1,7 +1,7 @@
 ---
 title: "Remarkable Indeed Will Be This Journey"
 menu_title: ""
-description: "Remarkable Indeed Will Be This Journey"
+description: "Professor Salyards, received by Al Fike: “Blessings to you my friends, I am your Professor Salyards. I think you will find as time goes on that there will …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

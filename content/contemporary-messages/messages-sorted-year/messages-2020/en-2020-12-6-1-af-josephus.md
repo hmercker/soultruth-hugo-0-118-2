@@ -1,7 +1,7 @@
 ---
 title: "Layers of Consciousness in the Soul Mind and Material Mind"
 menu_title: ""
-description: "Layers of Consciousness in the Soul Mind and Material Mind"
+description: "Josephus, received by Al Fike: “Blessings be upon you, my beloved friends. I thank this instrument for allowing me to speak and I thank you all for …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Power of Divine Love Is a Great Responsibility"
 menu_title: ""
-description: "The Power of Divine Love Is a Great Responsibility"
+description: "Peter & Samuel, received by Elizabeth Mack: “I follow my Master, who is Jesus who is Master of the Celestial Heavens and I come to tell you what you may …”"
 date: 2025-03-20 07:21:03+11:00
 draft: False
 hidden: True

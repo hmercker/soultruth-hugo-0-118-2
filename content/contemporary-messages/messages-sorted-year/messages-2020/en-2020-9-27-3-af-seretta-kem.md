@@ -1,7 +1,7 @@
 ---
 title: "Greater Opportunities are Coming for Service"
 menu_title: ""
-description: "Greater Opportunities are Coming for Service"
+description: "Seretta Kem, received by Al Fike: “Like this instrument, each of you will have experiences, opportunities, revelations, openings that will enhance your …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

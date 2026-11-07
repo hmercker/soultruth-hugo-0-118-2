@@ -1,7 +1,7 @@
 ---
 title: "It is the uni-verse of song"
 menu_title: ""
-description: "It is the uni-verse of song"
+description: "Jesus, received by Jimbeau Walsh: “The Father’s love responds to the hope of this world to be at peace, the desire of the heart to be loved, the wish of …”"
 date: 2025-06-13 07:21:03+00:00
 draft: False
 hidden: True

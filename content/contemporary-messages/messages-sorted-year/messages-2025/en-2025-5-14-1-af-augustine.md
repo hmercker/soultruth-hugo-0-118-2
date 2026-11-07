@@ -1,7 +1,7 @@
 ---
 title: "Guidance for Happy Mediums"
 menu_title: ""
-description: "Guidance for Happy Mediums"
+description: "Augustine, received by Al Fike: “Remember that each individual has their own path and their own expression of gifts. In your world, it is most common to …”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

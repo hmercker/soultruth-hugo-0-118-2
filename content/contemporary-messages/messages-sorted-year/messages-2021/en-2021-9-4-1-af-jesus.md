@@ -1,7 +1,7 @@
 ---
 title: "Blessings on Our Journeys...A Door is Opening"
 menu_title: ""
-description: "Blessings on Our Journeys...A Door is Opening"
+description: "Jesus, received by Al Fike: “So you are being blessed by God, guided by God upon your journeys. The great journey of the awakening of the soul is about to …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

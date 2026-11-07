@@ -1,7 +1,7 @@
 ---
 title: "Each Day is a Blessing and Opportunity to Progress"
 menu_title: ""
-description: "Each Day is a Blessing and Opportunity to Progress"
+description: "Augustine, received by Al Fike: “You may come to the end of a segment of development and awakening of the soul, but this surely is not the end of your …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Her Life of Service and How We May Do the Same"
 menu_title: ""
-description: "Her Life of Service and How We May Do the Same"
+description: "Barbara Davies, received by Al Fike: “My friends, I am Barbara, one who has been in spirit for a few years, but not many. I took on that challenge when I …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

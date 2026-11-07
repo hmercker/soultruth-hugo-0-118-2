@@ -1,7 +1,7 @@
 ---
 title: "It Is All About the Love"
 menu_title: ""
-description: "It Is All About the Love"
+description: "John Hughes, received by Elizabeth Mack: “How many expressions can there possibly be of love? The Father has created many unique souls with unique …”"
 date: 2025-07-20 07:21:03+11:00
 draft: False
 hidden: True

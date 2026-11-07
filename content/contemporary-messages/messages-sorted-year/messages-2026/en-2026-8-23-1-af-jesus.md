@@ -1,7 +1,7 @@
 ﻿---
 title: "Be Ready and Prepared for the Imminent Shift in Humanity's Reality"
 menu_title: ""
-description: "Be Ready and Prepared for the Imminent Shift in Humanity's Reality"
+description: "Jesus, received by Al Fike: “The awakening is upon you, my beloveds. The awakening of humanity is imminent.”"
 date: 2026-10-06 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Guidance for Each DL Mediumship Participant to Examine Their Motivation"
 menu_title: ""
-description: "Guidance for Each DL Mediumship Participant to Examine Their Motivation"
+description: "Augustine, received by Al Fike: “We are very pleased that a number of individuals are willing to take the time and effort to gather in your mediumship circle.”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

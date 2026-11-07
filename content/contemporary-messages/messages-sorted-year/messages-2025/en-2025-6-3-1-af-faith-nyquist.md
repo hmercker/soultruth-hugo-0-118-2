@@ -1,7 +1,7 @@
 ---
 title: "Ask to Be of Service"
 menu_title: ""
-description: "Ask to Be of Service"
+description: "Faith Nyquist, received by Al Fike: “… children of God, may you find your way into greater light, your souls awakened to greater love.”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

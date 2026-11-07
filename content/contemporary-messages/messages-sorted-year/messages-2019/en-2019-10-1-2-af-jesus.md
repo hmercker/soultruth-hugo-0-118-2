@@ -1,7 +1,7 @@
 ---
 title: "I Will Lead You to Holy Communion"
 menu_title: ""
-description: "I Will Lead You to Holy Communion"
+description: "Jesus, received by Al Fike: “I bring you my blessings, beloved souls, my brothers and sisters whom I embrace in love, who are truly beloved by God.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

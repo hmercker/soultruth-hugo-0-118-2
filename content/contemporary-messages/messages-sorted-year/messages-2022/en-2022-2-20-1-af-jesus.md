@@ -1,7 +1,7 @@
 ---
 title: "Release your Cares to God"
 menu_title: ""
-description: "Release your Cares to God"
+description: "Jesus, received by Al Fike: “That openness comes with the yearning and desire within. The truth comes with a soul receptive, desiring to be in alignment …”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "All is Moving Towards Greater Harmony"
 menu_title: ""
-description: "All is Moving Towards Greater Harmony"
+description: "Francis of Assisi, received by Al Fike: “There are many angels with us today bringing with them many blessings and spiritual gifts for each one of you …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

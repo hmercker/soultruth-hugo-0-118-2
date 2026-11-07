@@ -1,7 +1,7 @@
 ---
 title: "Implores Us to Seek the Light for Our Souls and For Our Families"
 menu_title: ""
-description: "Implores Us to Seek the Light for Our Souls and For Our Families"
+description: "Jesus, received by Al Fike: “The world needs you, beloved souls. The world is in trouble, in turmoil and in darkness.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

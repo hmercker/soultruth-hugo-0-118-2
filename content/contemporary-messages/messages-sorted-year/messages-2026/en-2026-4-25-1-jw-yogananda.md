@@ -1,7 +1,7 @@
 ﻿---
 title: "A Change of Heart"
 menu_title: ""
-description: "A Change of Heart"
+description: "Yogananda, received by Jimbeau Walsh: “I wish to speak directly of service in a world so absorbed in the material that it seems as if you need a sword of …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

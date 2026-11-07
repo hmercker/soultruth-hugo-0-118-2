@@ -1,7 +1,7 @@
 ---
 title: "Lorna Scott communicates after her passing"
 menu_title: ""
-description: "Lorna Scott communicates after her passing"
+description: "Received by Al Fike: “I have now progressed to the Fifth and I am very happy there. Oh what I have experienced and known since I passed from the land of …”"
 date: 2024-01-15 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Seek the Reality of God"
 menu_title: ""
-description: "Seek the Reality of God"
+description: "Orion, received by Al Fike: “Each of you is eager to experience the subtleties and complexities of the Divine creation and the Divine Being.”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

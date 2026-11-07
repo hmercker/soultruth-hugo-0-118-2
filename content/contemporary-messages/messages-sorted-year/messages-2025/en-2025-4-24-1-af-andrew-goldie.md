@@ -1,7 +1,7 @@
 ---
 title: "Guidance for Jeanne and Al Before They Leave for California"
 menu_title: ""
-description: "Guidance for Jeanne and Al Before They Leave for California"
+description: "Andrew & Goldie, received by Al Fike: “Andrew: We do indeed have purpose. Each day will have its purpose specifically and generally.”"
 date: 2025-06-10 00:00:00+00:00
 draft: False
 hidden: True

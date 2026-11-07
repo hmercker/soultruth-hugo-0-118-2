@@ -1,7 +1,7 @@
 ---
 title: "Each Soul Will Recognize it Has Been Touched by God"
 menu_title: ""
-description: "Each Soul Will Recognize it Has Been Touched by God"
+description: "Raphael & Gabriel, received by Elizabeth Mack: “There is one here who is called Raphael, who is not a Celestial angel, but who George has confirmed is a …”"
 date: 2025-07-22 07:21:03+00:00
 draft: False
 hidden: True

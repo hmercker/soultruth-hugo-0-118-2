@@ -1,7 +1,7 @@
 ---
 title: "Encourages a Review of Judas Messages to Strengthen Knowledge of Higher Truths"
 menu_title: ""
-description: "Encourages a Review of Judas Messages to Strengthen Knowledge of Higher Truths"
+description: "Judas, received by Al Fike: “There is much in there that will help you along the path and help you to understand things.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

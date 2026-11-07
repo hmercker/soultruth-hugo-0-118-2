@@ -1,7 +1,7 @@
 ---
 title: "Blessings Will Come"
 menu_title: ""
-description: "Blessings Will Come"
+description: "Keea Atta Kem, received by Al Fike: “All of your plans will be realized, beloved souls. There’s much work to do and it lays ahead of you, beckoning you …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

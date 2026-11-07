@@ -1,7 +1,7 @@
 ---
 title: "There is a Purpose for Each One of You Called to Gather Here"
 menu_title: ""
-description: "There is a Purpose for Each One of You Called to Gather Here"
+description: "Joseph Babinsky, received by Elizabeth Mack: “I welcome you to this home that is already filled with our brothers and sisters from the Celestial Spheres.”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

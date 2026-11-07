@@ -1,7 +1,7 @@
 ---
 title: "Go to the Father, Open and Willing"
 menu_title: ""
-description: "Go to the Father, Open and Willing"
+description: "Jesus, received by Elizabeth Mack: “For He has much Love that is available to give to each one of you as you approach your missions, as you go out to your …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

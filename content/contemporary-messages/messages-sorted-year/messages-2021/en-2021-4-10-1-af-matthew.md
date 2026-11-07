@@ -1,7 +1,7 @@
 ---
 title: "My Commitment To You Is Absolute"
 menu_title: ""
-description: "My Commitment To You Is Absolute"
+description: "Matthew, received by Al Fike: “May God continue to support His children as He has done for millennia. He has supported His children of Light, upheld and …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

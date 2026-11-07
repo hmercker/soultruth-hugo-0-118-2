@@ -1,7 +1,7 @@
 ﻿---
 title: "It is Time to Step Forward in Divine Service"
 menu_title: ""
-description: "It is Time to Step Forward in Divine Service"
+description: "Jesus, received by Al Fike: “That even upon that road that may seem difficult, even impossible, if this is God's Will, God's Will will be done and you will …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

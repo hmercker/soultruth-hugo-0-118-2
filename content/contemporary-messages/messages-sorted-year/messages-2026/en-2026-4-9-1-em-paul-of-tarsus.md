@@ -1,7 +1,7 @@
 ﻿---
 title: "You Are Part of the Blessings Helping to Transform This Earth"
 menu_title: ""
-description: "You Are Part of the Blessings Helping to Transform This Earth"
+description: "Paul of Tarsus, received by Elizabeth Mack: “I welcome this opportunity to pray with you and to bring to you my love and the blessings that I have to …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

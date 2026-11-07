@@ -1,7 +1,7 @@
 ---
 title: "You Have Chosen to Learn from All Your Trials and Tribulations"
 menu_title: ""
-description: "You Have Chosen to Learn from All Your Trials and Tribulations"
+description: "Orion, received by Al Fike: “From my observations, I would say the trials and tribulations have always been a part of your life on Earth, even from the …”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

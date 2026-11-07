@@ -1,5 +1,6 @@
 ---
 title: "Big Island of Hawaii Opening Prayer"
+description: "Received by Al Fike: “May the blessings of the Heavenly Father rain down upon you, beloved souls. Indeed, I am very close and I am very happy to greet you …”"
 menu_title: "Seretta Kem and Martha with the Big Island of Hawaii Opening Prayer"
 date: 2024-06-03 07:21:03+11:00
 draft: False

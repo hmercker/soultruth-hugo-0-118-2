@@ -1,7 +1,7 @@
 ---
 title: "We Are All Engaged Upon A Tremendous Undertaking"
 menu_title: ""
-description: "We Are All Engaged Upon A Tremendous Undertaking"
+description: "Matthew, received by Al Fike: “We are all engaged upon a tremendous undertaking, a project that is designed to build a stairway to higher truth, to greater …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

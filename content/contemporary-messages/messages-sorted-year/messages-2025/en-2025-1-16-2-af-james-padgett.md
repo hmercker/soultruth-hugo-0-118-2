@@ -1,7 +1,7 @@
 ---
 title: "Comes to Challenge our Thinking About Bringing Divine Truths to the World"
 menu_title: ""
-description: "Comes to Challenge our Thinking About Bringing Divine Truths to the World"
+description: "James Padgett, received by Al Fike: “A beautiful soul shining forth in light. My friends, when you say that to convey the words of truth to your brothers …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

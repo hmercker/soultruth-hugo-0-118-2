@@ -1,7 +1,7 @@
 ---
 title: "A Gift of Healing"
 menu_title: ""
-description: "A Gift of Healing"
+description: "Mary, received by Elizabeth Mack: “You seek healings, my beloved children, and you come to God for them from the depths of your souls.”"
 date: 2025-07-20 07:21:03+11:00
 draft: False
 hidden: True

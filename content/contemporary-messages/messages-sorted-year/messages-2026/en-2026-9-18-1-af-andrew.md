@@ -1,7 +1,7 @@
 ﻿---
 title: "The More You Can Resist the Human Conditions of the World, the More the Angels Can Utilise Your Gifts"
 menu_title: ""
-description: "The More You Can Resist the Human Conditions of the World, the More the Angels Can Utilise Your Gifts"
+description: "Andrew, received by Al Fike: “Oh, beloved souls, may the Love of the Father continue to inflow into your beautiful souls.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

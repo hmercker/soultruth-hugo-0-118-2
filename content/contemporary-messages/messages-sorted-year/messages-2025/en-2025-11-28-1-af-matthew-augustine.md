@@ -1,7 +1,7 @@
 ---
 title: "Your Destiny as God's Instruments: Shine Truth and Love in the World"
 menu_title: ""
-description: "Your Destiny as God's Instruments: Shine Truth and Love in the World"
+description: "Matthew & Augustine, received by Al Fike: “You are the intrepid seekers of truth. Each one of you has spent your lives seeking to be in harmony with who …”"
 date: 2025-12-17 06:00:00+00:00
 draft: False
 hidden: True

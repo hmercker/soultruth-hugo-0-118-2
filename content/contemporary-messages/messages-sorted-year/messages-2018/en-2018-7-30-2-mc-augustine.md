@@ -1,7 +1,7 @@
 ﻿---
 title: "The Awakening Soul"
 menu_title: ""
-description: "The Awakening Soul"
+description: "Augustine, received by Maureen Cardoso: “I wish to talk about the awakening soul. By receiving the great gift of Divine Love upon your souls the condition …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

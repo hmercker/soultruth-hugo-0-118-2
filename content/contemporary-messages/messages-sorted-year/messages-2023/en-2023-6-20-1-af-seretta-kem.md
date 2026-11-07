@@ -1,7 +1,7 @@
 ---
 title: "Preparation Guidance for DV Retreat"
 menu_title: ""
-description: "Preparation Guidance for DV Retreat"
+description: "Seretta Kem, received by Al Fike: “From now to the time when you meet, I would suggest that you cultivate an environment of peace around you.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

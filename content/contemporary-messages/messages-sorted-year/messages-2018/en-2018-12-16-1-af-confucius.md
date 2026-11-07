@@ -1,7 +1,7 @@
 ﻿---
 title: "Prepare yourself for the Times ahead"
 menu_title: ""
-description: "Prepare yourself for the Times ahead"
+description: "Confucius, received by Al Fike: “Welcome, brothers and sisters. We have work to do, do we not, beloved souls?”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

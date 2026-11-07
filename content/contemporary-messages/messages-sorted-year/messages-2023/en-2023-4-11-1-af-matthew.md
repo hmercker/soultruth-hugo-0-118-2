@@ -1,7 +1,7 @@
 ---
 title: "Communion with God is subtle, Gentle and Requires Persistent Effort"
 menu_title: ""
-description: "Communion with God is subtle, Gentle and Requires Persistent Effort"
+description: "Matthew, received by Al Fike: “A love of God is readily available to you. As you offer those words, “Dear and Beloved God, Open my soul to the great …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

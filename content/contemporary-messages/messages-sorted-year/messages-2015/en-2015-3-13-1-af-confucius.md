@@ -1,7 +1,7 @@
 ﻿---
 title: "Walk through the World to be loving and accepting is a powerful Testimony to the Power of God’s Love"
 menu_title: ""
-description: "Walk through the World to be loving and accepting is a powerful Testimony to the Power of God’s Love"
+description: "Confucius, received by Al Fike: “Precious and beloved souls, it is Confucius. We have been with you upon your journeys within your vehicle.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

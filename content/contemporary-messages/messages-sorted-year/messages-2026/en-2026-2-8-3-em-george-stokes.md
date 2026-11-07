@@ -1,7 +1,7 @@
 ---
 title: "The Blessing of Serving God"
 menu_title: ""
-description: "The Blessing of Serving God"
+description: "George Stokes, received by Elizabeth Mack: “There are many angels who are here, but I will come forward. We have been waiting for this circle in particular …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

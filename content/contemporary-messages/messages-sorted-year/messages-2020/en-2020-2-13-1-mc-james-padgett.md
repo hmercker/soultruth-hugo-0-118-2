@@ -1,7 +1,7 @@
 ---
 title: "James Padgett on How He Received Spirit Messages While on Earth"
 menu_title: ""
-description: "James Padgett on How He Received Spirit Messages While on Earth"
+description: "James Padgett, received by Maureen Cardoso: “I join you in your Circle of Light. Many of you gathering here for the first time coming to experience what it …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

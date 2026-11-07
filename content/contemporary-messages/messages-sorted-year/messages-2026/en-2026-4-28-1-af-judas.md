@@ -1,7 +1,7 @@
 ﻿---
 title: "The Power of Free Will to Reinforce or Counteract the Harmony of God's Universe"
 menu_title: ""
-description: "The Power of Free Will to Reinforce or Counteract the Harmony of God's Universe"
+description: "Judas, received by Al Fike: “God created a universe filled with benevolence, a universe that is designed to progress in harmony, a universe that, by …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

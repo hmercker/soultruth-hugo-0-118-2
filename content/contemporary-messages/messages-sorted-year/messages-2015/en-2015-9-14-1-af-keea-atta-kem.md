@@ -1,7 +1,7 @@
 ﻿---
 title: "Attitude of Gratitude"
 menu_title: ""
-description: "Attitude of Gratitude"
+description: "Keea Atta Kem, received by Al Fike: “A grateful soul is an open soul. When you look at your lives in this way, when you seek the Light, when you accentuate …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Love Without Judgment"
 menu_title: ""
-description: "Love Without Judgment"
+description: "Barbara Davies, received by Al Fike: “As you may have suspected, I have been with you for the whole time, enjoying your company and your conversations …”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

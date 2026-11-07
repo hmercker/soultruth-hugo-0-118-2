@@ -1,7 +1,7 @@
 ---
 title: "What you choose draws Spirits unto you that are vibrating at the same level"
 menu_title: ""
-description: "What you choose draws Spirits unto you that are vibrating at the same level"
+description: "Judas, received by Jimbeau Walsh: “I have spoken before about the necessity to be aware of what you send out and what you receive.”"
 date: 2025-07-31 07:21:03+00:00
 draft: False
 hidden: True

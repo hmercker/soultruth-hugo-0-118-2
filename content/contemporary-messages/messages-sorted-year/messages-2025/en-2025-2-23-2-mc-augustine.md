@@ -1,7 +1,7 @@
 ---
 title: "The Concept of Time: in the Reality of the Soul, Time Does Not Exist"
 menu_title: ""
-description: "The Concept of Time: in the Reality of the Soul, Time Does Not Exist"
+description: "Augustine, received by Maureen Cardoso: “You may be wondering, do I have enough time to fulfil my purpose while I am here on Earth, as the dear daughter …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "We Will Always Be with You"
 menu_title: ""
-description: "We Will Always Be with You"
+description: "Jesus, received by Al Fike: “As you tend to that flame, I urge you to continue to seek out more of that great blessing.”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

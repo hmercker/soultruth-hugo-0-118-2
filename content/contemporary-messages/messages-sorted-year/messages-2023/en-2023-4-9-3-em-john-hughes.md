@@ -1,7 +1,7 @@
 ---
 title: "Easter Message"
 menu_title: ""
-description: "Easter Message"
+description: "John Hughes, received by Elizabeth Mack: “Let your hearts and your souls sing this love in everything you do. Let it bubble up and be free to be given to …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

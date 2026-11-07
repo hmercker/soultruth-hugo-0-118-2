@@ -1,7 +1,7 @@
 ---
 title: "Allow God to be Connected to You"
 menu_title: ""
-description: "Allow God to be Connected to You"
+description: "Joan of Arc, received by Elizabeth Mack: “Blessed ones, I am your sister, Joan. You are so blessed to be here to take these steps to become servants of …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

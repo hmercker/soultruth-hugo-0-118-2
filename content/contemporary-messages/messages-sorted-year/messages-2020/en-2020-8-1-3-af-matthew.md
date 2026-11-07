@@ -1,7 +1,7 @@
 ---
 title: "Seek Guidance from Your Own Souls"
 menu_title: ""
-description: "Seek Guidance from Your Own Souls"
+description: "Matthew, received by Al Fike: “In this way, they are diverted from the deeper knowings of the soul. As this great paradigm of truth is built within the …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

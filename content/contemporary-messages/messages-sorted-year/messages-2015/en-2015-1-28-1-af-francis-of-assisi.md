@@ -1,7 +1,7 @@
 ﻿---
 title: "Walk This World Guided By The Heavenly Father And His Angels"
 menu_title: ""
-description: "Walk This World Guided By The Heavenly Father And His Angels"
+description: "Francis of Assisi, received by Al Fike: “And there are many in the Celestial Heavens, all within the Celestial Heavens, who love God, for those who reside …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

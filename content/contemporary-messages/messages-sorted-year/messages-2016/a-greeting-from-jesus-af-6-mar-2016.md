@@ -1,7 +1,7 @@
 ---
 title: "A Greeting from Jesus"
 menu_title: ""
-description: "A Greeting from Jesus"
+description: "Received by Al Fike: “You begin to embark upon your spiritual journeys in a deeper way, my beloveds, and you will release those material burdens that will …”"
 date: 2017-03-15 04:43:00+00:00
 draft: False
 hidden: True

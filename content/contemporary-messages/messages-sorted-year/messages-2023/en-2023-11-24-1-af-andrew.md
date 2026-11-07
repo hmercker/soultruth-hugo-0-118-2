@@ -1,7 +1,7 @@
 ﻿---
 title: "We Are All Being Called to Serve God"
 menu_title: ""
-description: "We Are All Being Called to Serve God"
+description: "Andrew, received by Al Fike: “God calls you to service, beloved souls. How else will God reach His children but through those He has already touched with …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

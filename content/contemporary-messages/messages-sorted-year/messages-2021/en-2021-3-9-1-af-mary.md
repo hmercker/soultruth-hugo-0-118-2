@@ -1,7 +1,7 @@
 ---
 title: "We Are Bonded Together in Gods Love"
 menu_title: ""
-description: "We Are Bonded Together in Gods Love"
+description: "Mary, received by Al Fike: “No matter where you are in the world, you are bonded at this moment in the Grace of God's Love that uplifts you and carries you …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

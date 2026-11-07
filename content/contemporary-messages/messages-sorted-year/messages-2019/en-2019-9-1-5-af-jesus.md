@@ -1,7 +1,7 @@
 ---
 title: "All Who Desire to Work for God Will Find a Way of Expression"
 menu_title: ""
-description: "All Who Desire to Work for God Will Find a Way of Expression"
+description: "Jesus, received by Al Fike: “May your souls be blessed, beloved souls. Though my brother is eager for you to step forward in Light and come to heal the …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

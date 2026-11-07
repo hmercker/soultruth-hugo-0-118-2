@@ -1,7 +1,7 @@
 ---
 title: "The Cycle of Life, the Cycle of Change"
 menu_title: ""
-description: "The Cycle of Life, the Cycle of Change"
+description: "John the Beloved, received by Maureen Cardoso: “Where I can operate through the instrumentality of this medium who, for the first time, is experiencing our …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Seretta Kem speaks to a beginners Group"
 menu_title: ""
-description: "Seretta Kem speaks to a beginners Group"
+description: "Seretta Kem, received by Al Fike: “Precious and beloved souls, I am Seretta Kem and I come to bring a blessing to you, my beloveds, to assist you upon your …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

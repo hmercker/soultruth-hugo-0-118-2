@@ -1,7 +1,7 @@
 ---
 title: "Discovering Soul Attributes"
 menu_title: ""
-description: "Discovering Soul Attributes"
+description: "Seretta Kem, received by Maureen Cardoso: “Over the past month, since we have been together and you have sat on your own or simultaneously with others, we …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

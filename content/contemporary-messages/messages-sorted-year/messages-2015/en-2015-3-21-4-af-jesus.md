@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Jesus, received by Al Fike: “Each one here has a wondrous journey to take and a purposeful life to live. He will guide you and the Angels will be with you …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

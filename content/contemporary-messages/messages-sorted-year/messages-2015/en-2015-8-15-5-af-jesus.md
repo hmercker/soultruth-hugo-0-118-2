@@ -1,7 +1,7 @@
 ﻿---
 title: "Embodied in the Will of God is Harmony and Love and Peace"
 menu_title: ""
-description: "Embodied in the Will of God is Harmony and Love and Peace"
+description: "Jesus, received by Al Fike: “Many of you have many questions and you seek to serve your Heavenly Father in higher and greater ways, in a greater flow of …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

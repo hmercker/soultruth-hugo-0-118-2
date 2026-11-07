@@ -1,7 +1,7 @@
 ---
 title: "The Longing of the Soul Must Come Forth to God"
 menu_title: ""
-description: "The Longing of the Soul Must Come Forth to God"
+description: "James, received by Al Fike: “Many of us from the Celestial Spheres have com to be with you in this moment of prayer beseeching God to bless our souls.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

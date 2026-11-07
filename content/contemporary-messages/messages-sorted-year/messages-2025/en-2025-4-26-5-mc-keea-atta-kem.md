@@ -1,7 +1,7 @@
 ---
 title: "A Soul's Journey in Divine Love"
 menu_title: ""
-description: "A Soul's Journey in Divine Love"
+description: "Keea Atta Kem, received by Maureen Cardoso: “What a pleasure it is to be able to come and join you in your quaint circle where you grow in your ability to …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,5 +1,6 @@
 ---
 title: "Endorses and Encourages Efforts Being Made by Estonia Circle of Light"
+description: "Received by Al Fike: “May the truth of the Father’s Love reside within your heart, in your soul, in your mind. For the work that you do is work that shall …”"
 menu_title: "Jesus Endorses and Encourages Efforts Being Made by Estonia Circle of Light"
 date: 2024-11-19 07:21:03+11:00
 draft: False

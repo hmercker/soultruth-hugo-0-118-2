@@ -1,7 +1,7 @@
 ---
 title: "Share the Truth of God's Love with Others"
 menu_title: ""
-description: "Share the Truth of God's Love with Others"
+description: "Seretta Kem, received by Al Fike: “The high angels of the Celestial Heavens come to visit you numerous times in your life, continuing to uphold and support …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

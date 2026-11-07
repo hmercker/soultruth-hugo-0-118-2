@@ -1,7 +1,7 @@
 ﻿---
 title: "Become a follower of my teachings"
 menu_title: ""
-description: "Become a follower of my teachings"
+description: "Jesus, received by Helge Mercker: “Have no hesitancy to call us as we want to help you on any decisions or any statements you wish to express, call on us.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

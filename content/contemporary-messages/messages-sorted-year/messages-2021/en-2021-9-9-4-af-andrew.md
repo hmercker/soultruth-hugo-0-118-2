@@ -1,7 +1,7 @@
 ---
 title: "We Are Awakening!"
 menu_title: ""
-description: "We Are Awakening!"
+description: "Andrew, received by Al Fike: “We are all deeply blessed with your guides and presences in our lives. They have been especially selected to ignite your …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "True Power Comes with the Blessing of God’s Love"
 menu_title: ""
-description: "True Power Comes with the Blessing of God’s Love"
+description: "John the Beloved, received by Al Fike: “I see amongst this flock of souls, bright lights, souls that are resplendent in the great gift of God’s Love.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

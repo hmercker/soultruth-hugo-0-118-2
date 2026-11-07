@@ -1,7 +1,7 @@
 ---
 title: "Instruction in How to Be"
 menu_title: ""
-description: "Instruction in How to Be"
+description: "Joan of Arc, received by Elizabeth Mack: “… and, of course, much love. Look upon them as children of God, so that you may learn to respect and love them.”"
 date: 2025-07-20 07:21:03+00:00
 draft: False
 hidden: True

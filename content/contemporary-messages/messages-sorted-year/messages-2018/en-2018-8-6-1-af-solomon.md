@@ -1,7 +1,7 @@
 ﻿---
 title: "Trust in the Wisdom of the Soul"
 menu_title: ""
-description: "Trust in the Wisdom of the Soul"
+description: "Solomon, received by Al Fike: “Your mind speculates on many things. You have a deep craving to know from the intellectual faculties of your mind the truth.”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

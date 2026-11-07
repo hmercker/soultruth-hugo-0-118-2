@@ -1,7 +1,7 @@
 ---
 title: "This Church Will Be a Sanctuary of Light for Many"
 menu_title: ""
-description: "This Church Will Be a Sanctuary of Light for Many"
+description: "Estelle Roberts, received by Al Fike: “I urge you to prepare for this, to be in alignment in your thoughts and your desires, that this may happen and …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

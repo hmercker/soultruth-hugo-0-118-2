@@ -1,7 +1,7 @@
 ﻿---
 title: "God will insulate you from the Human Condition if you are willing to be attuned to Him"
 menu_title: ""
-description: "God will insulate you from the Human Condition if you are willing to be attuned to Him"
+description: "Augustine, received by Al Fike: “I have heard this instrument say that the special dispensation given has now been removed.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

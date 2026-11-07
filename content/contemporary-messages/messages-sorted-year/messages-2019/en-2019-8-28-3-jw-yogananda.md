@@ -1,7 +1,7 @@
 ---
 title: "Speak the Truth With Love"
 menu_title: ""
-description: "Speak the Truth With Love"
+description: "Yogananda, received by Jimbeau Walsh: “I wish to speak about the transitory nature of your world, birth and death, decay, beauty, blooming, richness …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

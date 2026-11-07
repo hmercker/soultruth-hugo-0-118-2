@@ -1,7 +1,7 @@
 ---
 title: "Take in Deeply Truths Given by God"
 menu_title: ""
-description: "Take in Deeply Truths Given by God"
+description: "Josephus, received by Elizabeth Mack: “I, as you know, was a philosopher a very long time ago and now, I don’t philosophize. I know that God is real, is One.”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

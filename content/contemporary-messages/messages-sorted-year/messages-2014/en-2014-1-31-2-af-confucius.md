@@ -1,7 +1,7 @@
 ﻿---
 title: "A Family of Light"
 menu_title: ""
-description: "A Family of Light"
+description: "Confucius, received by Al Fike: “Precious souls, who within their heart’s desire to bring change and good into this world, and rather than judge you wish …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

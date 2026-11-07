@@ -1,7 +1,7 @@
 ---
 title: "Suffered the Pangs of Rejection on Earth"
 menu_title: ""
-description: "Suffered the Pangs of Rejection on Earth"
+description: "Jesus, received by Al Fike: “But like you, I was a man who walked upon the Earth and I suffered the pangs and arrows of rejection, of suspicion, of all …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Step Onto the Dance Floor and Dance of Dance of Life With God"
 menu_title: ""
-description: "Step Onto the Dance Floor and Dance of Dance of Life With God"
+description: "Keea Atta Kem, received by Maureen Cardoso: “Always remember this, dear ones: that it is all in accordance with desire, the power of your desires and where …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

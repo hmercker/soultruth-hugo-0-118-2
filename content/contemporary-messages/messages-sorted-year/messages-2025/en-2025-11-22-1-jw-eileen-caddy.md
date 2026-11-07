@@ -1,7 +1,7 @@
 ---
 title: "Take the first Step"
 menu_title: ""
-description: "Take the first Step"
+description: "Eileen Caddy, received by Jimbeau Walsh: “May the love of God be upon you, and your souls be in His will. Those of you who know of my struggles and of my …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

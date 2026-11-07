@@ -1,7 +1,7 @@
 ---
 title: "God Manifest His Love and Light Through your Souls"
 menu_title: ""
-description: "God Manifest His Love and Light Through your Souls"
+description: "Andrew, received by Al Fike: “How sweet it is for us to hear your prayers, your desires to be close to the Source of all Love and Light.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

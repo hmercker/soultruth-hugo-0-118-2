@@ -1,7 +1,7 @@
 ---
 title: "Andrew conveys message from Hans Mercker, Helge's father who passed 1.5 years ago"
 menu_title: ""
-description: "Andrew conveys message from Hans Mercker, Helge's father who passed 1.5 years ago"
+description: "Andrew, received by Al Fike: “He wishes to say that he was sorry he could not be there for you in the flesh, but he was there very often while you were at …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

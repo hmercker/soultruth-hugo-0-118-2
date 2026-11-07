@@ -1,7 +1,7 @@
 ---
 title: "Dedicate Yourself to God, Beloveds"
 menu_title: ""
-description: "Dedicate Yourself to God, Beloveds"
+description: "Mary, received by Al Fike: “I want to assure you that the world will come into light in time. That though there may be dark periods ahead in the evolution …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

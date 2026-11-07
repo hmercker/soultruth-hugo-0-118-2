@@ -1,7 +1,7 @@
 ﻿---
 title: "Ask God to Show You Your Gifts"
 menu_title: ""
-description: "Ask God to Show You Your Gifts"
+description: "Lotus Blossom, received by Maureen Cardoso: “Welcome, dear friends, into your Circle of Light, as you open your souls to that great flowing of God's Love.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

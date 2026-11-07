@@ -1,7 +1,7 @@
 ---
 title: "Say a Little Prayer for Each Person You Encounter"
 menu_title: ""
-description: "Say a Little Prayer for Each Person You Encounter"
+description: "Joan of Arc, received by Elizabeth Mack: “… and I should like to speak about loving. Yet, loving our brothers and sisters is a little more challenging.”"
 date: 2025-07-20 07:21:03+11:00
 draft: False
 hidden: True

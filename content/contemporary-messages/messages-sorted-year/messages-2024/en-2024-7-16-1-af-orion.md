@@ -1,7 +1,7 @@
 ---
 title: "We Continue the Journey Together"
 menu_title: ""
-description: "We Continue the Journey Together"
+description: "Orion, received by Al Fike: “All these things that a human upon such an Earth as yours must endeavour to overcome and to experience.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

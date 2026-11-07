@@ -1,7 +1,7 @@
 ---
 title: "Many Souls Join to Receive Blessings from God and Jesus"
 menu_title: ""
-description: "Many Souls Join to Receive Blessings from God and Jesus"
+description: "John the Beloved & Jesus, received by Elizabeth Mack: “I thank you, dear beloved sister, for your love, for your prayer to the Father as we bring many …”"
 date: 2025-07-01 07:21:03+00:00
 draft: False
 hidden: True

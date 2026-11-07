@@ -1,7 +1,7 @@
 ---
 title: "Your Road to God is Clear"
 menu_title: ""
-description: "Your Road to God is Clear"
+description: "Jesus, received by Al Fike: “The road is laid before you. The path has been cleared.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

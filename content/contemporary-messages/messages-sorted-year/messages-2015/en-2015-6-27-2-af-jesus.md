@@ -1,7 +1,7 @@
 ﻿---
 title: "Stand up and walk with me"
 menu_title: ""
-description: "Stand up and walk with me"
+description: "Jesus, received by Al Fike: “You cannot walk until you crawl, my beloveds, and you cannot run until you can walk. And as you raise yourself up from the …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

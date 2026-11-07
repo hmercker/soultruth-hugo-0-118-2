@@ -1,7 +1,7 @@
 ---
 title: "How to Recognize Progression"
 menu_title: ""
-description: "How to Recognize Progression"
+description: "George Stokes, received by Elizabeth Mack: “As you know, a progression is a movement forward. Your soul, in moving forward, is moving closer, closer to the …”"
 date: 2025-03-20 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Building Portals of Light and Affirming the Power of our Prayers"
 menu_title: ""
-description: "Building Portals of Light and Affirming the Power of our Prayers"
+description: "Seretta Kem, received by Al Fike: “Many more Portals of Light are being opened in the world because of your efforts and prayers.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

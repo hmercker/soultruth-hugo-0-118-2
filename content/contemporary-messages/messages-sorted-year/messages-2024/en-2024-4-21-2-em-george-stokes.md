@@ -1,7 +1,7 @@
 ---
 title: "Each of Us Has to Clear Away Those Things That Are Disharmonious Within Us"
 menu_title: ""
-description: "Each of Us Has to Clear Away Those Things That Are Disharmonious Within Us"
+description: "George Stokes, received by Elizabeth Mack: “So many here in the flesh and in spirit. I welcome those in spirit who are new to step into this circle and …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

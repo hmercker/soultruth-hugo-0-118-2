@@ -1,7 +1,7 @@
 ---
 title: "The Spirit Realms"
 menu_title: ""
-description: "The Spirit Realms"
+description: "Bartholomew, received by Jimbeau Walsh: “Beautiful and beloved souls, I am your brother and friend, Nathaniel, but you know me as Bartholomew.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

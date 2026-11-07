@@ -1,7 +1,7 @@
 ﻿---
 title: "Indulgences and Distractions"
 menu_title: ""
-description: "Indulgences and Distractions"
+description: "Francis of Assisi, received by Jimbeau Walsh: “Brothers and sisters, I am your brother, Francis, and I come in the love of God into this circle of prayer.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

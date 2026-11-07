@@ -1,7 +1,7 @@
 ---
 title: "Welcomes All to the Love Boat Cruise"
 menu_title: ""
-description: "Welcomes All to the Love Boat Cruise"
+description: "Augustine, received by Al Fike: “We welcome you to this fortuitous group. You benefit greatly when you come together in a group such as this, praying …”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

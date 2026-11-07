@@ -1,7 +1,7 @@
 ﻿---
 title: "Understand and follow the Will of God"
 menu_title: ""
-description: "Understand and follow the Will of God"
+description: "Alec Gaunt, received by Al Fike: “I see that you all must struggle with the conditions of this world. And these conditions are created by man being out of …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

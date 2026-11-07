@@ -1,7 +1,7 @@
 ---
 title: "Divine Love is the Rock of Truth"
 menu_title: ""
-description: "Divine Love is the Rock of Truth"
+description: "John the Beloved, received by Al Fike: “May you continue to reside and build your foundation upon the rock of truth. How important it is to consider your …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

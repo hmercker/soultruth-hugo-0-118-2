@@ -1,7 +1,7 @@
 ---
 title: "Put Aside the Will of the Mind and Adopt the Will of the Soul"
 menu_title: ""
-description: "Put Aside the Will of the Mind and Adopt the Will of the Soul"
+description: "Augustine, received by Al Fike: “The will of man is something highly prized in your world, to be able to choose, to control, to manipulate and to utilise …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

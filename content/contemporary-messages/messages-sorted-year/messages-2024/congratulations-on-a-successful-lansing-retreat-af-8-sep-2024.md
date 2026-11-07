@@ -1,5 +1,6 @@
 ---
 title: "Congratulations on a Successful Lansing Retreat, There Will Be Lasting Benefits from the Retreat, Closes Lansing Retreat"
+description: "Received by Al Fike: “So, you wish to hear from the old sage, do you? We have been very pleased with your efforts, your sincerities and the light that you …”"
 menu_title: "Confucius, Martha and Jesus Closes Lansing Retreat"
 date: 2024-11-28 07:21:03+11:00
 draft: False

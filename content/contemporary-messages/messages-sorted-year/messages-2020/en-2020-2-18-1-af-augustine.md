@@ -1,7 +1,7 @@
 ---
 title: "God is Knitting You All Together"
 menu_title: ""
-description: "God is Knitting You All Together"
+description: "Augustine, received by Al Fike: “God is knitting you all together. This great string of Light that has come from you, your souls in prayer to God, in …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

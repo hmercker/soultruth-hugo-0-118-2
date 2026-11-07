@@ -1,7 +1,7 @@
 ---
 title: "You Must Listen"
 menu_title: ""
-description: "You Must Listen"
+description: "Judas, received by Jimbeau Walsh: “Those here in this circle have many in spirit that wish to communicate. On behalf of them all, I wish to have you know …”"
 date: 2025-12-10 06:00:00+00:00
 draft: False
 hidden: True

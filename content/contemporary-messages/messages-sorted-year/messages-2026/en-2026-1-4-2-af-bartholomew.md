@@ -1,7 +1,7 @@
 ---
 title: "Do Not Idle: Stand Firmly in the Simple Truth of God's Love"
 menu_title: ""
-description: "Do Not Idle: Stand Firmly in the Simple Truth of God's Love"
+description: "Bartholomew, received by Al Fike: “Consider this, beloved souls, that you were brought together for a purpose and that you have great purpose.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

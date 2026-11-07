@@ -1,7 +1,7 @@
 ---
 title: "The Burning Lantern within You is Your Soul"
 menu_title: ""
-description: "The Burning Lantern within You is Your Soul"
+description: "Andrew, received by Al Fike: “Children of Light, we thank you for coming together, creating a beautiful Light in your world.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

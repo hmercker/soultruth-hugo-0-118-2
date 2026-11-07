@@ -1,7 +1,7 @@
 ---
 title: "All efforts done in the Love of God are worthy"
 menu_title: ""
-description: "All efforts done in the Love of God are worthy"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “Your commitment to sanctuary is something very dear to my heart. For my angels had told me Divine Love would …”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

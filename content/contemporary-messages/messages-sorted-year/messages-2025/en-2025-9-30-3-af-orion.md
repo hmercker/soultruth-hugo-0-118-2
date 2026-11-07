@@ -1,7 +1,7 @@
 ---
 title: "It is Time to Allow Your Soul Gifts to Come Forward"
 menu_title: ""
-description: "It is Time to Allow Your Soul Gifts to Come Forward"
+description: "Orion, received by Al Fike: “Together, we are again in our lessons and discussions pertaining to the soul. We are happy that you have returned in your …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

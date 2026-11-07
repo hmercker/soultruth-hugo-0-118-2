@@ -1,7 +1,7 @@
 ﻿---
 title: "God’s Will is stronger"
 menu_title: ""
-description: "God’s Will is stronger"
+description: "Faith Nyquist, received by Al Fike: “I have been with you in your conversations regarding my old home in the centre for prayer and healing.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

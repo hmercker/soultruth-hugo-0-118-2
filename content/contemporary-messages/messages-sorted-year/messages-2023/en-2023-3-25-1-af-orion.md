@@ -1,7 +1,7 @@
 ---
 title: "Let the Barriers that Hold You Back Fall Away"
 menu_title: ""
-description: "Let the Barriers that Hold You Back Fall Away"
+description: "Orion, received by Al Fike: “Changes are taking place within you, my beloved friends. Can you see the difference in attitudes, perspectives, and the way in …”"
 date: 2025-04-17 07:21:03+11:00
 draft: False
 hidden: True

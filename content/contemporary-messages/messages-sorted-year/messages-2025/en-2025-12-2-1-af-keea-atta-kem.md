@@ -1,7 +1,7 @@
 ---
 title: "Honour Who You Are in God's Creation"
 menu_title: ""
-description: "Honour Who You Are in God's Creation"
+description: "Keea Atta Kem, received by Al Fike: “How blessed we all are to have this bond of love, to be connected in this way. How magnificent is God's plan that …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

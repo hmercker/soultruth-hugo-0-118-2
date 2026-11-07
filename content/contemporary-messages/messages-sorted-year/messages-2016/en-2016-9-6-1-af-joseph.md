@@ -1,7 +1,7 @@
 ﻿---
 title: "Be with God"
 menu_title: ""
-description: "Be with God"
+description: "Joseph, received by Al Fike: “Is this not a testimony to the power of God’s Will, that you come together in this way from various parts of the world?”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Q&A"
 menu_title: ""
-description: "Q&A"
+description: "Michael Collier, received by Al Fike: “Truth comes in stages, bits and pieces, Breaths of God upon you. Awareness is rising up from your soul.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

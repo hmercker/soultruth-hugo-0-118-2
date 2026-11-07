@@ -1,7 +1,7 @@
 ---
 title: "Prayer is the Essential Tool for Transformation"
 menu_title: ""
-description: "Prayer is the Essential Tool for Transformation"
+description: "Orion, received by Elizabeth Mack: “As you know we come here to help you. We are with some of you some of the time and others of you some of the time.”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

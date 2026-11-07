@@ -1,7 +1,7 @@
 ---
 title: "Guidance for Direct Voice Retreat"
 menu_title: ""
-description: "Guidance for Direct Voice Retreat"
+description: "Seretta Kem, received by Al Fike: “Indeed, it is important and necessary that you consider your preparations beforehand, even this early date.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

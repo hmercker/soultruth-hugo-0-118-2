@@ -1,7 +1,7 @@
 ---
 title: "The Power of God's Love to Wipe Away the Mountains of Negativity"
 menu_title: ""
-description: "The Power of God's Love to Wipe Away the Mountains of Negativity"
+description: "Joseph, received by Elizabeth Mack: “My dear children, Truth rains upon you, upon all of us, every moment that we open to God’s Love.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

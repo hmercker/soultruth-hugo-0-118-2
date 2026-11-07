@@ -1,7 +1,7 @@
 ﻿---
 title: "Orion Describes the Process of Receiving Divine Love on His Planet and Expresses Admiration for Our Tenacity"
 menu_title: ""
-description: "Orion Describes the Process of Receiving Divine Love on His Planet and Expresses Admiration for Our Tenacity"
+description: "Orion, received by Al Fike: “May the great gift of the Father's Love continue to enter your souls, my beloved friends. I have said in the past that on my …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

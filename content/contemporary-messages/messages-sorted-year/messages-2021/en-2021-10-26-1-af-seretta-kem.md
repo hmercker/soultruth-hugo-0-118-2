@@ -1,7 +1,7 @@
 ---
 title: "Manifestation will not come until you are prepared"
 menu_title: ""
-description: "Manifestation will not come until you are prepared"
+description: "Seretta Kem, received by Al Fike: “Many of you are challenged by the earthly conditions, continue to struggle with the balance that you seek, that you will …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "All Things Given in Love are Blessed"
 menu_title: ""
-description: "All Things Given in Love are Blessed"
+description: "Alexander the Poet, received by Jimbeau Walsh: “Brother Judas has encouraged me to step forward to speak this evening on a subject dear to my heart.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

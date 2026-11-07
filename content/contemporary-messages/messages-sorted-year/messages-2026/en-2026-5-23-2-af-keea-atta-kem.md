@@ -1,7 +1,7 @@
 ﻿---
 title: "How This Blessing of Love Creates Conscious Awareness of Your True Self"
 menu_title: ""
-description: "How This Blessing of Love Creates Conscious Awareness of Your True Self"
+description: "Keea Atta Kem, received by Al Fike: “May the blessings of the Father's Love be yours. You are being changed by it.”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

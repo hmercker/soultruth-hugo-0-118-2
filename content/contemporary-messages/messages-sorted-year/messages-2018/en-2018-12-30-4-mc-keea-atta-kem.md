@@ -1,7 +1,7 @@
 ---
 title: "The Lattice of Light is a Magnificent Support For Spiritual Growth"
 menu_title: ""
-description: "The Lattice of Light is a Magnificent Support For Spiritual Growth"
+description: "Keea Atta Kem, received by Maureen Cardoso: “If you could see from our side of life what you are generating at this time, you would be astonished.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Blessings from Mentors who are Soulmates"
 menu_title: ""
-description: "Blessings from Mentors who are Soulmates"
+description: "Alec & Elsie, received by Al Fike: “With all of you, I continue, as does my beloved sister, to assist you on your journey for it is not that long ago that …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Speaks of the Quantum Leap Humanity is About to Take in Soul Awareness"
 menu_title: ""
-description: "Speaks of the Quantum Leap Humanity is About to Take in Soul Awareness"
+description: "Copernicus, received by Al Fike: “While you are weighted down by the physical presence on the Earth plane, your souls are not.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

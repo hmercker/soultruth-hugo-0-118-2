@@ -1,7 +1,7 @@
 ---
 title: "The Power of Free Will and the Journey to Light"
 menu_title: ""
-description: "The Power of Free Will and the Journey to Light"
+description: "Jesus, received by Al Fike: “May there be a great inflowing of God's Love into your souls, my brothers and sisters. The amount of this blessing to enter …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

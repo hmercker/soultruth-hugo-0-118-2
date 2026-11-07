@@ -1,7 +1,7 @@
 ---
 title: "Opening Message, Closing Message"
 menu_title: ""
-description: "Opening Message, Closing Message"
+description: "Alec Gaunt & Augustine, received by Al Fike: “I want you to keep in mind that it is the Will of God and the plan that God has for the salvation of humanity …”"
 date: 2025-06-18 00:00:00+00:00
 draft: False
 hidden: True

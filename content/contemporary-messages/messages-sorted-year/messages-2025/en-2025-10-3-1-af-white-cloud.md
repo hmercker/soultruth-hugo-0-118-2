@@ -1,7 +1,7 @@
 ---
 title: "The Coming Change and the Way of the Soul"
 menu_title: ""
-description: "The Coming Change and the Way of the Soul"
+description: "White Cloud, received by Al Fike: “I greet you as a brother and sister. When I walked the Earth, which was not that long ago, the world was still innocent.”"
 date: 2025-11-02 06:00:00+00:00
 draft: False
 hidden: True

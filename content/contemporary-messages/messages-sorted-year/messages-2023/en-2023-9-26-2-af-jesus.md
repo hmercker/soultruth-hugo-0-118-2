@@ -1,7 +1,7 @@
 ﻿---
 title: "A Embrace and Walk the Truth of God’s Love"
 menu_title: ""
-description: "A Embrace and Walk the Truth of God’s Love"
+description: "Jesus, received by Al Fike: “I walk with you as you continue to seek the Love of God within your souls, to affirm this truth that I taught so long ago.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

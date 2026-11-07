@@ -1,7 +1,7 @@
 ---
 title: "Jesus Calls Us to Serve God and Humanity"
 menu_title: ""
-description: "Jesus Calls Us to Serve God and Humanity"
+description: "Jesus, received by Al Fike: “Precious and beloved souls, I come. To step forward in light and declare yourselves as God’s instruments of light and love.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

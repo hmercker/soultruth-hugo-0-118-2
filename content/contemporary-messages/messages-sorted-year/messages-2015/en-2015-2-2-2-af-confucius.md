@@ -1,7 +1,7 @@
 ﻿---
 title: "Sing your Songs to God"
 menu_title: ""
-description: "Sing your Songs to God"
+description: "Confucius, received by Al Fike: “...I am with you, Confucius. Continue to seek this Love, my son, and great vistas of understanding and joy will be yours …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

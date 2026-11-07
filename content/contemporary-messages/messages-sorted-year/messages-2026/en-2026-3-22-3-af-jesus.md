@@ -1,7 +1,7 @@
 ﻿---
 title: "Be Instruments of Peace Through Divine Love"
 menu_title: ""
-description: "Be Instruments of Peace Through Divine Love"
+description: "Jesus, received by Al Fike: “The remedy of peace is with you, my beloveds. For peace is desired within each one.”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

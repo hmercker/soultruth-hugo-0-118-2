@@ -1,7 +1,7 @@
 ---
 title: "Earth Conditions and Each Individual's Free Will will Determine Who will Attend Retreat"
 menu_title: ""
-description: "Earth Conditions and Each Individual's Free Will will Determine Who will Attend Retreat"
+description: "Seretta Kem, received by Al Fike: “I have come to answer your questions, beloved daughter. First, I must comment that it is interesting that some feel that …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "There are many Ears who will not hear, yet their Souls will feel the clarion call to come to God in this Way"
 menu_title: ""
-description: "There are many Ears who will not hear, yet their Souls will feel the clarion call to come to God in this Way"
+description: "Augustine, received by Al Fike: “I want to pray with you and speak with you. The yearnings of your souls bring you together, yearnings of fellowship, of …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

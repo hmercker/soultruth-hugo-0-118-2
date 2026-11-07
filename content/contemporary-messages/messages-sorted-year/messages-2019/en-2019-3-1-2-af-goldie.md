@@ -1,7 +1,7 @@
 ---
 title: "Surprises Are Coming"
 menu_title: ""
-description: "Surprises Are Coming"
+description: "Goldie, received by Al Fike: “For all of you, things that you will not expect, doors opening that will surprise you. Beautiful souls that are coming into …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

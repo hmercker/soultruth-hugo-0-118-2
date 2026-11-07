@@ -1,7 +1,7 @@
 ﻿---
 title: "Creativity of the Soul"
 menu_title: ""
-description: "Creativity of the Soul"
+description: "Bartholomew, received by Maureen Cardoso: “How wonderful it is to hear your discussion, to use the opportunity in your circle to study the thousands of …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

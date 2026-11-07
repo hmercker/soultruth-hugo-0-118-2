@@ -1,7 +1,7 @@
 ﻿---
 title: "Wherever God’s Will manifests there will be Harmony and joyous Awakening and wondrous Change"
 menu_title: ""
-description: "Wherever God’s Will manifests there will be Harmony and joyous Awakening and wondrous Change"
+description: "Augustine, received by Al Fike: “Your teacher Augustine here. There will be no missteps, my children.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

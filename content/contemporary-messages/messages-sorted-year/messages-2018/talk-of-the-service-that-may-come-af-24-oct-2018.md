@@ -1,7 +1,7 @@
 ---
 title: "Seretta Kem Talks of the Service that May Come"
 menu_title: ""
-description: "Seretta Kem Talks of the Service that May Come"
+description: "Received by Al Fike: “I wish to speak to you today of what may come in the future for each one of you, as you continue upon this course of soul awakening …”"
 date: 2020-06-23 08:10:01+11:00
 draft: False
 hidden: True

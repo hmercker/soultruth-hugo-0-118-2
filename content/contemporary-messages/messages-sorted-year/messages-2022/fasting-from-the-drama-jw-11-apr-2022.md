@@ -1,5 +1,6 @@
 ---
 title: "Fasting from the Drama"
+description: "Received by Jimbeau Walsh: “And most assuredly to Al and Jeanne on their travels as they spread the truths of Divine Love and go in prayer with those souls …”"
 menu_title: ""
 descriLtion: "Care talks of Fasting from the Drama"
 date: 2022-06-09 07:21:03+11:00

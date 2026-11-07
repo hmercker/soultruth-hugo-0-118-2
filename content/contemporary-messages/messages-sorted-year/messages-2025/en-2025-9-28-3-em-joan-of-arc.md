@@ -1,7 +1,7 @@
 ---
 title: "God's Intention for His Children"
 menu_title: ""
-description: "God's Intention for His Children"
+description: "Joan of Arc, received by Elizabeth Mack: “In this way, your love touches God's Soul and God quickly and immediately responds with His Love and other …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Expect the Unexpected!"
 menu_title: ""
-description: "Expect the Unexpected!"
+description: "Professor Salyards, received by Al Fike: “May the Father's Love continue to infill you, my beloved friends, my friends who bring this truth to the world …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

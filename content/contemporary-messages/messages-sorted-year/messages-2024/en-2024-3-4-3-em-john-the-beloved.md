@@ -1,7 +1,7 @@
 ---
 title: "God’s Divine Love is More Pervasive, More Powerful, So Much More Loving Than Anything"
 menu_title: ""
-description: "God’s Divine Love is More Pervasive, More Powerful, So Much More Loving Than Anything"
+description: "John the Beloved, received by Elizabeth Mack: “You can almost hear the tenor of my voice. I and many others join you in this prayer today and in many of …”"
 date: 2025-07-20 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "You come to connect with one another"
 menu_title: ""
-description: "You come to connect with one another"
+description: "Jesus, received by Al Fike: “May the great blessings of the Father's Love continue to flow into your souls, beloveds. As you gather together today you form …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

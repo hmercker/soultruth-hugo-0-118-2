@@ -1,7 +1,7 @@
 ---
 title: "Our Soul Perceptions are Paramount in the Work Ahead"
 menu_title: ""
-description: "Our Soul Perceptions are Paramount in the Work Ahead"
+description: "Orion, received by Al Fike: “Blessings to you, my friends, it is Orion. It means a resonance of thought, intention and spiritual condition that arises when …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

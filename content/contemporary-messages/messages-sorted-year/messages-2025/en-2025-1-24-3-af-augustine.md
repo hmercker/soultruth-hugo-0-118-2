@@ -1,7 +1,7 @@
 ---
 title: "Describes Receptivity of Humanity's Minds and Souls and Conditions of Readiness Required for Manifestations"
 menu_title: ""
-description: "Describes Receptivity of Humanity's Minds and Souls and Conditions of Readiness Required for Manifestations"
+description: "Augustine, received by Al Fike: “You speak of the yearning soul and you speak of how to reach that soul, to bring the Truth of the Father's Love to the …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

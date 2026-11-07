@@ -1,7 +1,7 @@
 ---
 title: "Guidance and Affirmation to Take Jesus’ Guidance Seriously"
 menu_title: ""
-description: "Guidance and Affirmation to Take Jesus’ Guidance Seriously"
+description: "Peter, received by Al Fike: “The Master showed his light and showed his authority as he spoke to you.”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

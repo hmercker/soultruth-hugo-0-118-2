@@ -1,7 +1,7 @@
 ---
 title: "Respond With Love to Those Who Seek to Connect With You"
 menu_title: ""
-description: "Respond With Love to Those Who Seek to Connect With You"
+description: "Andrew, received by Al Fike: “God places before you many opportunities to serve, to teach, to be with your brothers and sisters in prayer, and so you will …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Q&A with Orion"
 menu_title: ""
-description: "Q&A with Orion"
+description: "Orion, received by Al Fike: “Orion: Greetings and blessings to my beloved Earth friends, inhabitants of that blue pearl that drifts in the ocean of God’s …”"
 date: 2026-11-01 00:00:00+00:00
 draft: False
 hidden: True

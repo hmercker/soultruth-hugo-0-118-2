@@ -1,7 +1,7 @@
 ---
 title: "Walking the Path of Divine Love"
 menu_title: ""
-description: "Walking the Path of Divine Love"
+description: "Jesus & Mary, received by Al Fike: “To nurture the soul with God's Love is the path that shall lead you to the greatest fulfilment and joy in life.”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

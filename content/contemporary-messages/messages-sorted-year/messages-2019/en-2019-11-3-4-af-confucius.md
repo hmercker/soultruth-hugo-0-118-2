@@ -1,7 +1,7 @@
 ---
 title: "Healing and Blessings for the Journey"
 menu_title: ""
-description: "Healing and Blessings for the Journey"
+description: "Confucius, received by Al Fike: “You will feel renewed energy and sense of well-being. Your bodies will feel a little lighter and your demeanor will be of joy.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

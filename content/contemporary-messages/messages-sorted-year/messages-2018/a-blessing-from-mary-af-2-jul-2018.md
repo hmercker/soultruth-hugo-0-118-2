@@ -1,7 +1,7 @@
 ---
 title: "A Blessing from Mary"
 menu_title: ""
-description: "A Blessing from Mary"
+description: "Received by Al Fike: “May you continue to receive the Father’s Love within your souls. There are many in your care and keeping, my beautiful brothers and …”"
 date: 2020-05-12 07:40:28+10:00
 draft: False
 hidden: True

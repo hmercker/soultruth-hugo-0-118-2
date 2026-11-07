@@ -1,7 +1,7 @@
 ---
 title: "Hurry Up and Wait"
 menu_title: ""
-description: "Hurry Up and Wait"
+description: "Orion, received by Al Fike: “You have an expression in your culture called “hurry up and wait!” Indeed, we have encouraged you to hurry, to hurry toward …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

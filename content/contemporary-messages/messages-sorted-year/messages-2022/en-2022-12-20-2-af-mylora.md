@@ -1,7 +1,7 @@
 ---
 title: "Open Your Souls to Receive God’s Love"
 menu_title: ""
-description: "Open Your Souls to Receive God’s Love"
+description: "Mylora, received by Al Fike: “I bring a blessing and a healing. You know well how you might be this light, how you may open yourselves to the great light …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

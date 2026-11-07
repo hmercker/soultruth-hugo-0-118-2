@@ -1,7 +1,7 @@
 ---
 title: "Appreciate the Kaleidescope of Life and True Soul Awakening Will Come in its Stead"
 menu_title: ""
-description: "Appreciate the Kaleidescope of Life and True Soul Awakening Will Come in its Stead"
+description: "Keea Atta Kem, received by Al Fike: “God meets your needs, beloveds. When you are in need and you express that need to God in prayer, there will be an answer.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

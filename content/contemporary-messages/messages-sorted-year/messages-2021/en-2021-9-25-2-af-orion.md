@@ -1,7 +1,7 @@
 ---
 title: "Closing Message for Retreat"
 menu_title: ""
-description: "Closing Message for Retreat"
+description: "Orion, received by Al Fike: “...a privilege to serve such earnest souls who are seeking for a better world and seeking to better themselves in that world.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

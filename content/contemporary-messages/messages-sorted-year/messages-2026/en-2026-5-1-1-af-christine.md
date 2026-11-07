@@ -1,7 +1,7 @@
 ﻿---
 title: "Healing the World Through the Power and Simplicity of Love"
 menu_title: ""
-description: "Healing the World Through the Power and Simplicity of Love"
+description: "Christine, received by Al Fike: “I do not come from your world. For there are many around your planet who are involved, concerned and dedicated to help …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

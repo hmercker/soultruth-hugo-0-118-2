@@ -1,7 +1,7 @@
 ---
 title: "Bask in the Glory of God"
 menu_title: ""
-description: "Bask in the Glory of God"
+description: "Isaiah, received by Al Fike: “How often do you seek out God’s presence? How often are your souls basking in the gift of His presence?”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

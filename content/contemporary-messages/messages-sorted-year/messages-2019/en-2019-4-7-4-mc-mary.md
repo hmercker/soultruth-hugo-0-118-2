@@ -1,7 +1,7 @@
 ---
 title: "God and Angels Will Use All of Our Gifts"
 menu_title: ""
-description: "God and Angels Will Use All of Our Gifts"
+description: "Mary, received by Maureen Cardoso: “All my beloved, beloved children, what a joy it is to see you gather in such a way, bringing light, streams of light …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

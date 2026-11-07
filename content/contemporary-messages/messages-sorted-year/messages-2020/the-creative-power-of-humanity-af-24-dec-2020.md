@@ -1,7 +1,7 @@
 ---
 title: "Lesson 13: The Creative Power of Humanity will be Unleashed by the Blessings of God's Divine Love"
 menu_title: ""
-description: "Lesson 13: The Creative Power of Humanity will be Unleashed by the Blessings of God's Divine Love"
+description: "Received by Al Fike: “May the sweet Breath of God touch your souls, beloveds. I thank you for your prayers and your efforts to bring a clear channel of …”"
 date: 2020-12-28 07:21:03+11:00
 draft: False
 hidden: True

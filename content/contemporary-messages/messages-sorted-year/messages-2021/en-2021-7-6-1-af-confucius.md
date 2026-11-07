@@ -1,7 +1,7 @@
 ---
 title: "May you feel this blessing infuse your soul"
 menu_title: ""
-description: "May you feel this blessing infuse your soul"
+description: "Confucius, received by Al Fike: “Blessings to you, my little birds, I am Confucius. Can you imagine life without this gift, these blessings?”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

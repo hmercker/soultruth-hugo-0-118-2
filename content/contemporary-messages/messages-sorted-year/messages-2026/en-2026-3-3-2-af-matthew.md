@@ -1,7 +1,7 @@
 ---
 title: "Live Each Day as God's Instrument"
 menu_title: ""
-description: "Live Each Day as God's Instrument"
+description: "Matthew, received by Al Fike: “I bring light and blessings to you, my beloved, beautiful brothers and sisters. I urge you to seize the moment of each day …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

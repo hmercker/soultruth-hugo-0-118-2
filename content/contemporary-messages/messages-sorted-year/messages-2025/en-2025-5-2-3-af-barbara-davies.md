@@ -1,7 +1,7 @@
 ---
 title: "Step Out in the World in God's Love"
 menu_title: ""
-description: "Step Out in the World in God's Love"
+description: "Barbara Davies, received by Al Fike: “You speak about the plans and Will of God in your lives. Indeed, God has many plans.”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "We All Experience God in Unique Ways"
 menu_title: ""
-description: "We All Experience God in Unique Ways"
+description: "Orion, received by Al Fike: “…the yearnings you have expressed, my beloved friends. Your desires, thoughts, actions are all quite transparent to each of us.”"
 date: 2025-06-21 07:21:03+00:00
 draft: False
 hidden: True

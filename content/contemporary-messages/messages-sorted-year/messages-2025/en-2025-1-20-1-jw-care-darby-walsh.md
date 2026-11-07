@@ -1,7 +1,7 @@
 ---
 title: "My Prayer life"
 menu_title: ""
-description: "My Prayer life"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “Having struggled in my time on earth, I wish you to know I have great empathy for your struggles, and that we …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

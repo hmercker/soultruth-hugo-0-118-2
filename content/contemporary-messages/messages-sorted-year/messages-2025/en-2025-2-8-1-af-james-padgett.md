@@ -1,7 +1,7 @@
 ---
 title: "Urges a Review of the Volumes of Messages He Received from Jesus to Strengthen Rapport and Knowledge of Spiritual Laws"
 menu_title: ""
-description: "Urges a Review of the Volumes of Messages He Received from Jesus to Strengthen Rapport and Knowledge of Spiritual Laws"
+description: "James Padgett, received by Al Fike: “Blessings to you, dear friends who sojourn upon the Path Divine, seeking the highest and greatest blessings of all.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

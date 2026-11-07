@@ -1,7 +1,7 @@
 ﻿---
 title: "Be Warriors of Light"
 menu_title: ""
-description: "Be Warriors of Light"
+description: "White Cloud, received by Al Fike: “There are many beautiful spirits from many different cultures and places within the spirit realms that have been drawn …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

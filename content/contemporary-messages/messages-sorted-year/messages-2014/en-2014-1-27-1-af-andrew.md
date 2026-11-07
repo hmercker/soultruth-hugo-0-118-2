@@ -1,7 +1,7 @@
 ﻿---
 title: "The great Goal is the Salvation of Mankind"
 menu_title: ""
-description: "The great Goal is the Salvation of Mankind"
+description: "Andrew, received by Al Fike: “I see that you are all stepping forward into the world, and many wish to align themselves with you, and some wish to tear you …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

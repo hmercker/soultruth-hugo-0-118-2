@@ -1,7 +1,7 @@
 ---
 title: "Takes Each One of Us For a Blessing in the Hall of Peace"
 menu_title: ""
-description: "Takes Each One of Us For a Blessing in the Hall of Peace"
+description: "Jesus, received by Al Fike: “We come all, in the great onrushing of Love. May you open your souls wide, beloved souls, to receive this gift in abundance.”"
 date: 2025-03-24 07:21:03+11:00
 draft: False
 hidden: True

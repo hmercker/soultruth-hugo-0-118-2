@@ -1,7 +1,7 @@
 ---
 title: "You Must Come to Know Your Own Souls"
 menu_title: ""
-description: "You Must Come to Know Your Own Souls"
+description: "Matthew, received by Al Fike: “You must truly come to know your own souls, beloveds. To come to that place that is deep within you and is beyond the …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

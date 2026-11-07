@@ -1,7 +1,7 @@
 ﻿---
 title: "As You Awaken in Love and Act in Faith, the Path Forward Will Be Lit"
 menu_title: ""
-description: "As You Awaken in Love and Act in Faith, the Path Forward Will Be Lit"
+description: "Barbara Davies, received by Al Fike: “The winds of change blow through every life. Since I have not been in the spirit world for long, I understand the …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

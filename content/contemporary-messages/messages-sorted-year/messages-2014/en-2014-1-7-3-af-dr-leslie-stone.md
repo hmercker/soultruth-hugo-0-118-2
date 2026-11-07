@@ -1,7 +1,7 @@
 ﻿---
 title: "God’s Will and Plan are manifesting through you"
 menu_title: ""
-description: "God’s Will and Plan are manifesting through you"
+description: "Dr Leslie Stone, received by Al Fike: “And I am touched by your efforts to keep the flame alive of this truth in the world. And I do work with you to do …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

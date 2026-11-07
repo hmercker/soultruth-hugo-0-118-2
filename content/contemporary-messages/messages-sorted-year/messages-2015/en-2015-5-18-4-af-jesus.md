@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Jesus, received by Al Fike: “In your efforts to bring Light into this world, in your efforts to bring Light within yourselves and all those who come into …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

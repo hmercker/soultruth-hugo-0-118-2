@@ -1,7 +1,7 @@
 ---
 title: "Spiritual Progression beyond Reluctance and Religion"
 menu_title: ""
-description: "Spiritual Progression beyond Reluctance and Religion"
+description: "George Vale Owen, received by Jimbeau Walsh: “The messages I received only a few years before James Padgett began his mediumship were meant as a harbinger …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

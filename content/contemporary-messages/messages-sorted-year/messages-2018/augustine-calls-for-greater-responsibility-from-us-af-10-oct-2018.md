@@ -1,7 +1,7 @@
 ---
 title: "Augustine Calls Upon Us to Take Greater Responsibility"
 menu_title: ""
-description: "Augustine Calls Upon Us to Take Greater Responsibility"
+description: "Received by Al Fike: “I wish to assure you that there has been no deception on our part. If you were to go through the chronicles of messages and words …”"
 date: 2020-06-11 07:27:15+11:00
 draft: False
 hidden: True

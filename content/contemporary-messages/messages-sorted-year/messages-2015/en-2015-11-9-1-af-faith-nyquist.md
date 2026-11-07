@@ -1,7 +1,7 @@
 ﻿---
 title: "Persist in your Faith in bringing about Centers of Light in the World"
 menu_title: ""
-description: "Persist in your Faith in bringing about Centers of Light in the World"
+description: "Faith Nyquist, received by Al Fike: “Dear God, may you bless these earnest souls who come together from far and wide that have Your Love burning within …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

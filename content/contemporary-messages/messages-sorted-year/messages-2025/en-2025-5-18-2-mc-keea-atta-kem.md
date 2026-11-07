@@ -1,7 +1,7 @@
 ---
 title: "See No Stranger"
 menu_title: ""
-description: "See No Stranger"
+description: "Keea Atta Kem, received by Maureen Cardoso: “I join you as your souls are open to the mighty inflowing of the Living Waters, God's Love, as you all are …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

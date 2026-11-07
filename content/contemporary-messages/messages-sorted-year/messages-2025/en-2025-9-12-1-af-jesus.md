@@ -1,7 +1,7 @@
 ---
 title: "A Special Dispensation of Healing"
 menu_title: ""
-description: "A Special Dispensation of Healing"
+description: "Jesus, received by Al Fike: “For this beautiful soul (Al) who serves me well, he has been given a special dispensation of healing, which you have helped to …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

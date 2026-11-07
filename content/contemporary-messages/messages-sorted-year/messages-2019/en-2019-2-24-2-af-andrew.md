@@ -1,7 +1,7 @@
 ---
 title: "God's Love Will Heal Your Soul"
 menu_title: ""
-description: "God's Love Will Heal Your Soul"
+description: "Andrew, received by Al Fike: “… this beloved son (D) and wonder, “Does he too need to journey to the heart of pain within?” I say, his journey is different.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

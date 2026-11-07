@@ -1,7 +1,7 @@
 ﻿---
 title: "God’s Will is Not a Mystery, But It is Something You Must Truly Desire to Know"
 menu_title: ""
-description: "God’s Will is Not a Mystery, But It is Something You Must Truly Desire to Know"
+description: "Keea Atta Kem, received by Maureen Cardoso: “What I want you to know is that it is not a mystery, God's Will, but it is something that you must truly …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

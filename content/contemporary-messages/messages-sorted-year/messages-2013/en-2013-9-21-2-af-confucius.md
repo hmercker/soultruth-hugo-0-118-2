@@ -1,7 +1,7 @@
 ﻿---
 title: "Continue in your Efforts to seek Truth, to truly understand your true Nature"
 menu_title: ""
-description: "Continue in your Efforts to seek Truth, to truly understand your true Nature"
+description: "Confucius, received by Al Fike: “You have struggled greatly, my son. A great battle of the physical.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

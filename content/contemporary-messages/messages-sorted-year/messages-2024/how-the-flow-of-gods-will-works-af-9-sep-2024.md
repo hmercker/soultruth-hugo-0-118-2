@@ -1,5 +1,6 @@
 ---
 title: "How the Flow of God’s Will Works"
+description: "Received by Al Fike: “You have seen how the flow of God’s Will works and has its impact in your travels and with the people that you meet.”"
 menu_title: "Augustine explains How the Flow of God’s Will Works"
 date: 2024-11-28 07:21:03+11:00
 draft: False

@@ -1,7 +1,7 @@
 ---
 title: "You Are Angels on Earth Doing God’s Work for Eternity"
 menu_title: ""
-description: "You Are Angels on Earth Doing God’s Work for Eternity"
+description: "Augustine, received by Al Fike: “I too come to acknowledge your efforts. I too come to love you and to honour you.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

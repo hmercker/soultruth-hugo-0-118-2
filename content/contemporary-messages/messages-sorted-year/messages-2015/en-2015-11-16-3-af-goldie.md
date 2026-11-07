@@ -1,7 +1,7 @@
 ﻿---
 title: "Be joyful and do not let the Worries of the World affect you"
 menu_title: ""
-description: "Be joyful and do not let the Worries of the World affect you"
+description: "Goldie, received by Al Fike: “.... and I am with you, especially when you feel the burdens I am with you to help lighten your spirit, I am with you and I …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

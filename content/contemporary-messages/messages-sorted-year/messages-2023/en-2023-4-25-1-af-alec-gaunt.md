@@ -1,7 +1,7 @@
 ---
 title: "Invites DV12 to Come Together again in Person for Development"
 menu_title: ""
-description: "Invites DV12 to Come Together again in Person for Development"
+description: "Alec Gaunt, received by Al Fike: “I wish to encourage each one of you in your efforts to work together and to seek for that elusive gift of Direct Voice …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

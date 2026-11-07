@@ -1,7 +1,7 @@
 ---
 title: "Jeanne Encourages Us to Develop a Rapport with Our Guides"
 menu_title: ""
-description: "Jeanne Encourages Us to Develop a Rapport with Our Guides"
+description: "Joan of Arc, received by Elizabeth Mack: “We truly love you children upon the Earth who seek the Father’s love. We speak to you and sometimes you listen …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

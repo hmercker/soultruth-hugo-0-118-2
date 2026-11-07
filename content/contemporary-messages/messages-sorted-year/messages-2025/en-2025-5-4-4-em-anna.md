@@ -1,7 +1,7 @@
 ---
 title: "May You Develop Wisdom in Your Interactions With Your Brothers and Sisters"
 menu_title: ""
-description: "May You Develop Wisdom in Your Interactions With Your Brothers and Sisters"
+description: "Anna, received by Elizabeth Mack: “May it bring forward protection through the rest of this travel of yours. May you benefit from your experiences here and …”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

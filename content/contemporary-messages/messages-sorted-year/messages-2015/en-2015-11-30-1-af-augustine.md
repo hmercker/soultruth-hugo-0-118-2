@@ -1,7 +1,7 @@
 ﻿---
 title: "Come to know your Purpose"
 menu_title: ""
-description: "Come to know your Purpose"
+description: "Augustine, received by Al Fike: “For each has unique gifts and abilities and a deep purpose and you play a part in the plan for the salvation of mankind …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

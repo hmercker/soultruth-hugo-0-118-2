@@ -1,5 +1,6 @@
 ---
 title: "Talks About Our Gifts and Destinies"
+description: "Received by Al Fike: “My friends, may the blessings of the Father’s Love enter into your souls. So simple is this creation, this expression of God that …”"
 menu_title: "Josephus Talks About Our Gifts and Destinies"
 date: 2024-11-28 07:21:03+11:00
 draft: False

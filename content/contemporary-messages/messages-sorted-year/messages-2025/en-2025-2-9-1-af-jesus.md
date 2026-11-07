@@ -1,7 +1,7 @@
 ---
 title: "Accept and Embrace God’s Healing Touch"
 menu_title: ""
-description: "Accept and Embrace God’s Healing Touch"
+description: "Jesus, received by Al Fike: “… touch each soul present, for all it requires is for you to have a sincere desire to receive this gift from God, the Essence …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

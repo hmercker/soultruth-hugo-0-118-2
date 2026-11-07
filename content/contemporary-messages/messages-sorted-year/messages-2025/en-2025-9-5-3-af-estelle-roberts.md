@@ -1,7 +1,7 @@
 ---
 title: "Opens Harrow Retreat: Sing Your Soulful Song of Truth"
 menu_title: ""
-description: "Opens Harrow Retreat: Sing Your Soulful Song of Truth"
+description: "Estelle Roberts, received by Al Fike: “Life without truth is life without meaning. Life without love is life that is hollow.”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

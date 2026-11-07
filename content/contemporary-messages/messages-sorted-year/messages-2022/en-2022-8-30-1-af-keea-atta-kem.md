@@ -1,7 +1,7 @@
 ---
 title: "The truth will be given to each soul in a unique way"
 menu_title: ""
-description: "The truth will be given to each soul in a unique way"
+description: "Keea Atta Kem, received by Al Fike: “My friends, I am Keea Atta Kem. As you do so, you draw in the angels of the Celestial Heavens to reinforce and to …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

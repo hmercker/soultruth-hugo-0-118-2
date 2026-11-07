@@ -1,7 +1,7 @@
 ﻿---
 title: "We do not wish you to attach your Prayer Offerings to any Religion"
 menu_title: ""
-description: "We do not wish you to attach your Prayer Offerings to any Religion"
+description: "Yogananda, received by Jimbeau Walsh: “I waited to come so that you could just be in God’s grace, and I wish to simply encourage you to make the longings …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "May You Understand How Loved You Are"
 menu_title: ""
-description: "May You Understand How Loved You Are"
+description: "Jesus, received by Al Fike: “May the grace of God's Love be with you, my beloveds. All the angels have their love for you.”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

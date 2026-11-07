@@ -1,7 +1,7 @@
 ---
 title: "An Enemy Becomes a Friend by God's Love"
 menu_title: ""
-description: "An Enemy Becomes a Friend by God's Love"
+description: "Francis of Assisi, received by Jimbeau Walsh: “I lived during the Crusades, the fourth and fifth in particular, but I was too young for the first, and I …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

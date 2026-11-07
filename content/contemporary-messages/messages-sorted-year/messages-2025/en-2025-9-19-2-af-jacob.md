@@ -1,7 +1,7 @@
 ---
 title: "God is Preparing You to be the Spokespeople for this Truth"
 menu_title: ""
-description: "God is Preparing You to be the Spokespeople for this Truth"
+description: "Jacob, received by Al Fike: “In the beginning, God intended for His creations, human beings, to have the soul as the predominant consciousness of the …”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

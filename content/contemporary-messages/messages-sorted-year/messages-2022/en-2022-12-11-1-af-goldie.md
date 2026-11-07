@@ -1,7 +1,7 @@
 ---
 title: "You Have Been Baptized by Rainbow Waters"
 menu_title: ""
-description: "You Have Been Baptized by Rainbow Waters"
+description: "Goldie, received by Al Fike: “Each of you has been baptized by the rainbow waters, this curtain of water that glows and reflects the rainbow colors.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

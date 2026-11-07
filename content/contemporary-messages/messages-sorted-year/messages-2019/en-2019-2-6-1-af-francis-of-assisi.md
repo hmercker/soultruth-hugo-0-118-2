@@ -1,7 +1,7 @@
 ---
 title: "Your Prayers May Change the Conditions of the World"
 menu_title: ""
-description: "Your Prayers May Change the Conditions of the World"
+description: "Francis of Assisi, received by Al Fike: “So humanity must come, through their own volition, to God, must come and receive God’s blessings of His Love so …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

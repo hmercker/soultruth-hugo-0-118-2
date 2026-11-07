@@ -1,7 +1,7 @@
 ---
 title: "Lessons on the Multidimensionality of the Universe"
 menu_title: ""
-description: "Lessons on the Multidimensionality of the Universe"
+description: "Orion, received by Al Fike: “May the great universal gift, the blessing of the Essence of the Creator of all the universe, His Love, pour into your souls …”"
 date: 2025-03-20 07:21:03+11:00
 draft: False
 hidden: True

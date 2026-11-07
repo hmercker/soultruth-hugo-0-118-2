@@ -1,7 +1,7 @@
 ---
 title: "Blessing Following Josephus’ Message"
 menu_title: ""
-description: "Blessing Following Josephus’ Message"
+description: "Jesus, received by Al Fike: “My hand rests upon you, beloveds. Know that I am your friend and I am with you.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

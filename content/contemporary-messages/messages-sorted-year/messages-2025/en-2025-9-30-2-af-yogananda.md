@@ -1,7 +1,7 @@
 ---
 title: "Lifting the Veil Between Our Two Worlds"
 menu_title: ""
-description: "Lifting the Veil Between Our Two Worlds"
+description: "Yogananda, received by Al Fike: “When you pray like this, you often lift the veil between our world and yours, making this connection between your friends …”"
 date: 2025-11-02 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "I Will Come to Strengthen a Blessing With Each One of You to Invigorate the World"
 menu_title: ""
-description: "I Will Come to Strengthen a Blessing With Each One of You to Invigorate the World"
+description: "Matthew, received by Elizabeth Mack: “I greet each one of you, welcome you to this place, this moment when souls come together to reach God, to reach for …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

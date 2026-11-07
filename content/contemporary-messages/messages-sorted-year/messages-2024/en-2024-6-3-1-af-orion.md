@@ -1,7 +1,7 @@
 ---
 title: "Lesson on Faith"
 menu_title: ""
-description: "Lesson on Faith"
+description: "Orion, received by Al Fike: “You travel the road, my friends. This road that is done and accomplished through faith rather than insight, perception.”"
 date: 2025-04-15 07:21:03+11:00
 draft: False
 hidden: True

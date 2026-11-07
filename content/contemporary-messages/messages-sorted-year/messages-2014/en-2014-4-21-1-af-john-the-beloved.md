@@ -1,7 +1,7 @@
 ﻿---
 title: "All that you have experienced in your Lives will be used by God to help others"
 menu_title: ""
-description: "All that you have experienced in your Lives will be used by God to help others"
+description: "John the Beloved, received by Al Fike: “Beautiful souls who long for Light and Love to walk the Path Divine, I am John, John the Beloved, and I wish to …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

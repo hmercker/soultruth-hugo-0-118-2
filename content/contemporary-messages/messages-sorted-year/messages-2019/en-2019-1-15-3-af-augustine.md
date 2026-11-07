@@ -1,7 +1,7 @@
 ---
 title: "Walk in the World as a Channel of Light"
 menu_title: ""
-description: "Walk in the World as a Channel of Light"
+description: "Augustine, received by Al Fike: “God will continue to gather you together, beloved souls. He continues to envelop you and press you to His bosom so that …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

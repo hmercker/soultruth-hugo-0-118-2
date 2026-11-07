@@ -1,7 +1,7 @@
 ---
 title: "God Intends for a Centre of Light to be Established Here"
 menu_title: ""
-description: "God Intends for a Centre of Light to be Established Here"
+description: "Augustine, received by Al Fike: “May the blessings of the Father be yours, my beloved souls. God intends that a Centre of Light be established in this …”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

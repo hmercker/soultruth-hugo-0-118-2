@@ -1,7 +1,7 @@
 ---
 title: "A Father’s Day Tribute and Blessing"
 menu_title: ""
-description: "A Father’s Day Tribute and Blessing"
+description: "Jesus, received by Al Fike: “May the Father’s Love enter your souls. Beautiful children of God, I come.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

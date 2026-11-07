@@ -1,7 +1,7 @@
 ---
 title: "A Greeting"
 menu_title: ""
-description: "A Greeting"
+description: "Martin Luther, received by Helge Mercker: “My daughter, I am here, Martin Luther. Rely on God's Guidance and all will be well.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

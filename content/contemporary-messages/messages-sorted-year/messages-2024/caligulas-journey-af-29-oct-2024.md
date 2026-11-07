@@ -1,5 +1,6 @@
 ---
 title: "Caligula Describes His Journey from the Deepest Hells to the Celestial Heavens"
+description: "Received by Al Fike: “I have struggled and clawed my way out of the darkness of the hells into these sublime conditions of heaven, the Celestial Heavens.”"
 menu_title: "Caligula Describes His Journey from the Deepest Hells to the Celestial Heavens"
 date: 2024-12-15 07:21:03+11:00
 draft: False

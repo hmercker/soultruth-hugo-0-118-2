@@ -1,7 +1,7 @@
 ---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Mylora, received by Al Fike: “May Love be upon you, beloved souls, I am Mylora and I come to pray with you today in your beautiful Circle of Light.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

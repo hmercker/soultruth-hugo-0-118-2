@@ -1,7 +1,7 @@
 ﻿---
 title: "Be at Peace, know you walk in Light and are loved"
 menu_title: ""
-description: "Be at Peace, know you walk in Light and are loved"
+description: "Jesus, received by Al Fike: “There is no higher calling, my children, no greater task and you are beautiful in this path and calling and efforts that you …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

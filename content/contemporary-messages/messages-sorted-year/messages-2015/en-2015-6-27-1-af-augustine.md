@@ -1,7 +1,7 @@
 ﻿---
 title: "Guidance regarding the Retreat that is about to take place"
 menu_title: ""
-description: "Guidance regarding the Retreat that is about to take place"
+description: "Augustine, received by Al Fike: “So you have made your plans and you have looked at all the details, mulled over the scenarios, the possibilities and now …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

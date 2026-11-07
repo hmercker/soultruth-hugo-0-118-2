@@ -1,7 +1,7 @@
 ﻿---
 title: "God Awaits Your Choice"
 menu_title: ""
-description: "God Awaits Your Choice"
+description: "Augustine, received by Al Fike: “God awaits your choice, beloveds. God awaits the choice of all humanity, that your brothers and sisters, that you, may …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

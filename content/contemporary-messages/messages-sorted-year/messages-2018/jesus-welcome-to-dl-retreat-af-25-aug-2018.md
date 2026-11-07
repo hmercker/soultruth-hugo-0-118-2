@@ -1,7 +1,7 @@
 ---
 title: "Jesus’ Welcome to the Divine Love Mediumship Retreat"
 menu_title: ""
-description: "Jesus’ Welcome to the Divine Love Mediumship Retreat"
+description: "Received by Al Fike: “Such joy it gives we in spirit to see you come together in this way, to explore the possibilities of your service for God in love, to …”"
 date: 2020-05-25 07:28:57+11:00
 draft: False
 hidden: True

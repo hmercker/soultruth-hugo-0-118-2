@@ -1,7 +1,7 @@
 ---
 title: "You Have Chosen to be Lights in the World"
 menu_title: ""
-description: "You Have Chosen to be Lights in the World"
+description: "Jesus, received by Al Fike: “May the touch of our Father's Love be this gift upon your soul as we pray today together. How it saddens me to see such …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Jesus Wants You to be a Sunbeam"
 menu_title: ""
-description: "Jesus Wants You to be a Sunbeam"
+description: "Keea Atta Kem, received by Al Fike: “And he walks with you all and helps you to realize your beautiful soul. May you come to know how beautiful you are to …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

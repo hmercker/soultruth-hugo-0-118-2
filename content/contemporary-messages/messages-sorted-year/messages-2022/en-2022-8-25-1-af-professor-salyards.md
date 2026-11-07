@@ -1,7 +1,7 @@
 ---
 title: "Creating Avenues of Love"
 menu_title: ""
-description: "Creating Avenues of Love"
+description: "Professor Salyards, received by Al Fike: “Blessings to you, my friends, it is indeed Professor Salyards. Opening up avenues of love, that is what you are …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

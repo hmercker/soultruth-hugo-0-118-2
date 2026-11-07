@@ -1,7 +1,7 @@
 ﻿---
 title: "You will be healed"
 menu_title: ""
-description: "You will be healed"
+description: "Mary, received by Al Fike: “You will come to no harm, my daughter, and you will find complete healing. My son, your heart grows restless.”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

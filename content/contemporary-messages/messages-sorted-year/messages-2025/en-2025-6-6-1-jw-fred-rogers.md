@@ -1,7 +1,7 @@
 ---
 title: "Serve the Children of the World"
 menu_title: ""
-description: "Serve the Children of the World"
+description: "Fred Rogers, received by Jimbeau Walsh: “Is it not a beautiful day in the neighborhood? Are we not all children of God?”"
 date: 2025-06-17 07:21:03+00:00
 draft: False
 hidden: True

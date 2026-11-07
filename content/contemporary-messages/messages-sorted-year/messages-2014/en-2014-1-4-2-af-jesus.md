@@ -1,7 +1,7 @@
 ﻿---
 title: "I too struggled upon the World when I walked and brought my Message of Love"
 menu_title: ""
-description: "I too struggled upon the World when I walked and brought my Message of Love"
+description: "Jesus, received by Al Fike: “(First words of message were not recorded)...who push back the darkness in their lives, who are a channel of your Love in this …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "We Are Called to be Leaders in the World"
 menu_title: ""
-description: "We Are Called to be Leaders in the World"
+description: "Moses, received by Al Fike: “…and beloved friends, I am Moses. Each time you say a prayer to God to receive His Love, you assert the truth in the world.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Come to Know God’s Love for You"
 menu_title: ""
-description: "Come to Know God’s Love for You"
+description: "Orion, received by Al Fike: “May you come to know the wonderment of our Creator's blessing upon you, the power of Love that is a cohesive factor of the …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

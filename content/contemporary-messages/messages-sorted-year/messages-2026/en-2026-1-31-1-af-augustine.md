@@ -1,7 +1,7 @@
 ---
 title: "The Only Impediment to Truth Resides Within You"
 menu_title: ""
-description: "The Only Impediment to Truth Resides Within You"
+description: "Augustine, received by Al Fike: “The only impediment to truth, beloved souls, resides within you. Within you are doubts, fears and judgement.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

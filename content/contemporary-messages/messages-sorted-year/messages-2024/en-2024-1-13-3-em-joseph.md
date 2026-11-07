@@ -1,7 +1,7 @@
 ---
 title: "Jesus is Still Working to Transform the World"
 menu_title: ""
-description: "Jesus is Still Working to Transform the World"
+description: "Joseph, received by Elizabeth Mack: “(I come) to say, I love you. My son has done much work and continues to do much work to bring about the transformation …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

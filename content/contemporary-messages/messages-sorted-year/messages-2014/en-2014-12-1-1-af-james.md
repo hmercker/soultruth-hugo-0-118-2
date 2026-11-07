@@ -1,7 +1,7 @@
 ﻿---
 title: "You are a Light in the World"
 menu_title: ""
-description: "You are a Light in the World"
+description: "James, received by Al Fike: “Precious child, beloved daughter who toils so selflessly for others, you have been guided to this place and this circle of …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

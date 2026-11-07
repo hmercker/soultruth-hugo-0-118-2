@@ -1,7 +1,7 @@
 ---
 title: "Encourages Us All to Pray and Serve God"
 menu_title: ""
-description: "Encourages Us All to Pray and Serve God"
+description: "Jesus, received by Al Fike: “May the peace and glory of His Love rain upon you, beloved souls, my disciples all, who carry the banner of truth.”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Describes the Tenderness of their Approach to Working with Us"
 menu_title: ""
-description: "Describes the Tenderness of their Approach to Working with Us"
+description: "Orion & Jesus, received by Al Fike: “You are like the tender shoots that have emerged from the soil. You begin to grow in the light but in your present …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

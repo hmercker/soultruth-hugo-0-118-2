@@ -1,7 +1,7 @@
 ---
 title: "Combatting the Darkness with Light"
 menu_title: ""
-description: "Combatting the Darkness with Light"
+description: "Orion, received by Al Fike: “May you be blessed, beloved souls, I am Orion. We make great efforts to support you, to help neutralise what you may consider …”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

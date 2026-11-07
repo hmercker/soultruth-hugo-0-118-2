@@ -1,7 +1,7 @@
 ---
 title: "Treasure Your Times Together"
 menu_title: ""
-description: "Treasure Your Times Together"
+description: "Care Darby Walsh, received by Al Fike: “I remember those days when we would gather as you have gathered and talk of the things that you talk about …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Reinforce the Light and Love Within You"
 menu_title: ""
-description: "Reinforce the Light and Love Within You"
+description: "Orion, received by Al Fike: “How we wish for your world to be in harmony. Every world in God’s universe is destined to be in harmony.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

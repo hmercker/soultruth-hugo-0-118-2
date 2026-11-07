@@ -1,7 +1,7 @@
 ---
 title: "Please Take These Questions to Heart"
 menu_title: ""
-description: "Please Take These Questions to Heart"
+description: "Augustine, received by Maureen Cardoso: “A wonderful message from dear Andrew which I encourage you all to heed and spend time upon reflecting his great …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

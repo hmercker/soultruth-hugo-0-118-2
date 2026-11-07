@@ -1,7 +1,7 @@
 ﻿---
 title: "Awaken the Soul to God’s Love"
 menu_title: ""
-description: "Awaken the Soul to God’s Love"
+description: "Barbara Davies, received by Al Fike: “Oh, yes, we do, Darlene [^1]. We all love God, for God is the Source of all Love.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

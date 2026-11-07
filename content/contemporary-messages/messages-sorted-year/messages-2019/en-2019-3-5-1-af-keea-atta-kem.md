@@ -1,7 +1,7 @@
 ---
 title: "Many Souls Hunger for Truth, Light, Love"
 menu_title: ""
-description: "Many Souls Hunger for Truth, Light, Love"
+description: "Keea Atta Kem, received by Al Fike: “Souls are hungering for light and love, truth and peace within. Many souls hunger for this, my brothers and sisters.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

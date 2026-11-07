@@ -1,7 +1,7 @@
 ---
 title: "Groups world-wide are being brought together to pray"
 menu_title: ""
-description: "Groups world-wide are being brought together to pray"
+description: "Seretta Kem, received by Al Fike: “As you have already surmised, you will be joining many other groups in the world, groups that are being prepared as you …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

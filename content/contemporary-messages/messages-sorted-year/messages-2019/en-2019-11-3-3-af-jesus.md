@@ -1,7 +1,7 @@
 ---
 title: "Walking the Path of Love and Truth: Part II"
 menu_title: ""
-description: "Walking the Path of Love and Truth: Part II"
+description: "Jesus, received by Al Fike: “The Will of the Heavenly Father is that you love Him, that in your love for Him you open the door for His great Essence of …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

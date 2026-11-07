@@ -1,7 +1,7 @@
 ---
 title: "The Metamorphosis of the Soul"
 menu_title: ""
-description: "The Metamorphosis of the Soul"
+description: "Orion, received by Al Fike: “You articulate your needs and your dilemmas well, my friend, in your prayer. Yet we are asking of you something completely …”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

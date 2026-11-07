@@ -1,7 +1,7 @@
 ---
 title: "May God Awaken Every Aspect of your Soul"
 menu_title: ""
-description: "May God Awaken Every Aspect of your Soul"
+description: "Andrew, received by Al Fike: “As your souls continue to grow in the Father’s Love, you continue to awaken in this Love. My prayer for you is that you know …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

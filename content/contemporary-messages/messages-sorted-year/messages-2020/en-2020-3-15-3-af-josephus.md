@@ -1,7 +1,7 @@
 ---
 title: "Questions and Answers About Darkness and Chakras"
 menu_title: ""
-description: "Questions and Answers About Darkness and Chakras"
+description: "Josephus, received by Al Fike: “Our beloved teacher, Keea, has given you the essence of the message that we intend to give to you and others because it is …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

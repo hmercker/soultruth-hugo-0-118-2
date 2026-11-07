@@ -1,7 +1,7 @@
 ---
 title: "Closing Circle Poughkeepsie Retreat"
 menu_title: ""
-description: "Closing Circle Poughkeepsie Retreat"
+description: "Augustine, received by Elizabeth Mack: “Truly your brother, I am known as St. I have come back now that you are ready and I wish to bless this congregation …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

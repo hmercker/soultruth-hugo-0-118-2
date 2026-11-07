@@ -1,7 +1,7 @@
 ---
 title: "It is Better to be Blessed in Love than in Knowledge"
 menu_title: ""
-description: "It is Better to be Blessed in Love than in Knowledge"
+description: "Goldie, received by Al Fike: “Be blessed in love, my beloved beautiful friends, and joy will be in your heart. An understanding will come with love …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

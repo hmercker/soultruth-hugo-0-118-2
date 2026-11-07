@@ -1,7 +1,7 @@
 ---
 title: "Open Your Souls Wide to Receive"
 menu_title: ""
-description: "Open Your Souls Wide to Receive"
+description: "Jesus, received by Al Fike: “We come to gather the light from all over this world of yours, that an angel may be with each one of you, a blessing from God …”"
 date: 2025-09-01 07:21:03+00:00
 draft: False
 hidden: True

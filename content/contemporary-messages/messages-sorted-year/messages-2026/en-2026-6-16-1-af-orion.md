@@ -1,7 +1,7 @@
 ﻿---
 title: "Take the Leap and We Will Be Waiting for You on the Other Side"
 menu_title: ""
-description: "Take the Leap and We Will Be Waiting for You on the Other Side"
+description: "Orion, received by Al Fike: “A strength grows within you, a solidity that is truly of the soul. As this dear instrument has prayed, yes, indeed, the soul …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

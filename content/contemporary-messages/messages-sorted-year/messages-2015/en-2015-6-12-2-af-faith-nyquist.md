@@ -1,7 +1,7 @@
 ﻿---
 title: "Do not underestimate the Will of God"
 menu_title: ""
-description: "Do not underestimate the Will of God"
+description: "Faith Nyquist, received by Al Fike: “So I see you have hit another roadblock and you are surprised with what has transpired, but I tell you, you will be …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

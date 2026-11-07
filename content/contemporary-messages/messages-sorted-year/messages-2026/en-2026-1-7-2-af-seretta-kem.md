@@ -1,7 +1,7 @@
 ---
 title: "Distinguish Between Spiritual Perceptions and Soul Consciousness"
 menu_title: ""
-description: "Distinguish Between Spiritual Perceptions and Soul Consciousness"
+description: "Seretta Kem, received by Al Fike: “This instrument has done well to describe the circle that you are engaged in. Your souls are the most powerful …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

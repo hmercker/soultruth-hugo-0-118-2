@@ -1,7 +1,7 @@
 ﻿---
 title: "Be aware of each Step you take"
 menu_title: ""
-description: "Be aware of each Step you take"
+description: "Augustine, received by Al Fike: “Your teacher Augustine is here. And please do not feel that this time is wasted or problematic in any way, for it is …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

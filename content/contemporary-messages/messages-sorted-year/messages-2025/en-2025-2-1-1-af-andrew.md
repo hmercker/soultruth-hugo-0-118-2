@@ -1,7 +1,7 @@
 ---
 title: "Receiving God's Love Begins as a Trickle and Can Grow Into a Torrent!"
 menu_title: ""
-description: "Receiving God's Love Begins as a Trickle and Can Grow Into a Torrent!"
+description: "Andrew, received by Al Fike: “For those who just begin this passageway toward truth, toward God, the blessing of His Love often begins as a drop, a trickle …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

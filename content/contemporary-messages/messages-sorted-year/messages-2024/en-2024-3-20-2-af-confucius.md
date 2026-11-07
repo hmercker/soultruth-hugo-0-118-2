@@ -1,7 +1,7 @@
 ---
 title: "Three Birds on a Wire"
 menu_title: ""
-description: "Three Birds on a Wire"
+description: "Confucius, received by Al Fike: “How blessed you have been, beloved souls. How blessed you have been to have your time chattering away upon your wire …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

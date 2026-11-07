@@ -1,7 +1,7 @@
 ---
 title: "Together we are a Family of Gods Creation"
 menu_title: ""
-description: "Together we are a Family of Gods Creation"
+description: "Confucius, received by Al Fike: “We love you, beloveds, we love you dearly, precious souls upon your world, a world so in need of God's Touch and healing …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

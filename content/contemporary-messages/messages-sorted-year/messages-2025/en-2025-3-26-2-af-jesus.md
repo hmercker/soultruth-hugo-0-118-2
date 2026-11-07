@@ -1,7 +1,7 @@
 ---
 title: "Blesses Each One of Us"
 menu_title: ""
-description: "Blesses Each One of Us"
+description: "Jesus, received by Al Fike: “May the Father's Love continue to flow into your souls, beautiful children of God. We are part of God's family of love.”"
 date: 2025-04-07 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Live in Love, Compassion, Sensitivity, Awareness"
 menu_title: ""
-description: "Live in Love, Compassion, Sensitivity, Awareness"
+description: "Moses, received by Al Fike: “May your souls open wide to receive this great blessing, my children, for it will redeem you and fill you with joy and insight …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

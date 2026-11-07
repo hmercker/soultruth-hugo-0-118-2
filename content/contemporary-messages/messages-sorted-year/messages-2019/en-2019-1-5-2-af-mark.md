@@ -1,7 +1,7 @@
 ---
 title: "On Closing, We Have Accomplished So Much Amongst You"
 menu_title: ""
-description: "On Closing, We Have Accomplished So Much Amongst You"
+description: "Mark, received by Al Fike: “We are pleased that we have accomplished so much amongst you, and together you have become unified and fulfilled your task.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Each Soul is a magnetic Center drawing to it what it desires"
 menu_title: ""
-description: "Each Soul is a magnetic Center drawing to it what it desires"
+description: "Yogananda, received by Jimbeau Walsh: “This circle of prayer, healing, and light comes together drawn into the love of God and the oneness that is felt in …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

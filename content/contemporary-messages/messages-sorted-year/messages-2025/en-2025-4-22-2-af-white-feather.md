@@ -1,7 +1,7 @@
 ---
 title: "Honours and Celebrates the Creation of Earth"
 menu_title: ""
-description: "Honours and Celebrates the Creation of Earth"
+description: "White Feather, received by Al Fike: “Those things that seem inanimate are indeed alive and have their spirit. All of nature has its spirit expression and …”"
 date: 2025-05-19 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Put away your Shield and Armour and lead with Love"
 menu_title: ""
-description: "Put away your Shield and Armour and lead with Love"
+description: "Andrew, received by Al Fike: “Every soul, it seems, in this place is fearful and finds it very difficult to trust another.”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

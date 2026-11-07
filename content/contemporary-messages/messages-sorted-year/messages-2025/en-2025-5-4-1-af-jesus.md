@@ -1,7 +1,7 @@
 ---
 title: "Opens Celebrity Cruise"
 menu_title: ""
-description: "Opens Celebrity Cruise"
+description: "Jesus, received by Al Fike: “May the Father's Love be upon you, beautiful souls, children of God. Open your souls wide to the inflowing of His Love.”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

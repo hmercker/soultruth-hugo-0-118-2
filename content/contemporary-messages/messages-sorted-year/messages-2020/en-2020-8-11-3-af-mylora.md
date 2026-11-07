@@ -1,7 +1,7 @@
 ---
 title: "A Beautiful Blessing of Emerald Colour"
 menu_title: ""
-description: "A Beautiful Blessing of Emerald Colour"
+description: "Mylora, received by Al Fike: “I bring a freshness to your minds and your bodies, uplifting you and bringing a healing for all of you, beloved souls.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

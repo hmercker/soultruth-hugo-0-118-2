@@ -1,7 +1,7 @@
 ---
 title: "Be at One with God"
 menu_title: ""
-description: "Be at One with God"
+description: "Orion, received by Al Fike: “Good bless you, my dear friends. Orion is here again to be with my beautiful friends who are eager seekers of truth, who take …”"
 date: 2025-07-10 07:21:03+11:00
 draft: False
 hidden: True

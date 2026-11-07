@@ -1,7 +1,7 @@
 ﻿---
 title: "Let His Love flourish within you"
 menu_title: ""
-description: "Let His Love flourish within you"
+description: "Confucius, received by Al Fike: “A healing has been given to each soul here, a blessing of love within their souls, a peace surrounding you, my beloveds.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

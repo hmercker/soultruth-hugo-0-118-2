@@ -1,7 +1,7 @@
 ﻿---
 title: "Know the Truth Through Awakening Your Soul Faculties"
 menu_title: ""
-description: "Know the Truth Through Awakening Your Soul Faculties"
+description: "James, received by Al Fike: “You come with many questions. You come from a place in which you have some firm beliefs and understandings about the …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

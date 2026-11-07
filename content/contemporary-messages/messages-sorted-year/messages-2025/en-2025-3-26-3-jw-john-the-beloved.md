@@ -1,7 +1,7 @@
 ---
 title: "Engagement of the Soul"
 menu_title: ""
-description: "Engagement of the Soul"
+description: "John the Beloved, received by Jimbeau Walsh: “You must understand that the love that Jesus had was the love of God and was equal for each and every soul …”"
 date: 2025-04-15 07:21:03+11:00
 draft: False
 hidden: True

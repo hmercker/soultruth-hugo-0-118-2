@@ -1,7 +1,7 @@
 ﻿---
 title: "A Lesson on the Three Minds: Material, Spirit and Soul"
 menu_title: ""
-description: "A Lesson on the Three Minds: Material, Spirit and Soul"
+description: "Orion, received by Al Fike: “Today, I wish to address the reality that you experience in consciousness, the three minds that the dear child has mentioned …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

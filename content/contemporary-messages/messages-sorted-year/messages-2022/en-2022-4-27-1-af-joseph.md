@@ -1,7 +1,7 @@
 ---
 title: "Awaken to the Callings of Your Souls"
 menu_title: ""
-description: "Awaken to the Callings of Your Souls"
+description: "Joseph, received by Al Fike: “The awakening of the world is what is God’s plan, and that plan is unfolding in your world.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

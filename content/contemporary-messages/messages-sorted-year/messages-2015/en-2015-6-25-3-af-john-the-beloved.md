@@ -1,7 +1,7 @@
 ﻿---
 title: "The Winds of Change blow upon this World"
 menu_title: ""
-description: "The Winds of Change blow upon this World"
+description: "John the Beloved, received by Al Fike: “God’s Breath is blowing upon your world, my beloveds. His touch touches everything and His Breath blows upon the …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

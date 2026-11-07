@@ -1,7 +1,7 @@
 ﻿---
 title: "The wondrous Expressions of your Soul and Life’s Challenges"
 menu_title: ""
-description: "The wondrous Expressions of your Soul and Life’s Challenges"
+description: "Faith Nyquist, received by Al Fike: “You have drawn me to you with your conversations and I am never too far for I love you and I guide you and I am with …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

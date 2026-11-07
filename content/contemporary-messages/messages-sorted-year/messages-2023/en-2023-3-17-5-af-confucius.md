@@ -1,7 +1,7 @@
 ---
 title: "You Are all Forerunners of Bringing Love and Truth to the World"
 menu_title: ""
-description: "You Are all Forerunners of Bringing Love and Truth to the World"
+description: "Confucius, received by Al Fike: “My friends, I am your teacher and friend, Confucius. There are many from the world of spirit who gather around you at this …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

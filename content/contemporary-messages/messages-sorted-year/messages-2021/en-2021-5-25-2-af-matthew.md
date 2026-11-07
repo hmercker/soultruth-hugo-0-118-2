@@ -1,7 +1,7 @@
 ---
 title: "The Light Grows Within Us as We Pray for Divine Love"
 menu_title: ""
-description: "The Light Grows Within Us as We Pray for Divine Love"
+description: "Matthew, received by Al Fike: “As the worldly conditions drift in and out of your lives, know that because you have forged this allegiance with God seeking …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

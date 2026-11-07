@@ -1,7 +1,7 @@
 ---
 title: "Together You Draw the Light of Heaven"
 menu_title: ""
-description: "Together You Draw the Light of Heaven"
+description: "Jesus, received by Al Fike: “The Father embraces you and uplifts you in Light. In this blessing, you become a channel of light for the world.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

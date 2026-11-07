@@ -1,7 +1,7 @@
 ---
 title: "Soar to Your Heavenly Father"
 menu_title: ""
-description: "Soar to Your Heavenly Father"
+description: "Confucius, received by Al Fike: “And so you build a haven of peace within you and around you with all the gyrations of life oblivious of God.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

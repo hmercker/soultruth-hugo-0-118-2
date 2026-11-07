@@ -1,7 +1,7 @@
 ---
 title: "There are Many Ways to Serve as a Light"
 menu_title: ""
-description: "There are Many Ways to Serve as a Light"
+description: "Mylora, received by Al Fike: “Thank you for your prayer, dear sister. I have been so for longer than I can remember.”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

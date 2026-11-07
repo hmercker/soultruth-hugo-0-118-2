@@ -1,7 +1,7 @@
 ﻿---
 title: "Bring Joy into your Lives"
 menu_title: ""
-description: "Bring Joy into your Lives"
+description: "Goldie, received by Al Fike: “How nice to see you all, the smiles on your faces as the sun touches each beautiful face and brings a glint in your eye and a …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

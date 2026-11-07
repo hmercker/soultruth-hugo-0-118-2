@@ -1,7 +1,7 @@
 ﻿---
 title: "A Lesson on the Wisdom of the Soul"
 menu_title: ""
-description: "A Lesson on the Wisdom of the Soul"
+description: "Lao Tzu, received by Al Fike: “Today I come to help you understand the nature of your own soul. The teachings that are so prevalent in your world teach …”"
 date: 2026-10-06 00:00:00+00:00
 draft: False
 hidden: True

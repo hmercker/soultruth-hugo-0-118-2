@@ -1,7 +1,7 @@
 ---
 title: "All the Peace and Silence"
 menu_title: ""
-description: "All the Peace and Silence"
+description: "Yogananda, received by Jimbeau Walsh: “Allow the peace and silence of this prayer to open your heart. Allow your souls to reach out to God’s Love for the …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

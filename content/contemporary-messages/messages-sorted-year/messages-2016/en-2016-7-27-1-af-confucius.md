@@ -1,7 +1,7 @@
 ﻿---
 title: "Be a Link in the Chain of God's Blessings to Others"
 menu_title: ""
-description: "Be a Link in the Chain of God's Blessings to Others"
+description: "Confucius, received by Al Fike: “Precious and beautiful souls, I am Confucius. For with the opening of your soul and the awakening of your soul in this …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "You long to be at-one with God"
 menu_title: ""
-description: "You long to be at-one with God"
+description: "Seretta Kem, received by Al Fike: “We’ve been administrating healing to each one of you here and taking chemicals, adding and subtracting, spreading about …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

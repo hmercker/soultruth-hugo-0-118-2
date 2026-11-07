@@ -1,7 +1,7 @@
 ---
 title: "Pray More"
 menu_title: ""
-description: "Pray More"
+description: "John the Baptist, received by Elizabeth Mack: “For each time you pray, each time you open your souls and long for this gift of Divine Love, the Father …”"
 date: 2025-03-17 07:21:03+11:00
 draft: False
 hidden: True

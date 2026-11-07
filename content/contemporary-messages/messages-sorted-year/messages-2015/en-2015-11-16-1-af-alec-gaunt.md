@@ -1,7 +1,7 @@
 ﻿---
 title: "Do not hide away but express your Gifts in the World"
 menu_title: ""
-description: "Do not hide away but express your Gifts in the World"
+description: "Alec Gaunt, received by Al Fike: “I have been very close and you have been delving into my history, the history of my family and those who have gone before …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Reverence for the Earth"
 menu_title: ""
-description: "Reverence for the Earth"
+description: "White Cloud, received by Al Fike: “Indeed, the Earth is replenished by God and yet humanity continues to take from the Earth, so this contradiction …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

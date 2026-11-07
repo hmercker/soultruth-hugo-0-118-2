@@ -1,7 +1,7 @@
 ---
 title: "Blessing for Running Springs Retreat"
 menu_title: ""
-description: "Blessing for Running Springs Retreat"
+description: "Jesus, received by Al Fike: “I bless you in the peace that passes all understanding, in the joy of Love Divine.”"
 date: 2025-05-20 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Your Service to God will Grow with Your Soul"
 menu_title: ""
-description: "Your Service to God will Grow with Your Soul"
+description: "Andrew, received by Al Fike: “The Father’s Love be with you, each beautiful soul present, all those who are connected to this group and all those who are …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

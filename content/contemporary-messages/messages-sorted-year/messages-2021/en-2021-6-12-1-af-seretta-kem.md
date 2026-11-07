@@ -1,7 +1,7 @@
 ---
 title: "Guidance and Instruction for Direct Voice"
 menu_title: ""
-description: "Guidance and Instruction for Direct Voice"
+description: "Seretta Kem, received by Al Fike: “I see that all of you have come to make a commitment to one another, this purpose, and to these efforts so that you may …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

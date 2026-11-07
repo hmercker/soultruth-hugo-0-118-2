@@ -1,7 +1,7 @@
 ---
 title: "Come to Know Me, I Am With You"
 menu_title: ""
-description: "Come to Know Me, I Am With You"
+description: "Jesus, received by Al Fike: “Brothers and sisters all, I come, I am Jesus. Know my presence with you in your prayers and in your life, for I am with you all.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

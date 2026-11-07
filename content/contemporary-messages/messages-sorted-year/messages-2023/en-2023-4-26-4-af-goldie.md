@@ -1,7 +1,7 @@
 ---
 title: "Surprises Coming"
 menu_title: ""
-description: "Surprises Coming"
+description: "Goldie, received by Al Fike: “Life is one big surprise, is it not? When you are in alignment with God, God brings you many surprises, many blessings and …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

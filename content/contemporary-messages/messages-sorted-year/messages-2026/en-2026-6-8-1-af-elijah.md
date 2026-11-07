@@ -1,7 +1,7 @@
 ﻿---
 title: "Be Flexible and Faithful as Necessary Change Comes to the World"
 menu_title: ""
-description: "Be Flexible and Faithful as Necessary Change Comes to the World"
+description: "Elijah, received by Al Fike: “Prepare for change, beloved souls. Prepare for change, for this is inevitable.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

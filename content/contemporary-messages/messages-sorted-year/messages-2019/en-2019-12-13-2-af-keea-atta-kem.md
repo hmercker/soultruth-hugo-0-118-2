@@ -1,7 +1,7 @@
 ---
 title: "You Are Never Alone"
 menu_title: ""
-description: "You Are Never Alone"
+description: "Keea Atta Kem, received by Al Fike: “We continue to gather you together, link you together soul to soul, becoming a family of love, a family that supports …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

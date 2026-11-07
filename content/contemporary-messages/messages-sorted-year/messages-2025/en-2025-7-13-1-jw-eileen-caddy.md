@@ -1,7 +1,7 @@
 ---
 title: "Reach out to all"
 menu_title: ""
-description: "Reach out to all"
+description: "Eileen Caddy, received by Jimbeau Walsh: “I can relate to your needs, most especially in the context of earth changes as well as political situations …”"
 date: 2025-07-22 07:21:03+00:00
 draft: False
 hidden: True

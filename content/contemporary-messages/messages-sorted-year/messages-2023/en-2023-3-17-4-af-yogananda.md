@@ -1,7 +1,7 @@
 ---
 title: "Tribute to All Seeking Truth and Love"
 menu_title: ""
-description: "Tribute to All Seeking Truth and Love"
+description: "Yogananda, received by Al Fike: “My friends, I am Yogananda. The Truth of God’s Love is available to all.”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Allowing your Soul, your Life, to be changed"
 menu_title: ""
-description: "Allowing your Soul, your Life, to be changed"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “We are aware of the many changes occurring, not only upon the earth, but through your connection with spirit …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

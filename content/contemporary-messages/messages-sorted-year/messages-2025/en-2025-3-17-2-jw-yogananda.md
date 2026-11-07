@@ -1,7 +1,7 @@
 ---
 title: "God serves those who serve God"
 menu_title: ""
-description: "God serves those who serve God"
+description: "Yogananda, received by Jimbeau Walsh: “During my time on earth, I met many devotees of God, including Gandhi, whose wise words came through my brother.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

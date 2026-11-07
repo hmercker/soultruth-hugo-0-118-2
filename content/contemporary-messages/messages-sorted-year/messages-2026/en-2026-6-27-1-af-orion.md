@@ -1,7 +1,7 @@
 ﻿---
 title: "The Transition from Material Mind to Soul Awakening Happens Gradually and is Beset by Many Challenges"
 menu_title: ""
-description: "The Transition from Material Mind to Soul Awakening Happens Gradually and is Beset by Many Challenges"
+description: "Orion, received by Al Fike: “Blessings to you, my beloved friends. I think that there is a great challenge in shifting consciousness for each one of you.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

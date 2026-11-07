@@ -1,7 +1,7 @@
 ---
 title: "Continue to Bring Messages of God’s Love to the World"
 menu_title: ""
-description: "Continue to Bring Messages of God’s Love to the World"
+description: "Keea Atta Kem, received by Al Fike: “I too come to acknowledge you. On the heels of our beloved Master, on the heels of love, we do our work.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Confucius, received by Al Fike: “I bring a blessing of healing for you, beloved souls, I am Confucius. Precious and beloveds each, precious souls here, a …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

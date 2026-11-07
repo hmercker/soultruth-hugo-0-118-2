@@ -1,7 +1,7 @@
 ---
 title: "I Implore You to Open and Receive Directly From Our Father"
 menu_title: ""
-description: "I Implore You to Open and Receive Directly From Our Father"
+description: "Jesus, received by Elizabeth Mack: “My love comes to each of your souls with a special blessing for each of you. This Love will bring you to your greatest …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

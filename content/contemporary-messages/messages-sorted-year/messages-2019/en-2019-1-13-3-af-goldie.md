@@ -1,7 +1,7 @@
 ---
 title: "May There be Sunshine in Your Soul"
 menu_title: ""
-description: "May There be Sunshine in Your Soul"
+description: "Goldie, received by Al Fike: “May there be sunshine in your souls today my friends, I am Goldie and I love you. I have touched each and every one of you to …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

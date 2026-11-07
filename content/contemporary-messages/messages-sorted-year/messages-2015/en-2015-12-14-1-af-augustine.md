@@ -1,7 +1,7 @@
 ﻿---
 title: "Free Will vs God's Will"
 menu_title: ""
-description: "Free Will vs God's Will"
+description: "Augustine, received by Al Fike: “A lesson was given this morning which I wish to reiterate to all of you, my beloveds, for it is an important lesson …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

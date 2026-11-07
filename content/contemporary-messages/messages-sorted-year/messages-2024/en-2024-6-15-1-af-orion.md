@@ -1,7 +1,7 @@
 ---
 title: "I Speak Only the Truth to You In Love"
 menu_title: ""
-description: "I Speak Only the Truth to You In Love"
+description: "Orion, received by Al Fike: “You think of yourselves as separate, as individuated souls in the world and this is a fact.”"
 date: 2025-04-15 07:21:03+11:00
 draft: False
 hidden: True

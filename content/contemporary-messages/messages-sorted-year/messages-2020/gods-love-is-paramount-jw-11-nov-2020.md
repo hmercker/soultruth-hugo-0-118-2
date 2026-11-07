@@ -1,7 +1,7 @@
 ---
 title: "God’s Love is Paramount"
 menu_title: ""
-description: "God’s Love is Paramount"
+description: "Received by Jimbeau Walsh: “Jesus asked the disciples to love God with their whole being with their whole heart and to love their neighbors as themselves.”"
 date: 2022-04-13 07:21:03+11:00
 draft: False
 hidden: True

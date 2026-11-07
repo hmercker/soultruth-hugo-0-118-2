@@ -1,7 +1,7 @@
 ---
 title: "Describes the Anticipated Impact and Participants Joining Us in Poughkeepsie"
 menu_title: ""
-description: "Describes the Anticipated Impact and Participants Joining Us in Poughkeepsie"
+description: "John the Baptist, received by Elizabeth Mack: “You will be serving many new souls and some of whom are coming with the human participants, some of whom you …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

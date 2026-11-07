@@ -1,7 +1,7 @@
 ﻿---
 title: "Each Individual Must Find Their Way to a Relationship With God"
 menu_title: ""
-description: "Each Individual Must Find Their Way to a Relationship With God"
+description: "Isaiah, received by Al Fike: “May the grace of God be upon you, beloved souls. The struggle to find God has been a search that has lasted millennia in this …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

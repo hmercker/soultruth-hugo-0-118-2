@@ -1,7 +1,7 @@
 ---
 title: "Guidance Will Be Forthcoming"
 menu_title: ""
-description: "Guidance Will Be Forthcoming"
+description: "Augustine, received by Al Fike: “When you are confused and require direction, pray. Seek out God's counsel and guidance.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

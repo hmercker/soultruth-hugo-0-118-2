@@ -1,7 +1,7 @@
 ---
 title: "Thoughts Form a Powerful Influence In Your World"
 menu_title: ""
-description: "Thoughts Form a Powerful Influence In Your World"
+description: "Luke, received by Al Fike: “The currencies of the world are of the baser human condition and desires. In these exchanges of thought and energies amongst …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

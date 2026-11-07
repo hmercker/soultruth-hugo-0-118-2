@@ -1,7 +1,7 @@
 ﻿---
 title: "This is a Path that Encompasses Everything and There is Nothing Higher"
 menu_title: ""
-description: "This is a Path that Encompasses Everything and There is Nothing Higher"
+description: "Augustine, received by Maureen Cardoso: “We enjoy witnessing your curiosity, your knowledge and your wisdom as you ask, as you respond and as you share …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

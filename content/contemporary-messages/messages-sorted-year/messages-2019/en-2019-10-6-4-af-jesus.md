@@ -1,7 +1,7 @@
 ---
 title: "Know You Are Blessed by God"
 menu_title: ""
-description: "Know You Are Blessed by God"
+description: "Jesus, received by Al Fike: “Each of you carries a light that signifies that you are claimed by God in this Love. Carry this sure knowledge within you …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

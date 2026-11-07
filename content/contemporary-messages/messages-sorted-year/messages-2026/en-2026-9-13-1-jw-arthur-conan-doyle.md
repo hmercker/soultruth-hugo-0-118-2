@@ -1,7 +1,7 @@
 ﻿---
 title: "Soul Detectives"
 menu_title: ""
-description: "Soul Detectives"
+description: "Arthur Conan Doyle, received by Jimbeau Walsh: “I should like to talk about detective work. As you may know, my protagonist always looked for unseen clues …”"
 date: 2026-09-30 00:00:00+00:00
 draft: False
 hidden: True

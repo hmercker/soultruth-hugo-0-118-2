@@ -1,7 +1,7 @@
 ﻿---
 title: "What Is A Humble Soul"
 menu_title: ""
-description: "What Is A Humble Soul"
+description: "Faith Nyquist, received by Maureen Cardoso: “Ultimately, a humble soul is one that knows they cannot do the ultimate acts of love and kindness, the …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

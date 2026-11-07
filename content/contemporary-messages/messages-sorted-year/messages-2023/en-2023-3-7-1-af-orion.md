@@ -1,7 +1,7 @@
 ---
 title: "The Way Will Become Easier with Divine Love"
 menu_title: ""
-description: "The Way Will Become Easier with Divine Love"
+description: "Orion, received by Al Fike: “I see how your prayers are far-reaching, bringing greater light to this world of yours. We see how your desires and …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

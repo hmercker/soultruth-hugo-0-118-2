@@ -1,7 +1,7 @@
 ﻿---
 title: "If Only Humanity Knew"
 menu_title: ""
-description: "If Only Humanity Knew"
+description: "John the Baptist, received by Elizabeth Mack: “Your desires for God's Love and blessings have brought us here and I come forward to speak to you.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

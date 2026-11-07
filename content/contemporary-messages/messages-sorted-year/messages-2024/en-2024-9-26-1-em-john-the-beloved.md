@@ -1,7 +1,7 @@
 ---
 title: "Marmora Friends are Seeking"
 menu_title: ""
-description: "Marmora Friends are Seeking"
+description: "John the Beloved, received by Elizabeth Mack: “These are spirits who have come a long way across the galaxy. You will gain greater insight into the minds …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

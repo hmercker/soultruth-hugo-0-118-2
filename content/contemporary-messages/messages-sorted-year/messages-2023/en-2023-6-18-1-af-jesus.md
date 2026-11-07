@@ -1,7 +1,7 @@
 ---
 title: "Prayer for Divine Love Blessings"
 menu_title: ""
-description: "Prayer for Divine Love Blessings"
+description: "Jesus, received by Al Fike: “Rejoice, for you have found the truth that will truly transform you. So, together we rejoice in the truth.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

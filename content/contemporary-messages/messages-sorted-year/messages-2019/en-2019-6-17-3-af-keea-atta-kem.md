@@ -1,7 +1,7 @@
 ---
 title: "Many Blessings Await You"
 menu_title: ""
-description: "Many Blessings Await You"
+description: "Keea Atta Kem, received by Al Fike: “How good it is that you come together to drink the Living Waters of God’s Love, to replenish your souls and bring …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Angels Bless the Cultural Diversity of Humanity on Earth"
 menu_title: ""
-description: "The Angels Bless the Cultural Diversity of Humanity on Earth"
+description: "Matthew, received by Al Fike: “The world is a very diverse place, is it not? God does not wish to disrupt or destroy cultures created by man.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

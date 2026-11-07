@@ -1,7 +1,7 @@
 ---
 title: "DLSF is a Simple and Beautiful Organization"
 menu_title: ""
-description: "DLSF is a Simple and Beautiful Organization"
+description: "Augustine, received by Al Fike: “You have each been chosen to play your role, to contribute your gifts and to be a channel of love toward the center that …”"
 date: 2025-04-07 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Blessings of Tragedy"
 menu_title: ""
-description: "The Blessings of Tragedy"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “Let us feel the love of God and His holy presence in this circle. In the world, there is apparently much …”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

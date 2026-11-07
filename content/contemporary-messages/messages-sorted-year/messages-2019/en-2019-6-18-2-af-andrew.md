@@ -1,7 +1,7 @@
 ---
 title: "God Lays a Banquet Before You"
 menu_title: ""
-description: "God Lays a Banquet Before You"
+description: "Andrew, received by Al Fike: “Bless you, precious and beloved souls, it is Andrew. May God continue to uplift you and His Love pour into you as you come to …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

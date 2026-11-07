@@ -1,7 +1,7 @@
 ---
 title: "The Power of Unity Can Change the World"
 menu_title: ""
-description: "The Power of Unity Can Change the World"
+description: "Andrew, received by Al Fike: “Unity has a great power, beloved souls. The power of love to unify is something that can change the world.”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

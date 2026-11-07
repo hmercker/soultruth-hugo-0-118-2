@@ -1,7 +1,7 @@
 ---
 title: "The powerful touch of God"
 menu_title: ""
-description: "The powerful touch of God"
+description: "Jesus, received by Al Fike: “Precious and beloved souls, I come, I am Jesus. Do you not feel this grace upon you, beloved souls, this powerful Touch from God?”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

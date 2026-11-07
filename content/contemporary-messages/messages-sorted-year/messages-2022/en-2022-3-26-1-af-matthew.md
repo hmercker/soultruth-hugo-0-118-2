@@ -1,7 +1,7 @@
 ---
 title: "Your Prayers Help Raise World Consciousness"
 menu_title: ""
-description: "Your Prayers Help Raise World Consciousness"
+description: "Matthew, received by Al Fike: “…flow freely into your souls, my beloved friends. You recognize the needs of your world, that light is most needed.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

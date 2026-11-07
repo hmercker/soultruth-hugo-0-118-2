@@ -1,7 +1,7 @@
 ---
 title: "God's Hand is Upon You"
 menu_title: ""
-description: "God's Hand is Upon You"
+description: "Confucius, received by Al Fike: “No matter where you are in the world and those who are connected to this Circle of Light, a blessing of peace and light to …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

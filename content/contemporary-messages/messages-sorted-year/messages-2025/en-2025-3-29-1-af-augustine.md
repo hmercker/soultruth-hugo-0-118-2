@@ -1,7 +1,7 @@
 ---
 title: "Your Struggles are Not in Vain"
 menu_title: ""
-description: "Your Struggles are Not in Vain"
+description: "Augustine, received by Al Fike: “Though you see your progress as slow, arduous, tedious even, we see it as swift and reaching its mark quickly.”"
 date: 2025-04-08 07:21:03+11:00
 draft: False
 hidden: True

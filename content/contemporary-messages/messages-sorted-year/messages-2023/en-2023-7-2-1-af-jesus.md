@@ -1,7 +1,7 @@
 ---
 title: "Bringing Greater Light into Ourselves and into the World"
 menu_title: ""
-description: "Bringing Greater Light into Ourselves and into the World"
+description: "Jesus, received by Al Fike: “I acknowledge your efforts to bring light into the world, to build light within yourself. Through your prayers, you are …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

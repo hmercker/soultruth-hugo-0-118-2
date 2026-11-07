@@ -1,7 +1,7 @@
 ﻿---
 title: "Each Soul Here Has the Light of God’s Love: Jesus Opens Johnson City Retreat"
 menu_title: ""
-description: "Each Soul Here Has the Light of God’s Love: Jesus Opens Johnson City Retreat"
+description: "Jesus, received by Al Fike: “I urge you to focus upon your prayers, your times together, to confer, to be supportive and loving toward one another and to …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

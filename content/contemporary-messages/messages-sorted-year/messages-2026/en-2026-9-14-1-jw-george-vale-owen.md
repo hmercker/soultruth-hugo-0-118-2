@@ -1,7 +1,7 @@
 ﻿---
 title: "It is Time for the Spiritualist Churches to rise up in God’s Love"
 menu_title: ""
-description: "It is Time for the Spiritualist Churches to rise up in God’s Love"
+description: "George Vale Owen, received by Jimbeau Walsh: “Welcome to my home here when I visit, and I have visited many here. We welcome our friends new to this …”"
 date: 2026-09-30 00:00:00+00:00
 draft: False
 hidden: True

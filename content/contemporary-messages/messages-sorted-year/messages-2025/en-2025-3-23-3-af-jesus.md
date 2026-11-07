@@ -1,7 +1,7 @@
 ---
 title: "Blesses All of Us Connected by the Growing, Global Lattice of Light"
 menu_title: ""
-description: "Blesses All of Us Connected by the Growing, Global Lattice of Light"
+description: "Jesus, received by Al Fike: “You bring blessings to the world, my beloveds. Through your prayers come the blessings of the Creator, for you and for your …”"
 date: 2025-04-02 07:21:03+11:00
 draft: False
 hidden: True

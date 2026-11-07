@@ -1,7 +1,7 @@
 ﻿---
 title: "Explore Higher Truths Beyond Psychic Knowledge"
 menu_title: ""
-description: "Explore Higher Truths Beyond Psychic Knowledge"
+description: "Estelle Roberts, received by Al Fike: “There is a missing piece in the spiritual movement of late and this piece has been missing for some time now.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

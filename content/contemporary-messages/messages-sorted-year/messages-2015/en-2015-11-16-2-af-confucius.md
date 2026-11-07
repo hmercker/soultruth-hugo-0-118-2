@@ -1,7 +1,7 @@
 ﻿---
 title: "Creating a Lattice of Light in the World"
 menu_title: ""
-description: "Creating a Lattice of Light in the World"
+description: "Confucius, received by Al Fike: “There is a great network of Light being formed in the world, my beloveds. Many souls are being connected in this Light …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

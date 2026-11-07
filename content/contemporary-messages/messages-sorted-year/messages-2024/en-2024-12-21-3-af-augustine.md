@@ -1,7 +1,7 @@
 ---
 title: "Your Capacity to Receive Guidance Deepens"
 menu_title: ""
-description: "Your Capacity to Receive Guidance Deepens"
+description: "Augustine, received by Al Fike: “Continue to walk upon the path designated beautiful, beautiful souls of service who endeavour to bring the Truth of Divine …”"
 date: 2025-03-15 07:21:03+11:00
 draft: False
 hidden: True

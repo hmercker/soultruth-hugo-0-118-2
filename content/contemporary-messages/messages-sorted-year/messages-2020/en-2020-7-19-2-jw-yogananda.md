@@ -1,7 +1,7 @@
 ---
 title: "Send Your Love to Our Troubled World and Leaders"
 menu_title: ""
-description: "Send Your Love to Our Troubled World and Leaders"
+description: "Yogananda, received by Jimbeau Walsh: “In the vastness of the Universe, all of Creation, let it be known that there is no place where the Love of God and …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

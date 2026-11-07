@@ -1,7 +1,7 @@
 ---
 title: "When You Fall, Pick Yourself Up in Joy!"
 menu_title: ""
-description: "When You Fall, Pick Yourself Up in Joy!"
+description: "Goldie, received by Al Fike: “I see our dear brother has tripped and fallen on his road as he skips along, desiring to do God's Will.”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

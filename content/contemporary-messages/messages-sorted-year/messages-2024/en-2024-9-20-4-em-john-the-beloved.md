@@ -1,7 +1,7 @@
 ---
 title: "The Source of All Love and Light"
 menu_title: ""
-description: "The Source of All Love and Light"
+description: "John the Beloved, received by Elizabeth Mack: “We welcome you to this Circle of Love and Light and encourage you to open to the love that is available to …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

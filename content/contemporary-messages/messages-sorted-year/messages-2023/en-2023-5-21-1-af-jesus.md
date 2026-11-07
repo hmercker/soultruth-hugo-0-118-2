@@ -1,7 +1,7 @@
 ---
 title: "The Destiny of Our Souls"
 menu_title: ""
-description: "The Destiny of Our Souls"
+description: "Jesus, received by Al Fike: “For this is the way and the light. Pray for this gift as often as you might.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

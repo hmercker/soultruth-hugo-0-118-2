@@ -1,7 +1,7 @@
 ---
 title: "Be True to Your Souls in this Unique Venture"
 menu_title: ""
-description: "Be True to Your Souls in this Unique Venture"
+description: "Matthew, received by Al Fike: “As you progress in these ventures, it is important that you ask these questions: how is this in alignment with God's Will?”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

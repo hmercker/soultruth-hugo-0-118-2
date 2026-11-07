@@ -1,7 +1,7 @@
 ---
 title: "Praying for Higher Love Brings Many Blessings"
 menu_title: ""
-description: "Praying for Higher Love Brings Many Blessings"
+description: "Matthew & Jesus, received by Al Fike: “May a great blessing of the Father's Love, fall into your souls, beloved, beautiful friends of the Earth.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

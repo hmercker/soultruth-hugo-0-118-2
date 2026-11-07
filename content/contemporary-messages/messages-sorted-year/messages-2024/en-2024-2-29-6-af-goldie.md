@@ -1,7 +1,7 @@
 ---
 title: "Bell Chimes God’s Love"
 menu_title: ""
-description: "Bell Chimes God’s Love"
+description: "Goldie, received by Al Fike: “How sweet are those chimes? (referring to a cell phone that rang during Orion’s message). God continues to remind you that He …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

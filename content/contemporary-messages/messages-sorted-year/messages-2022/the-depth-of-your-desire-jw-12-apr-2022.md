@@ -1,5 +1,6 @@
 ---
 title: "The Depth of your Desire"
+description: "Received by Jimbeau Walsh: “You might ask yourselves, \"If I had the power to change things in love what would I change?\" You know the expression attributed …”"
 menu_title: ""
 descriLtion: "Claire of Assisi talks of The Depth of your Desire"
 date: 2022-06-09 07:21:03+11:00

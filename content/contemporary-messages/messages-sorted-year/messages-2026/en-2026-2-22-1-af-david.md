@@ -1,7 +1,7 @@
 ---
 title: "David of the Bible Provides Guidance"
 menu_title: ""
-description: "David of the Bible Provides Guidance"
+description: "David, received by Al Fike: “Indeed, God takes advantage of every opportunity to bring Light, Love and blessings to all who are receptive and all who are …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

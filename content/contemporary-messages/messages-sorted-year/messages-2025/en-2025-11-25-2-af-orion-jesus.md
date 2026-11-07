@@ -1,7 +1,7 @@
 ---
 title: "Manifestations Will Defy Mindful Expectations"
 menu_title: ""
-description: "Manifestations Will Defy Mindful Expectations"
+description: "Orion & Jesus, received by Al Fike: “It will most likely not be Jesus who will speak first with Direct Voice, for he has the highest light and what you …”"
 date: 2025-12-17 06:00:00+00:00
 draft: False
 hidden: True

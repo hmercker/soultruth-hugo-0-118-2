@@ -1,7 +1,7 @@
 ---
 title: "Orion Responds to Questions Asked"
 menu_title: ""
-description: "Orion Responds to Questions Asked"
+description: "Received by Al Fike: “May the blessings of the Creator’s Love continue to awaken you, my friends. I thank you for assembling together for the purpose that …”"
 date: 2021-11-09 07:21:03+11:00
 draft: False
 hidden: True

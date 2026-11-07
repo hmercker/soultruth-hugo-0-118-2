@@ -1,7 +1,7 @@
 ---
 title: "I've Got the Joy Down in my Heart"
 menu_title: ""
-description: "I've Got the Joy Down in my Heart"
+description: "Goldie, received by Maureen Cardoso: “I like how my name has been given to that little device you ride upon, my son. As I have said before, it brings me …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Feel the Power of this Light"
 menu_title: ""
-description: "Feel the Power of this Light"
+description: "Jesus, received by Maureen Cardoso: “Let this healing and this blessing permeate your being allowing that which is not in harmony to be washed for I stand …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

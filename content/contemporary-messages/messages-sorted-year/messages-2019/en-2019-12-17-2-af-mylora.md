@@ -1,7 +1,7 @@
 ---
 title: "Blessing from Mylora"
 menu_title: ""
-description: "Blessing from Mylora"
+description: "Mylora, received by Al Fike: “I have come to give each of you a little blessing, a light to uplift you, beloved souls, in this time of celebration, of …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

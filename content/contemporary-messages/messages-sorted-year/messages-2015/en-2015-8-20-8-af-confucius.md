@@ -1,7 +1,7 @@
 ﻿---
 title: "The Power of Group Prayer"
 menu_title: ""
-description: "The Power of Group Prayer"
+description: "Confucius, received by Al Fike: “You did indeed come together to give healing to the world and healing to yourselves. And it was demonstrated to you the …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

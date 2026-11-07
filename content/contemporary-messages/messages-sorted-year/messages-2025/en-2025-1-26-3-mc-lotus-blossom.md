@@ -1,7 +1,7 @@
 ---
 title: "Soul Transformation With Divine Love"
 menu_title: ""
-description: "Soul Transformation With Divine Love"
+description: "Lotus Blossom, received by Maureen Cardoso: “You have all been given a great opportunity to come to understand a little more about this teaching of God's …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

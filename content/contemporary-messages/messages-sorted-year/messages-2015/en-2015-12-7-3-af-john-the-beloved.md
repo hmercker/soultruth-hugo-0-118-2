@@ -1,7 +1,7 @@
 ﻿---
 title: "Drink deep from the living Waters"
 menu_title: ""
-description: "Drink deep from the living Waters"
+description: "John the Beloved, received by Al Fike: “There is a powerful presence of God in this room tonight, a blessing given, a blessing that has drawn all of you …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

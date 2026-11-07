@@ -1,7 +1,7 @@
 ---
 title: "Unity and Harmony Is the Key in Your Prayers"
 menu_title: ""
-description: "Unity and Harmony Is the Key in Your Prayers"
+description: "George Stokes, received by Elizabeth Mack: “We come from different backgrounds, all of us. Each individual comes from a place that only we occupy.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

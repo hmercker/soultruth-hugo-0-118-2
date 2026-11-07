@@ -1,7 +1,7 @@
 ﻿---
 title: "Healing Mother Earth"
 menu_title: ""
-description: "Healing Mother Earth"
+description: "Mylora, received by Al Fike: “For I love this world, what God has created. I love you all, the most wonderest of His creations.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

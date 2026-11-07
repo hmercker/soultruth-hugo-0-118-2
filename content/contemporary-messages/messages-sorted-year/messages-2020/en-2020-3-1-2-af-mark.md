@@ -1,7 +1,7 @@
 ---
 title: "Draw Yourselves to Light"
 menu_title: ""
-description: "Draw Yourselves to Light"
+description: "Mark, received by Al Fike: “Here in this place, this church, are the blessings of Light given to you as a gift from God.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

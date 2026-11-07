@@ -1,7 +1,7 @@
 ---
 title: "God’s love filters out the negativity"
 menu_title: ""
-description: "God’s love filters out the negativity"
+description: "John Lennon, received by Jimbeau Walsh: “I have been tapping on my brother’s shoulder here, much to his surprise, and I have informed him that I played a …”"
 date: 2025-06-10 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Blessing from Mary - Online Prayer Circle"
 menu_title: ""
-description: "Blessing from Mary - Online Prayer Circle"
+description: "Received by Al Fike: “May you continue to be a channel of God’s Love in the world, beloved souls. I embrace you all as God’s children, beloveds.”"
 date: 2020-06-22 08:00:01+11:00
 draft: False
 hidden: True

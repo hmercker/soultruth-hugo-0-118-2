@@ -1,7 +1,7 @@
 ---
 title: "We Support Your Efforts in this Sanctuary"
 menu_title: ""
-description: "We Support Your Efforts in this Sanctuary"
+description: "Yogananda, received by Jimbeau Walsh: “For God’s Love is gentle but powerful and creates a magnetism, spiritual magnetism, that draws the hearts that are …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

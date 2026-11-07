@@ -1,7 +1,7 @@
 ---
 title: "Greeting from Faith"
 menu_title: ""
-description: "Greeting from Faith"
+description: "Faith Nyquist, received by Helge Mercker: “I have not communicated for a long time and I wish to make my presence known as you desire to write our words.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

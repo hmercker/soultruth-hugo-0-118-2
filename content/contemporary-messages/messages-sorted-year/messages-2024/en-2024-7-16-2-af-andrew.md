@@ -1,7 +1,7 @@
 ---
 title: "Our Heavenly Father Wraps You in His Light and Love"
 menu_title: ""
-description: "Our Heavenly Father Wraps You in His Light and Love"
+description: "Andrew, received by Al Fike: “Our beloved Heavenly Father wraps you in His Love and Light. He sends His angels to minister to you.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

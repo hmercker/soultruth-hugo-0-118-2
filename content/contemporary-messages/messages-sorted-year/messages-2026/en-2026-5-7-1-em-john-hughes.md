@@ -1,7 +1,7 @@
 ﻿---
 title: "Listen For the Truth That Is Conveyed with This Divine Love"
 menu_title: ""
-description: "Listen For the Truth That Is Conveyed with This Divine Love"
+description: "John Hughes, received by Elizabeth Mack: “As I come closer, you recognize me as being your soulmate, your brother in soul, as well as in this Divine Love.”"
 date: 2026-11-02 00:00:00+00:00
 draft: False
 hidden: True

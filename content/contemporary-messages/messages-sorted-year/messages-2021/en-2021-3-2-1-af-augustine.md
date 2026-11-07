@@ -1,7 +1,7 @@
 ---
 title: "Discerning Guidance"
 menu_title: ""
-description: "Discerning Guidance"
+description: "Augustine, received by Al Fike: “How lovely to see you together in prayer my beautiful and beloved friends, sincere in your endeavors, your desire to serve …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "The Process of Soul Cleansing and the Potential for Purification While on Earth"
 menu_title: ""
-description: "The Process of Soul Cleansing and the Potential for Purification While on Earth"
+description: "Orion, received by Al Fike: “Blessings to you, my friends. Shifts in consciousness do not come readily or easily in your world.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Angels of Heaven Come to be With You in Grace and Humility"
 menu_title: ""
-description: "The Angels of Heaven Come to be With You in Grace and Humility"
+description: "Jesus, received by Al Fike: “The hallmark of those of us who reside in the Celestial Kingdom is humility and grace. We must travel to the earthly plane.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

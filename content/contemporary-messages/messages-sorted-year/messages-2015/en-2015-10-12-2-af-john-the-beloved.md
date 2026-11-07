@@ -1,7 +1,7 @@
 ﻿---
 title: "God will embrace all in Time"
 menu_title: ""
-description: "God will embrace all in Time"
+description: "John the Beloved, received by Al Fike: “There is nothing to fear, my beloveds. What comes before you is only Light, what awaits you is joy.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

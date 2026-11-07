@@ -1,7 +1,7 @@
 ---
 title: "Joseph Reflects on the Sensitivities of Having a Son Who Was Different"
 menu_title: ""
-description: "Joseph Reflects on the Sensitivities of Having a Son Who Was Different"
+description: "Received by Al Fike: “Dear, beloved souls, I am Joseph, father of Jesus. Many of you have felt different from those who are around you and were around you …”"
 date: 2023-09-30 07:21:03+11:00
 draft: False
 hidden: True

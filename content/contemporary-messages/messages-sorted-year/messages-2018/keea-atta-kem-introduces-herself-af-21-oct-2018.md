@@ -1,7 +1,7 @@
 ---
 title: "Keea-atta Kem Introduces Herself - Online Prayer Circle"
 menu_title: ""
-description: "Keea-atta Kem Introduces Herself - Online Prayer Circle"
+description: "Received by Al Fike: “I welcome each of you, beloved souls, to this circle of prayer and love. You have each been drawn, beloveds, into this circle seeking …”"
 date: 2020-06-22 08:00:01+11:00
 draft: False
 hidden: True

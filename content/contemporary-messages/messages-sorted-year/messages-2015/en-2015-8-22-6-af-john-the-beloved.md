@@ -1,7 +1,7 @@
 ﻿---
 title: "John gives a Prayer for greater Enlightenment"
 menu_title: ""
-description: "John gives a Prayer for greater Enlightenment"
+description: "John the Beloved, received by Al Fike: “He has given you a gift this day and some have felt it deeply while others have felt something.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Personal for Henning"
 menu_title: ""
-description: "Personal for Henning"
+description: "Matthew, received by Al Fike: “You have a purpose my son, and you know this and you long for this to manifest in your life.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

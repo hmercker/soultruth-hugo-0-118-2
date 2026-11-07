@@ -1,7 +1,7 @@
 ---
 title: "Stand in This Truth, Moment to Moment"
 menu_title: ""
-description: "Stand in This Truth, Moment to Moment"
+description: "John the Beloved, received by Elizabeth Mack: “We are raising you high above the Earth plane, free and clear of all of those distractions and negativities.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

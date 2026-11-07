@@ -1,7 +1,7 @@
 ﻿---
 title: "With Your Efforts and Commitments, God Will Bring to You the Hungering Souls"
 menu_title: ""
-description: "With Your Efforts and Commitments, God Will Bring to You the Hungering Souls"
+description: "Jesus, received by Al Fike: “May the blessings of the peace that passes all understanding be yours, my beloveds. I lead the way to the Hall of Peace, that …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

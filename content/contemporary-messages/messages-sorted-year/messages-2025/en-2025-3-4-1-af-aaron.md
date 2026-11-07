@@ -1,7 +1,7 @@
 ---
 title: "You Must be Clear in Your Desires"
 menu_title: ""
-description: "You Must be Clear in Your Desires"
+description: "Aaron, received by Al Fike: “No matter what may come of your world, you are of this light, this strength and transformative blessing that is given because …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Call Upon the Angels in Times of Need"
 menu_title: ""
-description: "Call Upon the Angels in Times of Need"
+description: "Lotus Blossom, received by Al Fike: “I have brought healing to each one of you, beloved souls, to help strengthen you, to bring harmony to your bodies.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

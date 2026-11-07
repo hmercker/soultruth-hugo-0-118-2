@@ -1,7 +1,7 @@
 ---
 title: "We are all involved in this great endeavour"
 menu_title: ""
-description: "We are all involved in this great endeavour"
+description: "Peter, received by Al Fike: “I continue to work alongside my beloved brother to bring the Truth of God’s Love to all worlds, your world and all the worlds …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

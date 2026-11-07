@@ -1,7 +1,7 @@
 ---
 title: "Losing the Mind and being in the Heart"
 menu_title: ""
-description: "Losing the Mind and being in the Heart"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “From time immemorial, the poets and troubadours, writers, and actors, have attempted to describe human love …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bring Joy to All that You Do"
 menu_title: ""
-description: "Bring Joy to All that You Do"
+description: "Goldie, received by Al Fike: “He is so earnest that he wants you to grow in light and awaken in love. But remember, my friends, to bring joy in every thing …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

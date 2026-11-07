@@ -1,7 +1,7 @@
 ---
 title: "There is a Great Work to be Done by Humankind"
 menu_title: ""
-description: "There is a Great Work to be Done by Humankind"
+description: "John the Baptist, received by Elizabeth Mack: “All of you in this circle are saved. You all have that one soul quality that saves you and will bring you to …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

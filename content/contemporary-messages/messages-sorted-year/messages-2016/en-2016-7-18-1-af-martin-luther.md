@@ -1,7 +1,7 @@
 ﻿---
 title: "Pursuit of Truth"
 menu_title: ""
-description: "Pursuit of Truth"
+description: "Martin Luther, received by Al Fike: “My brethren, I am Martin Luther and I founded a reform movement and continue to reform within myself through the …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

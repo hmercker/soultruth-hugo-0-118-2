@@ -1,7 +1,7 @@
 ---
 title: "Jesus, I Am With You"
 menu_title: ""
-description: "Jesus, I Am With You"
+description: "Received by Al Fike: “God is upon you beloved souls. Follow me to at-onement with God and I shall lead the way.”"
 date: 2020-06-01 07:27:15+11:00
 draft: False
 hidden: True

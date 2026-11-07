@@ -1,7 +1,7 @@
 ---
 title: "The Highest Blessing of All is the Blessing of God's Love"
 menu_title: ""
-description: "The Highest Blessing of All is the Blessing of God's Love"
+description: "Andrew, received by Al Fike: “The cold winds of earth buffet every soul, making for challenging conditions and life experiences that cause much pain …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

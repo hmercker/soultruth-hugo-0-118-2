@@ -1,7 +1,7 @@
 ---
 title: "Uses Every Opportunity to Minister to Dark Spirits"
 menu_title: ""
-description: "Uses Every Opportunity to Minister to Dark Spirits"
+description: "Jesus, received by Al Fike: “Know that when you pray together in any group or Circle of Light that many spirits are drawn to you.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

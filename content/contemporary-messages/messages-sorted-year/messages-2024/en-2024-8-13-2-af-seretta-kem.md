@@ -1,7 +1,7 @@
 ---
 title: "Addresses The Journey of the Soul"
 menu_title: ""
-description: "Addresses The Journey of the Soul"
+description: "Seretta Kem, received by Al Fike: “Blessings to you, my friends. You wish to pray for him and to uplift him and I encourage you to do so.”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

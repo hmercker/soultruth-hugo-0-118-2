@@ -1,7 +1,7 @@
 ---
 title: "Good-by with Love and Gratitude"
 menu_title: ""
-description: "Good-by with Love and Gratitude"
+description: "Confucius, received by Al Fike: “We have opened the door of communication for you, beloved souls, so that you may be encouraged upon your journeys.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

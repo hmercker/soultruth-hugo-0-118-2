@@ -1,7 +1,7 @@
 ---
 title: "The Lattice of Light is Like a Netting Over the World Joining All Together"
 menu_title: ""
-description: "The Lattice of Light is Like a Netting Over the World Joining All Together"
+description: "Keea Atta Kem, received by Maureen Cardoso: “I join you in your Circle of Light over the wires. You continue to be drawn together in this way, expanding …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

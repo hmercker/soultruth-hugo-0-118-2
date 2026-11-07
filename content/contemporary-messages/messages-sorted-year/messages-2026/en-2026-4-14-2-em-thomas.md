@@ -1,7 +1,7 @@
 ﻿---
 title: "Breathe in This Love from God"
 menu_title: ""
-description: "Breathe in This Love from God"
+description: "Thomas, received by Elizabeth Mack: “For some of you, it is just beginning. Over the course of your lives, it will continue to grow, actively filling every …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

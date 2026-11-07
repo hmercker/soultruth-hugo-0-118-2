@@ -1,7 +1,7 @@
 ---
 title: "Blessing for the World"
 menu_title: ""
-description: "Blessing for the World"
+description: "Jesus, received by Al Fike: “May the blessings of God’s Love infill your souls, my beloved brothers and sisters. For prayer is a powerful antidote to the …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

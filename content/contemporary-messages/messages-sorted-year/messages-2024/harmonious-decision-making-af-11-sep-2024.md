@@ -1,5 +1,6 @@
 ---
 title: "A Lesson on Harmonious Decision Making, Continues to Bless Our Travels"
+description: "Received by Al Fike: “Love must be pervasive in every part of your life, beloved souls. You see the road before you and you wonder how you may traverse …”"
 menu_title: "Augustine and Jesus on A Lesson on Harmonious Decision Making, Continues to Bless Our Travels"
 date: 2024-11-28 07:21:03+11:00
 draft: False

@@ -1,7 +1,7 @@
 ---
 title: "The Yogas of Love"
 menu_title: ""
-description: "The Yogas of Love"
+description: "Yogananda, received by Jimbeau Walsh: “I have been listening to some of the discussions, and I wish to augment and add a few things which I hope will be …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

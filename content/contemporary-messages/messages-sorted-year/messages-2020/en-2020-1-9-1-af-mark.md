@@ -1,7 +1,7 @@
 ---
 title: "FUSC Board Meeting"
 menu_title: ""
-description: "FUSC Board Meeting"
+description: "Mark, received by Al Fike: “I thank you for your invitation, dear daughter. Indeed, you have dedicated some time and effort for maintaining the light and …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

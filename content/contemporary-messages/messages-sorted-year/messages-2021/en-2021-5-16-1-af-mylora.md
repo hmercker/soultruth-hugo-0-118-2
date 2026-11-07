@@ -1,7 +1,7 @@
 ---
 title: "Pray with Loving Intention and Motivation"
 menu_title: ""
-description: "Pray with Loving Intention and Motivation"
+description: "Mylora, received by Al Fike: “My precious and beloved friends, I thank you for your prayers and your intentions today. Deep in my heart, God has created a …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

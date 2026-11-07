@@ -1,7 +1,7 @@
 ---
 title: "Creating Sanctuary"
 menu_title: ""
-description: "Creating Sanctuary"
+description: "Francis of Assisi, received by Jimbeau Walsh: “I wish to speak about creating sanctuary and, most especially, spiritual sanctuary. There have always been …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Angels are Easing us into Soul Consciousness"
 menu_title: ""
-description: "Angels are Easing us into Soul Consciousness"
+description: "Orion, received by Al Fike: “There is space between the knowings of your soul and your conscious self. That space is often inhabited by your spirit mind.”"
 date: 2025-04-17 07:21:03+11:00
 draft: False
 hidden: True

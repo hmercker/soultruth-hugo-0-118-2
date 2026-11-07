@@ -1,7 +1,7 @@
 ---
 title: "Jesus Will Lead Us to God's Love"
 menu_title: ""
-description: "Jesus Will Lead Us to God's Love"
+description: "Jesus, received by Al Fike: “Take my hand, beloveds, as I walk towards God. Take my hand and I will lead you to that great fountainhead of Love and we …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

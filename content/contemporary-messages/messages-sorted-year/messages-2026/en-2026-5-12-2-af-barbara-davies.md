@@ -1,7 +1,7 @@
 ﻿---
 title: "The Power of Love to Unite Souls and Heal the World"
 menu_title: ""
-description: "The Power of Love to Unite Souls and Heal the World"
+description: "Barbara Davies, received by Al Fike: “My dear friend Lisa, I know you well. You and I have our conversations in the sleep state.”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

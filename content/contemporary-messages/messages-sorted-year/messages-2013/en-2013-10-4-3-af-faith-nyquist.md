@@ -1,7 +1,7 @@
 ﻿---
 title: "Put away your Fears and your Biases"
 menu_title: ""
-description: "Put away your Fears and your Biases"
+description: "Faith Nyquist, received by Al Fike: “My elder brother Jesus has spoken to you. And those of you who know me, listen to these words, for he speaks the truth.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

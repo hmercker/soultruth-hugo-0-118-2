@@ -1,7 +1,7 @@
 ---
 title: "A Soul Perception is an Experience"
 menu_title: ""
-description: "A Soul Perception is an Experience"
+description: "Josephus, received by Al Fike: “Bless you, beloved souls, my name is Josephus. I believe that you all understand that in order to truly know God and to …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

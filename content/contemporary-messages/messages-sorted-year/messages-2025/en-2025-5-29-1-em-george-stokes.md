@@ -1,7 +1,7 @@
 ---
 title: "Your Soul Growth Is the Most Important Thing You Can Do on the Earth"
 menu_title: ""
-description: "Your Soul Growth Is the Most Important Thing You Can Do on the Earth"
+description: "George Stokes, received by Elizabeth Mack: “I live in the Celestial Heavens with many of my brothers and sisters, some of whom I knew upon the Earth.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

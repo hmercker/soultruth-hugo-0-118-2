@@ -1,7 +1,7 @@
 ---
 title: "Rumi Speaks of Direct Voice"
 menu_title: ""
-description: "Rumi Speaks of Direct Voice"
+description: "Received by Al Fike: “My heart soars to see such beautiful lights. I wish to come and recite my truths amongst this world once more.”"
 date: 2017-11-22 16:51:35+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Emperor Has No Clothes"
 menu_title: ""
-description: "The Emperor Has No Clothes"
+description: "George Gurdjieff, received by Jimbeau Walsh: “I studied many traditions from many places. I tried to use the highest teachings that had effected my soul …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

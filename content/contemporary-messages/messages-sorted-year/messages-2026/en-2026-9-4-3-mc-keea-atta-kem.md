@@ -1,7 +1,7 @@
 ﻿---
 title: "The Angels' Hope for Us From the Bassingham Retreat"
 menu_title: ""
-description: "The Angels' Hope for Us From the Bassingham Retreat"
+description: "Keea Atta Kem, received by Maureen Cardoso: “What a delight to see how you draw one another together, your pure essence communing with God and with one …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Reach for Alignment to be in the Highest Condition"
 menu_title: ""
-description: "Reach for Alignment to be in the Highest Condition"
+description: "Professor Salyards, received by Al Fike: “Thank you for your beautiful prayer. The word alignment has been used by many of you and it is a very appropriate …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

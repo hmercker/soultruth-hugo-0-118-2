@@ -1,7 +1,7 @@
 ---
 title: "And the Mighty River Flows"
 menu_title: ""
-description: "And the Mighty River Flows"
+description: "George Stokes, received by Elizabeth Mack: “On my planet there is much of His love that is in the atmosphere, so much that we willingly, joyfully interact …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

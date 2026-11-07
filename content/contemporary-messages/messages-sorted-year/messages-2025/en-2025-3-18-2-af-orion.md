@@ -1,7 +1,7 @@
 ---
 title: "The World Needs You!"
 menu_title: ""
-description: "The World Needs You!"
+description: "Orion, received by Al Fike: “There are many ways in which God upholds you. The Creator of the universe knows you intimately.”"
 date: 2025-03-24 07:21:03+11:00
 draft: False
 hidden: True

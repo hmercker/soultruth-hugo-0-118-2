@@ -1,7 +1,7 @@
 ---
 title: "The shocks of change are truly gifts"
 menu_title: ""
-description: "The shocks of change are truly gifts"
+description: "George Gurdjieff, received by Jimbeau Walsh: “How fitting the message from Noah is given in these days on earth. The core of his message is perhaps hidden …”"
 date: 2025-07-01 07:21:03+00:00
 draft: False
 hidden: True

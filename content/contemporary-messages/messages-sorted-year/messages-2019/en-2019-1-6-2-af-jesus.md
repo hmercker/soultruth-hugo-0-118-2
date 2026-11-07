@@ -1,7 +1,7 @@
 ---
 title: "Jesus knows each soul"
 menu_title: ""
-description: "Jesus knows each soul"
+description: "Jesus, received by Al Fike: “I have to come to pray with each of you. I know the longings of your heart.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

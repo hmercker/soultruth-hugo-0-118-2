@@ -1,7 +1,7 @@
 ---
 title: "Jesus Will Meet Us at the Gates of Heaven"
 menu_title: ""
-description: "Jesus Will Meet Us at the Gates of Heaven"
+description: "Jesus, received by Al Fike: “That I will greet you and embrace you and welcome you to the Kingdom of Heaven. That all your prayers and efforts, all your …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

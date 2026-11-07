@@ -1,7 +1,7 @@
 ---
 title: "The Engagement of the Soul with God"
 menu_title: ""
-description: "The Engagement of the Soul with God"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “May the love of God be upon us and in us. In your walk on earth, in your wish to truly feel the Divine Love …”"
 date: 2025-07-23 07:21:03+00:00
 draft: False
 hidden: True

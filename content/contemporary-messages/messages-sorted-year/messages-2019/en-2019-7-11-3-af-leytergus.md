@@ -1,7 +1,7 @@
 ---
 title: "What Co-creating With God Really Means"
 menu_title: ""
-description: "What Co-creating With God Really Means"
+description: "Leytergus, received by Al Fike: “I have not spoken through this instrument before although you have known me through other ways and means and books; I have …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

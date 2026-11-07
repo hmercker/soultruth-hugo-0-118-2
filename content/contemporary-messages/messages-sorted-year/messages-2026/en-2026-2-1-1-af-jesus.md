@@ -1,7 +1,7 @@
 ---
 title: "Your Prayers Have Brought Great Light to Trinidad"
 menu_title: ""
-description: "Your Prayers Have Brought Great Light to Trinidad"
+description: "Jesus, received by Al Fike: “The strength and beauty of your prayers, your longings of soul, the blessings that God has given you and will continue to pour …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

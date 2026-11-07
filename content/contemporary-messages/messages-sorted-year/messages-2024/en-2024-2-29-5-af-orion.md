@@ -1,7 +1,7 @@
 ---
 title: "Speaks About Our Ministries, the Truth of the Father's Love and What's Ahead"
 menu_title: ""
-description: "Speaks About Our Ministries, the Truth of the Father's Love and What's Ahead"
+description: "Orion, received by Al Fike: “The Truth of the Father’s Love must be shared, my beloved and beautiful friends. For there is much work to do and you have …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

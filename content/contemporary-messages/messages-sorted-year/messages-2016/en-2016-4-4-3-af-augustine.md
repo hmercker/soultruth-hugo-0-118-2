@@ -1,7 +1,7 @@
 ﻿---
 title: "Express yourselves with Integrity, Balance, Fairness, and Love, then all will be provided"
 menu_title: ""
-description: "Express yourselves with Integrity, Balance, Fairness, and Love, then all will be provided"
+description: "Augustine, received by Al Fike: “I’ve heard the conversation amongst my students regarding the support that they desire in doing God’s work.”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Plain and Direct Guidance for the Estonia Circle of Light"
 menu_title: ""
-description: "Plain and Direct Guidance for the Estonia Circle of Light"
+description: "Augustine, received by Al Fike: “I must say that it saddens us that the majority of the people in this circle at this time are not from here, but have made …”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

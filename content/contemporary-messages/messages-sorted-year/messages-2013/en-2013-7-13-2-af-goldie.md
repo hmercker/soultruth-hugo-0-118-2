@@ -1,7 +1,7 @@
 ﻿---
 title: "Know that God loves you so very much"
 menu_title: ""
-description: "Know that God loves you so very much"
+description: "Goldie, received by Al Fike: “Such precious and beautiful souls here tonight and I love you. Know that God loves you so very much and you are precious to …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

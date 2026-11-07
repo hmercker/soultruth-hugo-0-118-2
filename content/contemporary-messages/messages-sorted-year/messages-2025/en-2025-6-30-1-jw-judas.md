@@ -1,7 +1,7 @@
 ---
 title: "Understanding Truth and Becoming It"
 menu_title: ""
-description: "Understanding Truth and Becoming It"
+description: "Judas, received by Jimbeau Walsh: “All the mediums in Divine love have given you an immeasurable amount of divine truth, never perfect, but always quite …”"
 date: 2025-07-01 07:21:03+00:00
 draft: False
 hidden: True

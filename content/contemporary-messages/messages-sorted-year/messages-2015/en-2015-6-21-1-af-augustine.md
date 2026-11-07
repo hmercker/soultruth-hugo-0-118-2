@@ -1,7 +1,7 @@
 ﻿---
 title: "A bruised Apple is like the Pain within an injured Soul"
 menu_title: ""
-description: "A bruised Apple is like the Pain within an injured Soul"
+description: "Augustine, received by Al Fike: “My dear students, it is your teacher, Augustine. I wish to present a lesson to you, beloved students, and this lesson will …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

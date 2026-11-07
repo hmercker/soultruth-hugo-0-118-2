@@ -1,7 +1,7 @@
 ---
 title: "Opens the Portal In Our Suite at the Plumtree"
 menu_title: ""
-description: "Opens the Portal In Our Suite at the Plumtree"
+description: "Bartholomew, received by Al Fike: “We are very pleased that you have gathered once again to do the work that is laid up before you.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

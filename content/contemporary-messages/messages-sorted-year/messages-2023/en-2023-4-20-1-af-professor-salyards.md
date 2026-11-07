@@ -1,7 +1,7 @@
 ---
 title: "Opportunity for Growth"
 menu_title: ""
-description: "Opportunity for Growth"
+description: "Professor Salyards, received by Al Fike: “Rather, you keep your own counsel and this is wise. You are considerate of what may be of light and what may be …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

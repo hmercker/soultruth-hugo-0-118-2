@@ -1,7 +1,7 @@
 ---
 title: "Open Your Hearts to the Joy of Love"
 menu_title: ""
-description: "Open Your Hearts to the Joy of Love"
+description: "Goldie, received by Al Fike: “Open your hearts to the joy of love. Open yourselves to all the joy that there is in life for what is this great journey of …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

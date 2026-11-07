@@ -1,7 +1,7 @@
 ---
 title: "Powerful blessing and reassurance for Soul Awakening Tour"
 menu_title: ""
-description: "Powerful blessing and reassurance for Soul Awakening Tour"
+description: "Jesus, received by Al Fike: “As you continue to bring light and comfort to many, so God is utilizing you to ignite and support the many Portals of Light in …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Open yourselves completely to your Heavenly Father"
 menu_title: ""
-description: "Open yourselves completely to your Heavenly Father"
+description: "Andrew, received by Al Fike: “Now you much reach God and find harmony with Him. Open yourselves completely to your Heavenly Father, who at this moment …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

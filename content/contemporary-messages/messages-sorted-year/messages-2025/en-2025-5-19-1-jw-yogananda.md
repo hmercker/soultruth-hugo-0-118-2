@@ -1,7 +1,7 @@
 ---
 title: "Peace"
 menu_title: ""
-description: "Peace"
+description: "Yogananda, received by Jimbeau Walsh: “Let us be at peace in the love of God. I wish to talk about living in peace in a turbulent world full of anxiety, so …”"
 date: 2025-05-25 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The Light Around You Continues to Brighten"
 menu_title: ""
-description: "The Light Around You Continues to Brighten"
+description: "Peter, received by Al Fike: “The light brightens around you all, beloved souls. Indeed, where I reside there is harmony and peace the likes of which you …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

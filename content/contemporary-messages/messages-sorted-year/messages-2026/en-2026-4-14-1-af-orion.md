@@ -1,7 +1,7 @@
 ﻿---
 title: "Orion Describes the Dimension Connecting All Souls in the Universe"
 menu_title: ""
-description: "Orion Describes the Dimension Connecting All Souls in the Universe"
+description: "Orion, received by Al Fike: “You, in your limited experience on the earthly plane, see very little of this and understand it even less.”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

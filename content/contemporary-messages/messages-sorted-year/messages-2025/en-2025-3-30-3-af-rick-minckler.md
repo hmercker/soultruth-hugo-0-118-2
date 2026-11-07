@@ -1,7 +1,7 @@
 ---
 title: "Shares His Tears of Joy"
 menu_title: ""
-description: "Shares His Tears of Joy"
+description: "Rick Minckler, received by Al Fike: “I too have enjoyed this service. I too am very happy to see the pews full, the voices clear and the light shining in …”"
 date: 2025-04-07 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "This is a Rare Occasion"
 menu_title: ""
-description: "This is a Rare Occasion"
+description: "Jesus, received by Al Fike: “You have the resources of heaven at your feet, beloveds. You have the Love of God empowering the flow of great Truth and great …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

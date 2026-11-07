@@ -1,7 +1,7 @@
 ﻿---
 title: "Divine Love and natural Love"
 menu_title: ""
-description: "Divine Love and natural Love"
+description: "Confucius, received by Al Fike: “Welcome all of you travellers who have come some distance to be together in love. Dear and beloved group, welcome.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Allow All That You Are to Manifest in the World"
 menu_title: ""
-description: "Allow All That You Are to Manifest in the World"
+description: "Seretta Kem, received by Al Fike: “May the blessings of God’s Love continue to flow into you, changing you and transforming you.”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

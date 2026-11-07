@@ -1,7 +1,7 @@
 ---
 title: "Have Faith in God, the Angels, and the Journey"
 menu_title: ""
-description: "Have Faith in God, the Angels, and the Journey"
+description: "Jesus, received by Al Fike: “You have nothing to fear, beloveds, for I have told you many times that I will lead you into light and so I will.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

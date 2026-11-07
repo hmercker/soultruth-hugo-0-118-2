@@ -1,7 +1,7 @@
 ---
 title: "The World of Regret"
 menu_title: ""
-description: "The World of Regret"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “I wish to speak about something that so many cling to that causes so much suffering, not only in your earth …”"
 date: 2025-08-07 07:21:03+00:00
 draft: False
 hidden: True

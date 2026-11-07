@@ -1,7 +1,7 @@
 ﻿---
 title: "Material Manifestations will come in Time"
 menu_title: ""
-description: "Material Manifestations will come in Time"
+description: "Seretta Kem, received by Al Fike: “You have had a discussion about manifestations bringing the laws of spirit clearly into this world and utilizing the …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

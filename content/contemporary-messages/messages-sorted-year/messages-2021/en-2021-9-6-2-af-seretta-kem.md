@@ -1,7 +1,7 @@
 ---
 title: "Welcome Address and Purpose"
 menu_title: ""
-description: "Welcome Address and Purpose"
+description: "Seretta Kem, received by Al Fike: “May the Love of God awaken you, beloved souls. So many weeks and months of preparation has gone into this culmination of …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

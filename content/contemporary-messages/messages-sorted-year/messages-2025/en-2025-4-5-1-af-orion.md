@@ -1,7 +1,7 @@
 ---
 title: "Pray for Soul Consciousness"
 menu_title: ""
-description: "Pray for Soul Consciousness"
+description: "Orion, received by Al Fike: “You often think of development in a material sense, that development brings manifestation, which is of a material form …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

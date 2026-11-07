@@ -1,7 +1,7 @@
 ---
 title: "Choosing to Live in God's Love"
 menu_title: ""
-description: "Choosing to Live in God's Love"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “Imagine, if you will, being in the state of love in every moment. Imagine the joy and the happiness that your …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

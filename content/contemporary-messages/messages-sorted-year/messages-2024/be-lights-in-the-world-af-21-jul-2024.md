@@ -1,7 +1,7 @@
 ---
 title: "Jesus Compels Us to be Lights in the World"
 menu_title: ""
-description: "Jesus Compels Us to be Lights in the World"
+description: "Received by Al Fike: “The power of which is the greatest gift that can be given to any mortal or spirit. The beauty of which will unlock and bring forth …”"
 date: 2024-09-04 07:21:03+11:00
 draft: False
 hidden: True

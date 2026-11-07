@@ -1,7 +1,7 @@
 ﻿---
 title: "Know you walk in Light"
 menu_title: ""
-description: "Know you walk in Light"
+description: "Andrew, received by Al Fike: “You do not walk alone, my children, but you walk in Godʼs care, and His hand is upon each one of you.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

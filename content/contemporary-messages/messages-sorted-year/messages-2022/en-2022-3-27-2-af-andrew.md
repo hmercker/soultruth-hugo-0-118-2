@@ -1,7 +1,7 @@
 ---
 title: "Our Relationship with God"
 menu_title: ""
-description: "Our Relationship with God"
+description: "Andrew, received by Al Fike: “How important it is in your world to reach out in love and acceptance and recognition as you continue to awaken to your own …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

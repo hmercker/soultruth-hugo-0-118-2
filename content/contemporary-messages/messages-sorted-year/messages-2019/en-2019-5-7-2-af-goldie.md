@@ -1,7 +1,7 @@
 ---
 title: "Bring Joy into your Heart"
 menu_title: ""
-description: "Bring Joy into your Heart"
+description: "Goldie, received by Al Fike: “I want you to know that I too have enjoyed your visit my friends and I have been with you on many occasions while you have …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

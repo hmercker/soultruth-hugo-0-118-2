@@ -1,7 +1,7 @@
 ---
 title: "Be Brave and Carry the Flame of Truth"
 menu_title: ""
-description: "Be Brave and Carry the Flame of Truth"
+description: "Faith Nyquist, received by Al Fike: “Thank you for that beautiful prayer, my brother. It warms our heart, those of us in the Celestial Kingdom, to see you …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

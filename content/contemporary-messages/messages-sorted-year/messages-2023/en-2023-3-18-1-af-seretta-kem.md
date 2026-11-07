@@ -1,7 +1,7 @@
 ---
 title: "Growing Soul Consciousness"
 menu_title: ""
-description: "Growing Soul Consciousness"
+description: "Seretta Kem, received by Al Fike: “But our plan and effort are to fine-tune your sensitivities and gifts to the point where you may be aware of one another …”"
 date: 2025-04-17 07:21:03+11:00
 draft: False
 hidden: True

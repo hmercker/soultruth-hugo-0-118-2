@@ -1,7 +1,7 @@
 ---
 title: "You are Being Called to Bring God’s Truth to the World"
 menu_title: ""
-description: "You are Being Called to Bring God’s Truth to the World"
+description: "Stephen, received by Al Fike: “And I urge you to hold fast to your understanding and beliefs, in the power of Love to heal, the great Touch of God to …”"
 date: 2025-07-22 06:00:00+00:00
 draft: False
 hidden: True

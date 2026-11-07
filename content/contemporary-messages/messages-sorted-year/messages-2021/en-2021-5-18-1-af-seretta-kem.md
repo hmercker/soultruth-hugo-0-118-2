@@ -1,7 +1,7 @@
 ---
 title: "Spiritual Gifts Will Open with Soul Progression"
 menu_title: ""
-description: "Spiritual Gifts Will Open with Soul Progression"
+description: "Seretta Kem, received by Al Fike: “God wishes to manifest His Blessings upon this Earth for the benefit of many of His children, and He eagerly awaits …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

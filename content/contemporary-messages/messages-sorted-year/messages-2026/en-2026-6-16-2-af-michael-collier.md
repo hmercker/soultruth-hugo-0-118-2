@@ -1,7 +1,7 @@
 ﻿---
 title: "Accept and Embrace the Coming Changes as God Restores Harmony to the Earth"
 menu_title: ""
-description: "Accept and Embrace the Coming Changes as God Restores Harmony to the Earth"
+description: "Michael Collier, received by Al Fike: “I thank you, dear daughter, for your wise and beautiful prayer. Indeed, the Earth is changing, life is changing and …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

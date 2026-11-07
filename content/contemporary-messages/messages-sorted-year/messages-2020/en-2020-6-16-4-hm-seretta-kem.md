@@ -1,7 +1,7 @@
 ---
 title: "The Magnificence of Faith"
 menu_title: ""
-description: "The Magnificence of Faith"
+description: "Seretta Kem, received by Helge Mercker: “My dear daughter, I am here. As I have brought you the words, “to recognize the magnificence of faith,” I wish to …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

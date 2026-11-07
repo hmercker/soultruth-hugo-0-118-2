@@ -1,5 +1,6 @@
 ---
 title: "Stick to the Straight and Narrow Path – the Simple Truth of God’s Divine Love"
+description: "Received by Al Fike: “The beautiful Breath of God is upon you, my beloved students. Yet, within your minds, often you tend to adorn this path with various …”"
 menu_title: "Augustine says Stick to the Straight and Narrow Path – the Simple Truth of God’s Divine Love"
 date: 2024-11-27 07:21:03+11:00
 draft: False

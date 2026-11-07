@@ -1,7 +1,7 @@
 ---
 title: "You Don’t Know How Greatly Blessed You Are"
 menu_title: ""
-description: "You Don’t Know How Greatly Blessed You Are"
+description: "Barbara Davies & Joan of Arc, received by Elizabeth Mack: “My strength is with you on your journey. All of God’s children are with you.”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

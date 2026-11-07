@@ -1,7 +1,7 @@
 ---
 title: "Describes How She and Barbara Walked Parallel Paths While on Earth"
 menu_title: ""
-description: "Describes How She and Barbara Walked Parallel Paths While on Earth"
+description: "Grace Jordan, received by Al Fike: “I too was sensitive, but my journey and my experience were different because I am a different soul, and I experienced …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

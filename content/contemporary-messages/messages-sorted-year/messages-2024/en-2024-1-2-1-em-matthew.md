@@ -1,7 +1,7 @@
 ---
 title: "You Are the Foundation of Truth Upon the Earth"
 menu_title: ""
-description: "You Are the Foundation of Truth Upon the Earth"
+description: "Matthew, received by Elizabeth Mack: “You are the foundation of the Truth upon this Earth. Never before has it been so strong as it is now, this foundation …”"
 date: 2025-07-19 07:21:03+11:00
 draft: False
 hidden: True

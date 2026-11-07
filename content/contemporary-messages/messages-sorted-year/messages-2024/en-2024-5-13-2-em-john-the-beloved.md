@@ -1,7 +1,7 @@
 ---
 title: "Your Desires and Longings to Be At-One with God Will Create a Strong Connection With Him"
 menu_title: ""
-description: "Your Desires and Longings to Be At-One with God Will Create a Strong Connection With Him"
+description: "John the Beloved, received by Elizabeth Mack: “For the Father desires a strong connection with each one of His children. Your desires, your longings to be …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

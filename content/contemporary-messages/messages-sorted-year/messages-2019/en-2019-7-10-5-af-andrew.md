@@ -1,7 +1,7 @@
 ---
 title: "Put Aside Concerns of the Mind"
 menu_title: ""
-description: "Put Aside Concerns of the Mind"
+description: "Andrew, received by Al Fike: “As you are unified in this beautiful desire and intent that comes from your souls, you then allow the teachings that you so …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

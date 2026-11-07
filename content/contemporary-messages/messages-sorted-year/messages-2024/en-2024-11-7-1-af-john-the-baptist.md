@@ -1,7 +1,7 @@
 ---
 title: "Announces He Will Oversee Managing Messages Projects to Further the Dissemination of Divine Love Truths"
 menu_title: ""
-description: "Announces He Will Oversee Managing Messages Projects to Further the Dissemination of Divine Love Truths"
+description: "John the Baptist, received by Al Fike: “This mission is important. You have risen above your mindful states and allowed the love to come through, the …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

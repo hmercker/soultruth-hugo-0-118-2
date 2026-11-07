@@ -1,7 +1,7 @@
 ---
 title: "Pray That Your Brothers and Sisters Have a Stronger Desire for Peace"
 menu_title: ""
-description: "Pray That Your Brothers and Sisters Have a Stronger Desire for Peace"
+description: "David, received by Elizabeth Mack: “Such a beautiful light that emanates from your souls and all together, you impact the entire Earth plane with your …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

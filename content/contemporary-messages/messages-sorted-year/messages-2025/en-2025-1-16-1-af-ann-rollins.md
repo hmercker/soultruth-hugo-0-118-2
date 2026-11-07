@@ -1,7 +1,7 @@
 ---
 title: "Prays With Us to Bring Greater Light to the World"
 menu_title: ""
-description: "Prays With Us to Bring Greater Light to the World"
+description: "Ann Rollins, received by Al Fike: “May the Father’s Love continue to infill your souls. Indeed, every time you pray, you bring greater light to yourself …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

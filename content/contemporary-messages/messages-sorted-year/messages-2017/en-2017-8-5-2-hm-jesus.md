@@ -1,7 +1,7 @@
 ﻿---
 title: "On the Project of Direct Voice"
 menu_title: ""
-description: "On the Project of Direct Voice"
+description: "Jesus, received by Helge Mercker: “I have come, I am here, it is Jesus. You have felt my promptings and I am glad that you have prayed in earnestness and …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

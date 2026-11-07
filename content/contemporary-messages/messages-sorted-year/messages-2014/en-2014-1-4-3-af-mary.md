@@ -1,7 +1,7 @@
 ﻿---
 title: "Love is the most important Thing"
 menu_title: ""
-description: "Love is the most important Thing"
+description: "Mary, received by Al Fike: “We are so happy that you’ve come together. Love is the most important thing, my children.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

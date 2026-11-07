@@ -1,7 +1,7 @@
 ﻿---
 title: "The Influence Our Path Has Upon Our Loved Ones in Spirit"
 menu_title: ""
-description: "The Influence Our Path Has Upon Our Loved Ones in Spirit"
+description: "Melvina, received by Maureen Cardoso: “May the blessing of God's Love infill your souls. For we have this in common, all seeking and yearning for God's …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

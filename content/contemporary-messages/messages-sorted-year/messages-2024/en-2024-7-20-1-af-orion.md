@@ -1,7 +1,7 @@
 ---
 title: "Continued Emphasis on Reaching Soul Consciousness"
 menu_title: ""
-description: "Continued Emphasis on Reaching Soul Consciousness"
+description: "Orion, received by Al Fike: “Blessings to you, my friends. Indeed, it has been made very clear to you the challenges and troubles that you have to reach …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Instantaneous Love Connection"
 menu_title: ""
-description: "Instantaneous Love Connection"
+description: "Jesus, received by Helge Mercker: “My dear daughter, I am Jesus. I wish to express my love to you and bring my reassurance, that I am with you.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

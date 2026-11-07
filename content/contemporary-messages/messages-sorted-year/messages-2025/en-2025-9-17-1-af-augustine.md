@@ -1,7 +1,7 @@
 ---
 title: "Testing the Waters and Healing our Wounds"
 menu_title: ""
-description: "Testing the Waters and Healing our Wounds"
+description: "Augustine, received by Al Fike: “Bless you, my dear and beloved students. Each day brings its opportunities and its choices.”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

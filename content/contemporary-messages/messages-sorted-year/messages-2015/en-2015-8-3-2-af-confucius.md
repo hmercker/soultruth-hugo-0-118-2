@@ -1,7 +1,7 @@
 ﻿---
 title: "Many Gifts lie within"
 menu_title: ""
-description: "Many Gifts lie within"
+description: "Confucius, received by Al Fike: “The Light of God’s Grace is upon you, my beloveds, your prayers have brought this. Feel the longing within your souls.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

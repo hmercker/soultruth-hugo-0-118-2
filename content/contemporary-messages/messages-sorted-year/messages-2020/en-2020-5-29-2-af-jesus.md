@@ -1,7 +1,7 @@
 ---
 title: "Love is the Key to All"
 menu_title: ""
-description: "Love is the Key to All"
+description: "Jesus, received by Al Fike: “I have said, “Seek ye the Kingdom and all shall come to you”. You know what I mean in this statement.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

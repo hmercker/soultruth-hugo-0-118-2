@@ -1,7 +1,7 @@
 ﻿---
 title: "Accept the Coming Earth Changes as Necessary and Blessed by God"
 menu_title: ""
-description: "Accept the Coming Earth Changes as Necessary and Blessed by God"
+description: "Orion, received by Al Fike: “Great change is coming to your world and each of you is aware of this. The depth and breadth of that change is not so well …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

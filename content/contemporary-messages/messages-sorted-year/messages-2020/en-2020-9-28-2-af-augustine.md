@@ -1,7 +1,7 @@
 ---
 title: "Seek Ye the Kingdom and All Things Shall Come"
 menu_title: ""
-description: "Seek Ye the Kingdom and All Things Shall Come"
+description: "Augustine, received by Al Fike: “God is pouring waves of Light and Love, Peace and enrichment for your souls upon your world.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

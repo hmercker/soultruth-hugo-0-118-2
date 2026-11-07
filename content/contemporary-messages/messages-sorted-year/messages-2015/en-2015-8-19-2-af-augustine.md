@@ -1,7 +1,7 @@
 ﻿---
 title: "We embark on a Journey to change the World"
 menu_title: ""
-description: "We embark on a Journey to change the World"
+description: "Augustine, received by Al Fike: “You perform a great service, my beloveds, in coming together, you perform a service for God to bring His Light and Love …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

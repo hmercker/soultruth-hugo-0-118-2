@@ -1,7 +1,7 @@
 ---
 title: "Consider Your Steps Carefully"
 menu_title: ""
-description: "Consider Your Steps Carefully"
+description: "Matthew, received by Al Fike: “Your souls will guide you, beloveds, your souls will guide you. But you must first listen and pray and consider so that you …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Persistence beyond Ritual"
 menu_title: ""
-description: "Persistence beyond Ritual"
+description: "Judas, received by Jimbeau Walsh: “This, at times, can seem like a dual existence, a type of spiritual schizophrenia, where one is dealing with family or …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

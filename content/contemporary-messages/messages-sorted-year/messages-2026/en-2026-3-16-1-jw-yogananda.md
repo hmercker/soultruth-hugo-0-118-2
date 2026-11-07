@@ -1,7 +1,7 @@
 ---
 title: "Soul Clarity"
 menu_title: ""
-description: "Soul Clarity"
+description: "Yogananda, received by Jimbeau Walsh: “You know, actors that do this for a living rehearse, and when they are really in rapport with their character, they …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

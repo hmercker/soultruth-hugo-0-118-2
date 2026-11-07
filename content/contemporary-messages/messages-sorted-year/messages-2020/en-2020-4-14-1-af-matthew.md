@@ -1,7 +1,7 @@
 ---
 title: "The Virus is Just a Prelude of What is to Come"
 menu_title: ""
-description: "The Virus is Just a Prelude of What is to Come"
+description: "Matthew, received by Al Fike: “God is pouring blessings of Light and Love, healing and peace upon your world. With these unusual circumstances in which you …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

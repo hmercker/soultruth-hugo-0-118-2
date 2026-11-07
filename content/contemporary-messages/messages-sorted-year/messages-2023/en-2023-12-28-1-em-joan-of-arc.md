@@ -1,7 +1,7 @@
 ---
 title: "As God Wills, So It Shall Be Done"
 menu_title: ""
-description: "As God Wills, So It Shall Be Done"
+description: "Joan of Arc, received by Elizabeth Mack: “You ask and you shall receive. You ask from your souls for this Love and your desires grow strong within you.”"
 date: 2025-07-22 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "As each of us heals, the Earth also heals"
 menu_title: ""
-description: "As each of us heals, the Earth also heals"
+description: "Luke, received by Elizabeth Mack: “As this Earth heals, you heal. You are connected in ways you do not yet understand but remember this and take this …”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

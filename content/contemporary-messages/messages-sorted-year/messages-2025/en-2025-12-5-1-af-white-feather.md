@@ -1,7 +1,7 @@
 ---
 title: "Reverence for God's Creation and the Call to Love the Earth"
 menu_title: ""
-description: "Reverence for God's Creation and the Call to Love the Earth"
+description: "White Feather, received by Al Fike: “The whispers of God's Touch flow amongst you, His gentle Voice in your ear, His Love enveloping you, so that you may …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

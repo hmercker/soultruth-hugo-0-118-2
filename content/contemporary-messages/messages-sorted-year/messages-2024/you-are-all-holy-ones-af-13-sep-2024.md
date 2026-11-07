@@ -1,5 +1,6 @@
 ---
 title: "You Are All Holy Ones!"
+description: "Received by Al Fike: “May the blessings of the Divine Love enter into your souls. Is this not what you come for?”"
 menu_title: "Yogananda says You Are All Holy Ones!"
 date: 2024-11-29 07:21:03+11:00
 draft: False

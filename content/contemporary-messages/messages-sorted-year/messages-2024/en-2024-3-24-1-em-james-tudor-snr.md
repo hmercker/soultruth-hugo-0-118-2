@@ -1,7 +1,7 @@
 ---
 title: "Kudos from James Tudor Snr"
 menu_title: ""
-description: "Kudos from James Tudor Snr"
+description: "James Tudor Snr, received by Elizabeth Mack: “You have long been ready and willing, and I am thankful that you are now carrying out your guidance and your …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

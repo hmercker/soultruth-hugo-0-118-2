@@ -1,7 +1,7 @@
 ﻿---
 title: "You Are the Light: Called to Receive and Share God's Love"
 menu_title: ""
-description: "You Are the Light: Called to Receive and Share God's Love"
+description: "Jesus, received by Al Fike: “Indeed, the world needs your prayers. So many are displaced with no anchor in their life to bring peace to them or harmony.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

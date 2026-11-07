@@ -1,7 +1,7 @@
 ﻿---
 title: "Ask God to make you an Instrument of His Will"
 menu_title: ""
-description: "Ask God to make you an Instrument of His Will"
+description: "Augustine, received by Al Fike: “Upon returning from your journeys you see much of the blessings you have available to you in your own lives.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

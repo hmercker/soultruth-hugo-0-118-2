@@ -1,7 +1,7 @@
 ---
 title: "Hope Within Every Soul"
 menu_title: ""
-description: "Hope Within Every Soul"
+description: "Lotus Blossom, received by Maureen Cardoso: “As you pray for the great inflowing of God's Love, you draw me near. For within each one's heart, there is a …”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

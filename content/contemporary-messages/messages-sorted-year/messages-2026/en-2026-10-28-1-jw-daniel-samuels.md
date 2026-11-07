@@ -1,7 +1,7 @@
 ﻿---
 title: "Halloween, All Hallows, All Souls"
 menu_title: ""
-description: "Halloween, All Hallows, All Souls"
+description: "Daniel Samuels, received by Jimbeau Walsh: “I wish to speak of things that not only relate to this coming week and gathering, but hopefully to a broader …”"
 date: 2026-11-01 00:00:00+00:00
 draft: False
 hidden: True

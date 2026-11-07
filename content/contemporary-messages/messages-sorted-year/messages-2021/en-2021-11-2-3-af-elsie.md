@@ -1,7 +1,7 @@
 ---
 title: "Alecs Soulmate Affirms Working with Alec in the Celestial Kingdom"
 menu_title: ""
-description: "Alecs Soulmate Affirms Working with Alec in the Celestial Kingdom"
+description: "Elsie, received by Al Fike: “I want to encourage you, my friends, because there are many distractions and many ways you can wander off this path, finding …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

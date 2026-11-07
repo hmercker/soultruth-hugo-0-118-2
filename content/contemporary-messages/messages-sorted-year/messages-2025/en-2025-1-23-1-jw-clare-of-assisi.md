@@ -1,7 +1,7 @@
 ---
 title: "Prayer and Sanctuary"
 menu_title: ""
-description: "Prayer and Sanctuary"
+description: "Clare of Assisi, received by Jimbeau Walsh: “I apologize for my absence, but I will tell you that you have all done beautiful work in continuing to …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Your Soul Condition"
 menu_title: ""
-description: "Your Soul Condition"
+description: "Judas, received by Jimbeau Walsh: “Brothers and sisters, you who come to be in the love of God, taking the time to remove yourself from the world, even if …”"
 date: 2025-06-13 07:21:03+00:00
 draft: False
 hidden: True

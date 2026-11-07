@@ -1,7 +1,7 @@
 ---
 title: "The Power of Light To Over Come the Darkness"
 menu_title: ""
-description: "The Power of Light To Over Come the Darkness"
+description: "Mark, received by Al Fike: “Do you see how things are falling into place, that your purpose and efforts are not complicated and do not require a great deal …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

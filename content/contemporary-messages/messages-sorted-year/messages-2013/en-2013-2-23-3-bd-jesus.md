@@ -1,7 +1,7 @@
 ﻿---
 title: "Pray for the Power of Divine Love to fill your World"
 menu_title: ""
-description: "Pray for the Power of Divine Love to fill your World"
+description: "Jesus, received by Barbara Davies: “I ask you to pray for the power of Divine Love to fill your world and protect all life with love and peace, so deeply …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

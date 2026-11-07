@@ -1,7 +1,7 @@
 ---
 title: "You Are At-One with the Creator to the Degree of Divine Love in Your Soul"
 menu_title: ""
-description: "You Are At-One with the Creator to the Degree of Divine Love in Your Soul"
+description: "Faith Nyquist, received by Maureen Cardoso: “May God’s Divine Love touch your souls and may the Essence of the Creator wash clean those conditions of your …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

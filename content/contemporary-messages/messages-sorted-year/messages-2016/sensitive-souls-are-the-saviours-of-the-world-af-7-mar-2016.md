@@ -1,7 +1,7 @@
 ---
 title: "Sensitive Souls are the saviours of this world"
 menu_title: "Sensitive Souls are the saviours of this world"
-description: "Sensitive Souls are the saviours of this world"
+description: "Received by Al Fike: “When they do enter the world of spirit their progression is swift for this is more to their liking and in harmony with their being.”"
 date: 2016-10-10 21:48:44+00:00
 draft: False
 hidden: True

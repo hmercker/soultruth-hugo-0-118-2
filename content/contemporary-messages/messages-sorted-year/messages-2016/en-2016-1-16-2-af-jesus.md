@@ -1,7 +1,7 @@
 ﻿---
 title: "Be in this simple Way in Service to Love and enact God’s Will"
 menu_title: ""
-description: "Be in this simple Way in Service to Love and enact God’s Will"
+description: "Jesus, received by Al Fike: “…and you must bring an open heart and your glorious Light, your presence with God in your prayers and your essence that flows …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

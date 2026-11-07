@@ -1,7 +1,7 @@
 ---
 title: "The Ways of Love in God's Service"
 menu_title: ""
-description: "The Ways of Love in God's Service"
+description: "Orion, received by Al Fike: “The Essence of the Creator is indeed flowing into your souls, my friends. As you are transformed by this gift, as you receive …”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Real Peace beyond Fear"
 menu_title: ""
-description: "Real Peace beyond Fear"
+description: "Yogananda, received by Jimbeau Walsh: “I shall elaborate a bit on the message that the dear sister read, received a few years ago by my brother.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

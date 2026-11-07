@@ -1,5 +1,6 @@
 ---
 title: "I Love You Dearly"
+description: "Received by Al Fike: “May the blessings of our Creator continue to brighten your souls. For when you seek the highest of blessings, the great Love of God …”"
 menu_title: "Jesus says I Love You Dearly"
 date: 2024-06-03 07:21:03+11:00
 draft: False

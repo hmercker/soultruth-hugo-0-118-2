@@ -1,7 +1,7 @@
 ---
 title: "Possession of Divine Love"
 menu_title: ""
-description: "Possession of Divine Love"
+description: "Moses, received by Elizabeth Mack: “I bring with me the strength of my convictions, the Truth of God’s Love within my soul, to encourage you all to live …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

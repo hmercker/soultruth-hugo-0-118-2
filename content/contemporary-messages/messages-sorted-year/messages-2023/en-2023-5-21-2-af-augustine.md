@@ -1,7 +1,7 @@
 ---
 title: "How God has Brought Us all Together"
 menu_title: ""
-description: "How God has Brought Us all Together"
+description: "Augustine, received by Al Fike: “Consider all the choices, all the actions, all the thoughts and desires that have brought you to this place together at …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

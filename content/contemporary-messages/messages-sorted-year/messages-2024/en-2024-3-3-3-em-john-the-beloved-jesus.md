@@ -1,7 +1,7 @@
 ---
 title: "Focus Upon Your Prayers"
 menu_title: ""
-description: "Focus Upon Your Prayers"
+description: "John the Beloved & Jesus, received by Elizabeth Mack: “John: I am here with you all now, brothers and sisters. When you come together, as you do in deep …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

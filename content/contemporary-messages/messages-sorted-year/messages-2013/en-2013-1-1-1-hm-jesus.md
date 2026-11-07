@@ -1,7 +1,7 @@
 ﻿---
 title: "New-Year Greeting"
 menu_title: ""
-description: "New-Year Greeting"
+description: "Jesus, received by Helge Mercker: “We are happy for this new era and new year. We acknowledge all of you who did the work of our Father, we express our …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

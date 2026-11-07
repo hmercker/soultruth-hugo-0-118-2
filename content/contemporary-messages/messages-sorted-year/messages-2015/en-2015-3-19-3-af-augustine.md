@@ -1,7 +1,7 @@
 ﻿---
 title: "To be chosen in this Way is a great Blessing"
 menu_title: ""
-description: "To be chosen in this Way is a great Blessing"
+description: "Augustine, received by Al Fike: “There comes a great period of change in the world. Crumbling of the old and the bringing in of the new.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

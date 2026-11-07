@@ -1,7 +1,7 @@
 ---
 title: "Congratulations on creating a beacon of light"
 menu_title: ""
-description: "Congratulations on creating a beacon of light"
+description: "Augustine, received by Al Fike: “May God's Love continue to awaken your soul and bring you to that place of clarity, of deep spiritual vision …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Man's Trials and Tribulations Have No Cause in God"
 menu_title: ""
-description: "Man's Trials and Tribulations Have No Cause in God"
+description: "Keea Atta Kem, received by Maureen Cardoso: “I join you to bring support, to bring love, to bring healing and awareness. What I wish to bring most …”"
 date: 2025-07-06 07:21:03+00:00
 draft: False
 hidden: True

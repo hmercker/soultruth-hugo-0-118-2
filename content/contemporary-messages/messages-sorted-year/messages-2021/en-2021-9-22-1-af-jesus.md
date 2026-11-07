@@ -1,7 +1,7 @@
 ---
 title: "Jesus ushers in a new era"
 menu_title: ""
-description: "Jesus ushers in a new era"
+description: "Jesus, received by Al Fike: “What comes with this blessing are the open doors of many opportunities and gifts, unfolding of God's intentions through you.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

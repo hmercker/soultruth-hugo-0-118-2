@@ -1,7 +1,7 @@
 ﻿---
 title: "You are becoming God’s Instruments and Channels of Love"
 menu_title: ""
-description: "You are becoming God’s Instruments and Channels of Love"
+description: "John the Beloved, received by Al Fike: “You are enfolded by your Heavenly Father, my beloveds. He carries you in this world and He lifts you above the …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

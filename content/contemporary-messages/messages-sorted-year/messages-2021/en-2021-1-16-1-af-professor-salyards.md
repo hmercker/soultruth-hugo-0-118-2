@@ -1,7 +1,7 @@
 ---
 title: "This is our declaration to you"
 menu_title: ""
-description: "This is our declaration to you"
+description: "Professor Salyards, received by Al Fike: “And I am Professor Salyards. My friends, we will not let you down.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

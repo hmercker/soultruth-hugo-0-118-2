@@ -1,7 +1,7 @@
 ---
 title: "Honoured to Work with the Manly Circle of Light"
 menu_title: ""
-description: "Honoured to Work with the Manly Circle of Light"
+description: "Silver Birch, Elizabeth & Confucius, received by Al Fike: “Silver Birch: That message was conveyed many years ago, my friends. Indeed, depending upon the …”"
 date: 2025-06-18 07:21:03+00:00
 draft: False
 hidden: True

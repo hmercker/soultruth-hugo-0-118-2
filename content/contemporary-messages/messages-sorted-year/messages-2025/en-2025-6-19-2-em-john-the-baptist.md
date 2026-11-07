@@ -1,7 +1,7 @@
 ---
 title: "The New Way"
 menu_title: ""
-description: "The New Way"
+description: "John the Baptist, received by Elizabeth Mack: “Discipline is part of this life upon the Earth: disciplining thoughts, disciplining actions, making choices …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

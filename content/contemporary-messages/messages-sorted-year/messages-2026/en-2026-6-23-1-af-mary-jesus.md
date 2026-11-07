@@ -1,7 +1,7 @@
 ﻿---
 title: "Mary Describes the Blessing of God’s Touch Upon Her, Jesus Blesses the Group"
 menu_title: ""
-description: "Mary Describes the Blessing of God’s Touch Upon Her, Jesus Blesses the Group"
+description: "Mary & Jesus, received by Al Fike: “Mary: May the blessings of the Father's Love be yours. In a world such as this, God brings His blessings to all who are …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

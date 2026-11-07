@@ -1,7 +1,7 @@
 ---
 title: "Correcting Error by Speaking Truth with Love"
 menu_title: ""
-description: "Correcting Error by Speaking Truth with Love"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “I was with you earlier today, very close. As Yogananda spoke about being able to critique people or …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Each One Has Received a Gift for Further Soul Awakening and Personal Development"
 menu_title: ""
-description: "Each One Has Received a Gift for Further Soul Awakening and Personal Development"
+description: "Seretta Kem, received by Al Fike: “Each one has been given healing, upliftment and integration into this Circle of Light. You will carry the blessings with …”"
 date: 2025-06-18 07:21:03+11:00
 draft: False
 hidden: True

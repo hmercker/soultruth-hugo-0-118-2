@@ -1,7 +1,7 @@
 ---
 title: "The Power of Love Can Transform Your Soul"
 menu_title: ""
-description: "The Power of Love Can Transform Your Soul"
+description: "Matthew, received by Al Fike: “Blessings to you, beloved children of God. The breath of God is upon you, beloveds.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

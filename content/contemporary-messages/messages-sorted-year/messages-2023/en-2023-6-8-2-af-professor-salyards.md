@@ -1,7 +1,7 @@
 ---
 title: "Be Open to the Gifts God Presents to You"
 menu_title: ""
-description: "Be Open to the Gifts God Presents to You"
+description: "Professor Salyards, received by Al Fike: “The world is open to you, my beloved friends. Do not be reluctant when blessings and gifts are offered …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bring Flowers to Les Chapel Monnaie"
 menu_title: ""
-description: "Bring Flowers to Les Chapel Monnaie"
+description: "Goldie, received by Al Fike: “Bring flowers to this place. Not those pretend flowers but flowers that are alive as dedications to God and say I love you …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

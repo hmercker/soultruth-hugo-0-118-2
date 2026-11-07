@@ -1,7 +1,7 @@
 ---
 title: "Confucius advises us to rest our minds"
 menu_title: ""
-description: "Confucius advises us to rest our minds"
+description: "Received by H.E.M: “My daughter, my beloved daughter, I thank you for having granted me the opportunity to speak and you have felt my promptings of this …”"
 date: 2017-12-01 03:17:37+00:00
 draft: False
 hidden: True

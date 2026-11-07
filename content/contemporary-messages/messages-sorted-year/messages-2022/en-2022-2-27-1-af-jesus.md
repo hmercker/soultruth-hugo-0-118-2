@@ -1,7 +1,7 @@
 ---
 title: "Do Not Fear, Love will Prevail and Bring Peace"
 menu_title: ""
-description: "Do Not Fear, Love will Prevail and Bring Peace"
+description: "Jesus, received by Al Fike: “The actions of men continue to play its part upon the unfolding life of your Earth. Do not engage in fear but come to God in …”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

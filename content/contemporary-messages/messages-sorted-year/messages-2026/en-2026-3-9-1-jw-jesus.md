@@ -1,7 +1,7 @@
 ---
 title: "When the Heart is humbled, the Soul is exalted"
 menu_title: ""
-description: "When the Heart is humbled, the Soul is exalted"
+description: "Jesus, received by Jimbeau Walsh: “My friends, it is I, your brother. When the heart is humbled, the soul is exalted.”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

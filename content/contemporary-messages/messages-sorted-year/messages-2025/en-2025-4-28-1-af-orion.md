@@ -1,7 +1,7 @@
 ---
 title: "The Work We Are Called to Do While There is Still Tine"
 menu_title: ""
-description: "The Work We Are Called to Do While There is Still Tine"
+description: "Orion, received by Al Fike: “May the peace that passes all understanding be yours, my friends. Any movement, any effort that involves human interest and …”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

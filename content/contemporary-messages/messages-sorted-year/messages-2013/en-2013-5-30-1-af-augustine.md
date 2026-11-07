@@ -1,7 +1,7 @@
 ﻿---
 title: "Transformation of the Soul"
 menu_title: ""
-description: "Transformation of the Soul"
+description: "Augustine, received by Al Fike: “My dear children, this is Augustine. I have come again to speak, now that the laughter has subsided, and I wish to address …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

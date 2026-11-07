@@ -1,7 +1,7 @@
 ---
 title: "Dissolving the Tyranny of our Mind is Essential for Soul Consciousness"
 menu_title: ""
-description: "Dissolving the Tyranny of our Mind is Essential for Soul Consciousness"
+description: "Orion, received by Al Fike: “May the blessing of our Creator’s Love continue to flow into you. This Love, the very foundation of all spiritual development …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "10 th Anniversary DLSF Acknowledgement"
 menu_title: ""
-description: "10 th Anniversary DLSF Acknowledgement"
+description: "Jesus, received by Al Fike: “As you continue to bring the Truth of God’s Love into the world, so each of you are blessed.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

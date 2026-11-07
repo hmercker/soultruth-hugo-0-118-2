@@ -1,7 +1,7 @@
 ---
 title: "The Transformation of the Soul and the Spirit of the Soul in Divine Love"
 menu_title: ""
-description: "The Transformation of the Soul and the Spirit of the Soul in Divine Love"
+description: "Alec Gaunt, received by Maureen Cardoso: “May the blessing of God's Love pierce your souls, beloveds. As you receive the blessing of God's Love within your …”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

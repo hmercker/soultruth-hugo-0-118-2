@@ -1,7 +1,7 @@
 ---
 title: "We Have a Preview of This Love as We Live Upon This Earth"
 menu_title: ""
-description: "We Have a Preview of This Love as We Live Upon This Earth"
+description: "John Hughes, received by Elizabeth Mack: “I walk with this soul, this medium, through most of her days. We will be with you today, each and every one of …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Confirms That Messages Coming Through Are God's Truths"
 menu_title: ""
-description: "Confirms That Messages Coming Through Are God's Truths"
+description: "Bartholonew, received by Al Fike: “May the glory of the Father's Love enter your souls in great abundance. May you come to know this gift from God as your …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

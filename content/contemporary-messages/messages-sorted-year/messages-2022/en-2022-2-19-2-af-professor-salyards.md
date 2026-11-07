@@ -1,7 +1,7 @@
 ---
 title: "Kudos to You All"
 menu_title: ""
-description: "Kudos to You All"
+description: "Professor Salyards, received by Al Fike: “Blessings to you, it is your Professor Salyards, your old friend, one who has a keen interest in your work and …”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

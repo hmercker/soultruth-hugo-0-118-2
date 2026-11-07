@@ -1,7 +1,7 @@
 ---
 title: "Encouragement for Divine Love Mediumship Development Retreat"
 menu_title: ""
-description: "Encouragement for Divine Love Mediumship Development Retreat"
+description: "Charlie Chaplin, received by Jimbeau Walsh: “I came when you mentioned me earlier, to see what was up. Now I am here with you in this prayerful abode …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

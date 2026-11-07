@@ -1,7 +1,7 @@
 ---
 title: "How Do You Know You Are Receiving Divine Love ?"
 menu_title: ""
-description: "How Do You Know You Are Receiving Divine Love ?"
+description: "Augustine, received by Al Fike: “I wish to address an issue that is common amongst mortals who seek and pray for the gift of Divine Love and yet often do …”"
 date: 2025-06-21 07:21:03+00:00
 draft: False
 hidden: True

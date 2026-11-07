@@ -1,7 +1,7 @@
 ﻿---
 title: "Be steady on your Feet"
 menu_title: ""
-description: "Be steady on your Feet"
+description: "Jesus, received by Al Fike: “You cannot walk until you crawl, my beloveds, and you cannot run until you can walk. And you raise yourself from the floor to …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

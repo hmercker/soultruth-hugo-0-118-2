@@ -1,7 +1,7 @@
 ---
 title: "They are here to help us on earth"
 menu_title: ""
-description: "They are here to help us on earth"
+description: "Orion, received by Al Fike: “In the flow of His Love comes this light and this grace, comes all that is good, all that is in harmony with His Creation.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

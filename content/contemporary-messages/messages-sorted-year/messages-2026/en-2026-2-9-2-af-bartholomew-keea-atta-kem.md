@@ -1,7 +1,7 @@
 ---
 title: "Faith and the Soul 2: You Must Trust in Yourself, Your Soul and God"
 menu_title: ""
-description: "Faith and the Soul 2: You Must Trust in Yourself, Your Soul and God"
+description: "Bartholomew & Keea Atta Kem, received by Al Fike: “Bartholomew: Greetings to you, my friends, I am Bartholomew. There is much work ahead for each one of you.”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "I am your brother and friend, Yogananda"
 menu_title: ""
-description: "I am your brother and friend, Yogananda"
+description: "Yogananda, received by Jimbeau Walsh: “If it was possible to become enlightened, as they say, by reading all the books and listening the right music …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

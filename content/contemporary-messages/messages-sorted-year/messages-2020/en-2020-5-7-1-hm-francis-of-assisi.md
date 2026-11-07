@@ -1,7 +1,7 @@
 ---
 title: "Sing with the Birds"
 menu_title: ""
-description: "Sing with the Birds"
+description: "Francis of Assisi, received by Helge Mercker: “My daughter, listen to the soft wind, feel the warmth of the ocean breeze. Listen to the sound of palm …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

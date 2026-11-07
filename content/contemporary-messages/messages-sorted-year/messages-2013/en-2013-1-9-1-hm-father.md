@@ -1,7 +1,7 @@
 ﻿---
 title: "The Net of Love"
 menu_title: ""
-description: "The Net of Love"
+description: "Father, received by Helge Mercker: “You are encouraged to reach out and build your net, yes the net of love, and cast out the net to bring home the many it …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "As you pray for your loved ones, they will be blessed"
 menu_title: ""
-description: "As you pray for your loved ones, they will be blessed"
+description: "Mary, received by Al Fike: “The angels have been answering your prayers, God has been answering your prayers, my beloved souls, and as you hold these dear …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

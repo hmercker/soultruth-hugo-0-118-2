@@ -1,7 +1,7 @@
 ---
 title: "The Resources of Our Souls Help Open Doors to the Universe"
 menu_title: ""
-description: "The Resources of Our Souls Help Open Doors to the Universe"
+description: "Orion, received by Al Fike: “For when your soul is imbued with light, wherever you go in the universe, and indeed even you have travelled, my friends, to …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

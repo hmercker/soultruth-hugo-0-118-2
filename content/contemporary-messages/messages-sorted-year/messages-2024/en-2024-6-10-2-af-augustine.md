@@ -1,7 +1,7 @@
 ---
 title: "Numbers Don't Matter"
 menu_title: ""
-description: "Numbers Don't Matter"
+description: "Augustine, received by Al Fike: “May the blessings of the Father’s Love continue to enter your souls, my beloved students. In the universe of God, His Will …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

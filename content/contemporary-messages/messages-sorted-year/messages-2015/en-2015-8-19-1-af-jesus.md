@@ -1,7 +1,7 @@
 ﻿---
 title: "Jesus comes to open and bless a Retreat Gathering"
 menu_title: ""
-description: "Jesus comes to open and bless a Retreat Gathering"
+description: "Jesus, received by Al Fike: “Blessed souls, beautiful brothers, beautiful sisters who walk this Path Divine I am with you.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

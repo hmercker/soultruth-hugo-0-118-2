@@ -1,7 +1,7 @@
 ﻿---
 title: "Encourages the Expressions of our Souls"
 menu_title: ""
-description: "Encourages the Expressions of our Souls"
+description: "Keea Atta Kem, received by Al Fike: “On many different occasions, I have been close. Today I wish to speak of the vitality of the soul.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

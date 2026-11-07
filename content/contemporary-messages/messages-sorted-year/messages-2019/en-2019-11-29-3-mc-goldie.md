@@ -1,7 +1,7 @@
 ---
 title: "We Shall have a Joyous Time Together"
 menu_title: ""
-description: "We Shall have a Joyous Time Together"
+description: "Goldie, received by Maureen Cardoso: “My sweet, sweet friends, we shall have a joyous time together. It shall be a glorious time together splashing in the …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

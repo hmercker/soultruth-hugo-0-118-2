@@ -1,7 +1,7 @@
 ---
 title: "Following Guidance to Come Together Makes for Great Possibilities"
 menu_title: ""
-description: "Following Guidance to Come Together Makes for Great Possibilities"
+description: "Matthew, received by Al Fike: “The work continues, does it not? The efforts, the coming together of desire and action as a result of guidance, are making …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

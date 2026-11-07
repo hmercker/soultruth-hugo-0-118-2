@@ -1,7 +1,7 @@
 ﻿---
 title: "Free Will and God’s Will"
 menu_title: ""
-description: "Free Will and God’s Will"
+description: "Judas, received by Jimbeau Walsh: “I should like to talk about free will, this great gift from God, unique in every soul and not interfered with.”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

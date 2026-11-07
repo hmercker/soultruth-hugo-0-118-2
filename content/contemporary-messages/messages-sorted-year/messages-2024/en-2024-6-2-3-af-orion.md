@@ -1,7 +1,7 @@
 ---
 title: "Prayer is an Activator in Every Part of the Universe"
 menu_title: ""
-description: "Prayer is an Activator in Every Part of the Universe"
+description: "Orion, received by Al Fike: “Blessed children of Earth, I am Orion. You have learned how to utilise this agent of activation for your benefit and for the …”"
 date: 2025-04-15 07:21:03+11:00
 draft: False
 hidden: True

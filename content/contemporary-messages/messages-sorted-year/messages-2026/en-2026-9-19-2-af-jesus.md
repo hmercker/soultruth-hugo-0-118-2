@@ -1,7 +1,7 @@
 ﻿---
 title: "This Great Truth is the Road to At-Onement With God"
 menu_title: ""
-description: "This Great Truth is the Road to At-Onement With God"
+description: "Jesus, received by Al Fike: “May the blessings of the Father's Love be with you. You may doubt that I might come to you, but in truth, all those who seek …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Celebrating the Birth of the Master"
 menu_title: ""
-description: "Celebrating the Birth of the Master"
+description: "Augustine, received by Al Fike: “And you come upon a time of peace and goodwill in your world, celebrating the birth of the Master and this is a time where …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

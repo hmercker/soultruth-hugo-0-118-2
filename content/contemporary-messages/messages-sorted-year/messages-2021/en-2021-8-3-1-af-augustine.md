@@ -1,7 +1,7 @@
 ---
 title: "Encouragement to Tell Friends and Family about Gods Love"
 menu_title: ""
-description: "Encouragement to Tell Friends and Family about Gods Love"
+description: "Augustine, received by Al Fike: “I hear your prayers for your families, your loved ones, those who are close in your life, and as we have said many times …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

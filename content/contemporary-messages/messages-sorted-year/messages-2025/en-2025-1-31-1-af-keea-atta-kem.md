@@ -1,7 +1,7 @@
 ---
 title: "Beautiful Blessings of Formidable Power of Healing, Peace and Love will Flow Abundantly"
 menu_title: ""
-description: "Beautiful Blessings of Formidable Power of Healing, Peace and Love will Flow Abundantly"
+description: "Keea Atta Kem, received by Al Fike: “Beautiful blessings will come to each one of you in your times together, your gathering of earnest souls.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

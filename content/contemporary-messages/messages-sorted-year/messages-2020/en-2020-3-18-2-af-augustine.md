@@ -1,7 +1,7 @@
 ---
 title: "This Circle of Light Strengthens the Light Between You"
 menu_title: ""
-description: "This Circle of Light Strengthens the Light Between You"
+description: "Augustine, received by Al Fike: “The harmony and unity that you foster together is important not only for your own well-being but for the well-being of …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

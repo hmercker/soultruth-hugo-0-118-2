@@ -1,7 +1,7 @@
 ---
 title: "Comments on Prayers in Preparation for Laurelville"
 menu_title: ""
-description: "Comments on Prayers in Preparation for Laurelville"
+description: "Orion, received by Al Fike: “There is great light amongst you, my friends. Many are with you at this moment, for we avail ourselves of every opportunity to …”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

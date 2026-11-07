@@ -1,5 +1,6 @@
 ---
 title: "Developing Divine Love Mediums"
+description: "Received by Al Fike: “I wish to convey this message to those who are gathering in the near future seeking to open their gifts and explore the possibilities …”"
 menu_title: "Seretta Kem talks about Developing Divine Love Mediums"
 date: 2024-05-29 07:21:03+11:00
 draft: False

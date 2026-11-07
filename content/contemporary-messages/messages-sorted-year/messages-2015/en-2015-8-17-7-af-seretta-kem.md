@@ -1,7 +1,7 @@
 ﻿---
 title: "A special Blessing to those at the Gibson’s Retreat"
 menu_title: ""
-description: "A special Blessing to those at the Gibson’s Retreat"
+description: "Seretta Kem, received by Al Fike: “You have each been given a blessing of healing and have been touched by God in a way which will remove certain barriers …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

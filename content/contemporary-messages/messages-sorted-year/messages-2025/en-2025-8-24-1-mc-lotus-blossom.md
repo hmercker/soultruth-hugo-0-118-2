@@ -1,7 +1,7 @@
 ﻿---
 title: "Having Reverence for God’s Gift of the Body"
 menu_title: ""
-description: "Having Reverence for God’s Gift of the Body"
+description: "Lotus Blossom, received by Maureen Cardoso: “I greet you with a blessing of love, with a warm embrace, with a loving acceptance and great admiration.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "God will use you to bring Change and Light and Love in this World"
 menu_title: ""
-description: "God will use you to bring Change and Light and Love in this World"
+description: "Mary, received by Al Fike: “I’ve come because of the longings of your souls to receive God’s Love, and I’ve come because my family has gathered, and I wish …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

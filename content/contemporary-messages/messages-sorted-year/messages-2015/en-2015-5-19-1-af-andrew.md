@@ -1,7 +1,7 @@
 ﻿---
 title: "Do not get caught up in false Judgments"
 menu_title: ""
-description: "Do not get caught up in false Judgments"
+description: "Andrew, received by Al Fike: “Do not get caught up in false judgments or project assumptions. Love will heal all and bring about harmony amongst you, my …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

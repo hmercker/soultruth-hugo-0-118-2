@@ -1,7 +1,7 @@
 ---
 title: "It is Time to Come Together as One"
 menu_title: ""
-description: "It is Time to Come Together as One"
+description: "White Cloud, received by Al Fike: “The time for individuality is coming to a close, where you will give up something for the benefit of all, rather than …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Check in With God Throughout the Day in Blessing Others You Meet"
 menu_title: ""
-description: "Check in With God Throughout the Day in Blessing Others You Meet"
+description: "John Hughes, received by Elizabeth Mack: “As Keea stated, be with your Creator. There are many distractions.”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

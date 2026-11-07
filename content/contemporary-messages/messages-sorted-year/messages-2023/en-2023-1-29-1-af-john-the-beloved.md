@@ -1,7 +1,7 @@
 ---
 title: "The Fulfillment of Your Soul in God's Family of Love"
 menu_title: ""
-description: "The Fulfillment of Your Soul in God's Family of Love"
+description: "John the Beloved, received by Al Fike: “May the touch of God’s breadth be upon you, beloved souls. For that which you see with the five senses and your own …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

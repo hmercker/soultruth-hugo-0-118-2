@@ -1,7 +1,7 @@
 ﻿---
 title: "Keep Yourself in a Condition of Light and Love to Fuel Your Instrumentality"
 menu_title: ""
-description: "Keep Yourself in a Condition of Light and Love to Fuel Your Instrumentality"
+description: "Faith Nyquist, received by Al Fike: “As you do these things, you reinforce the light around you. You ensure that your angel friends can come close.”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

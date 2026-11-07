@@ -1,7 +1,7 @@
 ---
 title: "Describes His Long Journey Through the Spirit Spheres"
 menu_title: ""
-description: "Describes His Long Journey Through the Spirit Spheres"
+description: "Louis XIV, received by Al Fike: “This dear soul saw me and recognised me earlier today. Believe me, the entrance to that place was hard won for me.”"
 date: 2025-11-02 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Stepping Forward in Service"
 menu_title: ""
-description: "Stepping Forward in Service"
+description: "Mylora, received by Al Fike: “Blessings of God’s Love be with you, my beloved friends. Do you not see this within you, this soul that you carry that is …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

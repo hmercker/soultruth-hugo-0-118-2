@@ -1,5 +1,6 @@
 ---
 title: "Encourages Us to Take Action"
+description: "Received by Al Fike: “I want to encourage you to be proactive in your lives. For life is but a series of choices and a series of opportunities.”"
 menu_title: "Alec Gaunt Encourages Us to Take Action"
 date: 2024-11-19 07:21:03+11:00
 draft: False

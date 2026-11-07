@@ -1,7 +1,7 @@
 ---
 title: "Feel the Joy of Communing"
 menu_title: ""
-description: "Feel the Joy of Communing"
+description: "Goldie, received by Al Fike: “How happy we are that you are together, beloved souls, and that more are coming. I want you to know that we are making it …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Changes You Can Expect to See"
 menu_title: ""
-description: "Changes You Can Expect to See"
+description: "Joan of Arc, received by Elizabeth Mack: “Dear children, God is transforming this Earth and many of the souls upon it. From this, you will see many …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "You Each Add a Dimension that None Other Brings When You Pray Together"
 menu_title: ""
-description: "You Each Add a Dimension that None Other Brings When You Pray Together"
+description: "Augustine, received by Al Fike: “There is a quality and substance to your prayers when you are together like this. It creates a light around you and …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

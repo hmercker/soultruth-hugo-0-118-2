@@ -1,7 +1,7 @@
 ---
 title: "God's Love is Becoming the Dominant Influence in Your Lives"
 menu_title: ""
-description: "God's Love is Becoming the Dominant Influence in Your Lives"
+description: "Keea Atta Kem, received by Al Fike: “As the flowers bloom and life springs forth from your Earth, may the ardour of your soul be felt and known to you, the …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

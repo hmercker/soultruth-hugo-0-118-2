@@ -1,7 +1,7 @@
 ﻿---
 title: "Attribute of Joy"
 menu_title: ""
-description: "Attribute of Joy"
+description: "Goldie, received by Maureen Cardoso: “The expression of the soul that is imbued with God's Love grows in its awareness, its development and its capacity to …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

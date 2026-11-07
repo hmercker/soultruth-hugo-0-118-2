@@ -1,7 +1,7 @@
 ﻿---
 title: "Move in the World"
 menu_title: ""
-description: "Move in the World"
+description: "Goldie, received by Al Fike: “So, you see the healing waters did heal and then God and His joyful tears blessed you with the rain.”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

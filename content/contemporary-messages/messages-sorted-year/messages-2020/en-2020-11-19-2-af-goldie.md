@@ -1,7 +1,7 @@
 ---
 title: "All is in God's Hands"
 menu_title: ""
-description: "All is in God's Hands"
+description: "Goldie, received by Al Fike: “Do you think you're trying a little too hard, my friends? To be that perfect idealized soul of God?”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

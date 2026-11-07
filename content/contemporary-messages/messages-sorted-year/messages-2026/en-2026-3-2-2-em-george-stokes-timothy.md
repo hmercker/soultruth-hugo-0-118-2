@@ -1,7 +1,7 @@
 ﻿---
 title: "A Gift of Communication"
 menu_title: ""
-description: "A Gift of Communication"
+description: "George Stokes & Timothy, received by Elizabeth Mack: “George Stokes: I am here now. Timothy: I am your beloved brother, Timothy, from another planet, far …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

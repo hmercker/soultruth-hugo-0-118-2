@@ -1,7 +1,7 @@
 ---
 title: "Blessed Are the Children"
 menu_title: ""
-description: "Blessed Are the Children"
+description: "Goldie, received by Al Fike: “(song) Blessed are the children, blessed are the children in love, blessed are the children, blessed are the children …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Agents of Light: Walking in the Grace of God"
 menu_title: ""
-description: "Agents of Light: Walking in the Grace of God"
+description: "Jesus, received by Al Fike: “May the joy of His Love be yours, my beloveds. We are together in this great effort and prayer to bring light into your souls …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

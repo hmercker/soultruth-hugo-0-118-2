@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Jesus, received by Al Fike: “You shall be a channel of God’s Love wherever you go with each day that comes upon your journeys.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

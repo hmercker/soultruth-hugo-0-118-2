@@ -1,7 +1,7 @@
 ---
 title: "Use the Gift of Free Will to Pray for Healing"
 menu_title: ""
-description: "Use the Gift of Free Will to Pray for Healing"
+description: "Lotus Blossom, received by Maureen Cardoso: “I guide this dear instrument for she has a gift of healing and I am one of her healing guides that resides in …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

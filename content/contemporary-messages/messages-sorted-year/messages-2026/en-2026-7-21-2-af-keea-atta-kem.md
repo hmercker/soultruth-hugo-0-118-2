@@ -1,7 +1,7 @@
 ﻿---
 title: "God Uses Every Opportunity to Bless Others"
 menu_title: ""
-description: "God Uses Every Opportunity to Bless Others"
+description: "Keea Atta Kem, received by Al Fike: “In the days ahead, we will be using you extensively as instruments, channels of blessings for all those whom you will …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

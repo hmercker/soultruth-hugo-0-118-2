@@ -1,7 +1,7 @@
 ---
 title: "Rest Upon Your Laurels and Take a Break"
 menu_title: ""
-description: "Rest Upon Your Laurels and Take a Break"
+description: "Professor Salyards, received by Al Fike: “You have all done well, my friends, I am Professor Salyards. I would recommend that you take a break because I …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "The barriers within us caused by the conflict of our minds and souls"
 menu_title: ""
-description: "The barriers within us caused by the conflict of our minds and souls"
+description: "Orion, received by Al Fike: “May the blessings of God’s Love continue to flow into your souls and awaken you as it must.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "As Your Souls Awaken So You Will Come to Know Your True Selves"
 menu_title: ""
-description: "As Your Souls Awaken So You Will Come to Know Your True Selves"
+description: "Seretta Kem, received by Al Fike: “For it is important that you recognise consciously the journey that you are on and that you have enthusiasm and desire …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

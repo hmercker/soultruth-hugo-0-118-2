@@ -1,7 +1,7 @@
 ---
 title: "Goldie’s Gift"
 menu_title: ""
-description: "Goldie’s Gift"
+description: "Received by Al Fike: “I want you each to know that I have come to each one of you as you prayed today and I brought a flower to each one of you to signify …”"
 date: 2020-06-24 08:10:01+11:00
 draft: False
 hidden: True

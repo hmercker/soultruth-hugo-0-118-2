@@ -1,7 +1,7 @@
 ﻿---
 title: "You Each Choose Your Soul’s Journey"
 menu_title: ""
-description: "You Each Choose Your Soul’s Journey"
+description: "Augustine, received by Al Fike: “May your souls open wide to the inflowing of God's Love so that you may be awakened more fully to the Truth and reality of …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

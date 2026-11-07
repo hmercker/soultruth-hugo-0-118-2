@@ -1,7 +1,7 @@
 ---
 title: "Expressing the Love within the Soul is Acting in Harmony"
 menu_title: ""
-description: "Expressing the Love within the Soul is Acting in Harmony"
+description: "Keea Atta Kem, received by Maureen Cardoso: “You desire a transformation of your soul, and I am here to say that this is well underway.”"
 date: 2025-06-24T00:00:00Z
 draft: False
 hidden: True

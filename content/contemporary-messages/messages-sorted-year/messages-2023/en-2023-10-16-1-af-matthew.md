@@ -1,7 +1,7 @@
 ---
 title: "Encourages Us to Create More Circles of Light in the World"
 menu_title: ""
-description: "Encourages Us to Create More Circles of Light in the World"
+description: "Matthew, received by Al Fike: “Where brothers and sisters may come together and pray, be accepted, be embraced though they may have different cultures …”"
 date: 2025-07-01 07:21:03+00:00
 draft: False
 hidden: True

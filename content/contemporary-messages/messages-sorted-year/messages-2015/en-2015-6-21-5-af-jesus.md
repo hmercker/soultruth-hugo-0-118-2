@@ -1,7 +1,7 @@
 ﻿---
 title: "Be my Disciples; Walk this Path of Love together"
 menu_title: ""
-description: "Be my Disciples; Walk this Path of Love together"
+description: "Jesus, received by Al Fike: “Seek your Heavenly Father. Seek your Heavenly Father often.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

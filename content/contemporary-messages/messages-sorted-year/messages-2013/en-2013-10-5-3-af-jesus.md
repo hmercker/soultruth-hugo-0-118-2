@@ -1,7 +1,7 @@
 ﻿---
 title: "Will you bathe with me in God’s Love?"
 menu_title: ""
-description: "Will you bathe with me in God’s Love?"
+description: "Jesus, received by Al Fike: “We are now in an ocean of God’s Love, my children. Shall we swim within this ocean of Love?”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

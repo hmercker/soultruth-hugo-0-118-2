@@ -1,7 +1,7 @@
 ---
 title: "Opportunities to Serve are Coming to Us All"
 menu_title: ""
-description: "Opportunities to Serve are Coming to Us All"
+description: "Seretta Kem, received by Al Fike: “The floodgates are opening and many opportunities are coming to each of you to bring the Truth of God’s Love into the world.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Allow souls to come without concern of their beliefs"
 menu_title: ""
-description: "Allow souls to come without concern of their beliefs"
+description: "Michael Collier, received by Al Fike: “Your work has been accomplished here, my friends. As you have travelled the lands of this country to the dear souls …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

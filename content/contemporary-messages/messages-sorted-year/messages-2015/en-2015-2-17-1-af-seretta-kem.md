@@ -1,7 +1,7 @@
 ﻿---
 title: "Great Blessing is a great Balancer of your Bodies and Spirits, Minds and Emotions as this Love flows in"
 menu_title: ""
-description: "Great Blessing is a great Balancer of your Bodies and Spirits, Minds and Emotions as this Love flows in"
+description: "Seretta Kem, received by Al Fike: “May your souls continue to flourish in the Love for in this, great blessing is a great balancer of your bodies and …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

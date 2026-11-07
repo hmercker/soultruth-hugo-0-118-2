@@ -1,7 +1,7 @@
 ---
 title: "The Divine Love is the Greatest of All Laws"
 menu_title: ""
-description: "The Divine Love is the Greatest of All Laws"
+description: "Moses, received by Elizabeth Mack: “I too, come to wish you a Happy Rosh Hashanah. My brother and I (Israel ben Eliezer/Ba’al Shem Tov) we share the same …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

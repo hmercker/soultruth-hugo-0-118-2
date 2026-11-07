@@ -1,7 +1,7 @@
 ---
 title: "Teaching the Spirits"
 menu_title: ""
-description: "Teaching the Spirits"
+description: "George Stokes & Mary, received by Elizabeth Mack: “George: I am with you now. But you may be uplifted at all times, if you so choose.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

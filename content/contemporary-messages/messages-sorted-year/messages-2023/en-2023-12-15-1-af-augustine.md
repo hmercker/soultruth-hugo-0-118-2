@@ -1,7 +1,7 @@
 ﻿---
 title: "God’s Love is Unlimited"
 menu_title: ""
-description: "God’s Love is Unlimited"
+description: "Augustine, received by Al Fike: “The universe is filled with love, my friends. Never limit God’s capacity to love, for you have no idea, no possibility of …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

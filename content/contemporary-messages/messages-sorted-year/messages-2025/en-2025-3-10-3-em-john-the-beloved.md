@@ -1,7 +1,7 @@
 ---
 title: "It Is Always the Love"
 menu_title: ""
-description: "It Is Always the Love"
+description: "John the Beloved, received by Elizabeth Mack: “I bring with me a host of Celestial Angels and spirits in the higher spiritual realms. We come because you …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Work together in Love"
 menu_title: ""
-description: "Work together in Love"
+description: "Augustine, received by Al Fike: “Each day another piece of the puzzle and we have given you a clear picture of what you must do.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

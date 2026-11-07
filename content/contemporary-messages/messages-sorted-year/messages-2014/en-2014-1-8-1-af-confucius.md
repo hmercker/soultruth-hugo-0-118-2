@@ -1,7 +1,7 @@
 ﻿---
 title: "To walk the Path of Truth"
 menu_title: ""
-description: "To walk the Path of Truth"
+description: "Confucius, received by Al Fike: “Do you not come away from your gathering refreshed? And renewed dedication I hear from you all, to walk the path of truth …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Your Souls Are Thirsting for God’s Love"
 menu_title: ""
-description: "Your Souls Are Thirsting for God’s Love"
+description: "John the Beloved, received by Elizabeth Mack: “I encourage you, each and every one, to drink up this Love, this Love that awakens you and enlivens you …”"
 date: 2025-07-04 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Guidance for Estonia"
 menu_title: ""
-description: "Guidance for Estonia"
+description: "Augustine, received by Al Fike: “I urge you to open your minds to the universe of possibilities. This time together is indeed precious and rife with …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

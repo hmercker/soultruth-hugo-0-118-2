@@ -1,7 +1,7 @@
 ---
 title: "Guidance on New Book"
 menu_title: ""
-description: "Guidance on New Book"
+description: "Martin Luther, received by Al Fike: “I have been put in charge of your efforts to bring forth the messages of the angels, with clarity and power, to bring …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

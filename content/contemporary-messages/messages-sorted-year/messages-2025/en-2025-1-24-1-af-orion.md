@@ -1,7 +1,7 @@
 ---
 title: "Describes Increasing Darkness of Energetic Thought Conditions of Humanity Circulating in Our World"
 menu_title: ""
-description: "Describes Increasing Darkness of Energetic Thought Conditions of Humanity Circulating in Our World"
+description: "Orion, received by Al Fike: “Your world's energetic condition is often like seeing weather flowing around your planet. The thought conditions of humanity …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

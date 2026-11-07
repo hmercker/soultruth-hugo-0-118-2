@@ -1,7 +1,7 @@
 ---
 title: "This Entire Journey Together Will Test You"
 menu_title: ""
-description: "This Entire Journey Together Will Test You"
+description: "Augustine, received by Al Fike: “I have spent many, many years with all of you, helping you to understand the Truths of God’s Love, helping you to …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

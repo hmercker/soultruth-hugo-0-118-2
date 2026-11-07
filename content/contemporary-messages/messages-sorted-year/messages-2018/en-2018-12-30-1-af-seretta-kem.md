@@ -1,7 +1,7 @@
 ﻿---
 title: "Meet The Coming Changes In The world With Prayer"
 menu_title: ""
-description: "Meet The Coming Changes In The world With Prayer"
+description: "Seretta Kem, received by Al Fike: “Yet, so many now do not feel any joy or recognition of this time of acknowledgment and this saddens us to see that the …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

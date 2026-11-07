@@ -1,7 +1,7 @@
 ---
 title: "A Welcome to This Circle"
 menu_title: ""
-description: "A Welcome to This Circle"
+description: "John the Beloved, received by Elizabeth Mack: “To those of you who know the Father’s Love, open wide and receive more of this blessing into your souls.”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

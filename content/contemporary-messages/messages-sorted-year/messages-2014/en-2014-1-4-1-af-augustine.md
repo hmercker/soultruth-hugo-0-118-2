@@ -1,7 +1,7 @@
 ﻿---
 title: "It is time to offer Solutions to these great and timeless Dilemmas"
 menu_title: ""
-description: "It is time to offer Solutions to these great and timeless Dilemmas"
+description: "Augustine, received by Al Fike: “Here is Augustine, Bishop of Hippo. Much guidance will be imparted to you in the coming days, for the time grows short for …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

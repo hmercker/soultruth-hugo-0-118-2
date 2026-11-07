@@ -1,7 +1,7 @@
 ---
 title: "The Lamp of Truth"
 menu_title: ""
-description: "The Lamp of Truth"
+description: "Mary Magdalene, received by Al Fike: “I bring the Lamp of Truth into your midst, carrying the Love of God which is resplendent in Truth.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

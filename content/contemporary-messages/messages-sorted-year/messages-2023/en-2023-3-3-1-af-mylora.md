@@ -1,7 +1,7 @@
 ---
 title: "Open Yourself to God's Pure Living Waters"
 menu_title: ""
-description: "Open Yourself to God's Pure Living Waters"
+description: "Mylora, received by Al Fike: “They are the blessings of God’s Essence, the flow of His Love continuing to push aside all the obstructions, all that which …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

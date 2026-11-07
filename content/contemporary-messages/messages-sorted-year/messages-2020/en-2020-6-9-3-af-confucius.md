@@ -1,7 +1,7 @@
 ---
 title: "All upon a Path that brings Truth"
 menu_title: ""
-description: "All upon a Path that brings Truth"
+description: "Confucius, received by Al Fike: “And yes, we all look to our beloved and beautiful Master Jesus, who has shown us all the way to this Great Love, and will …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Closing Message for Retreat"
 menu_title: ""
-description: "Closing Message for Retreat"
+description: "Jesus, received by Al Fike: “We thank you for your efforts, for you have made great progress. Progress that we have desired to make in the world for …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Be Brave, Prayerful and Aware at This Important Turning Point for the World"
 menu_title: ""
-description: "Be Brave, Prayerful and Aware at This Important Turning Point for the World"
+description: "Orion, received by Al Fike: “May the blessings of this universal Love be yours. The Essence of God's Soul is available to all souls in the universe.”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

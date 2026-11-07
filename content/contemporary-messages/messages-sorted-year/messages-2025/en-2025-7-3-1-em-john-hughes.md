@@ -1,7 +1,7 @@
 ---
 title: "The Veil"
 menu_title: ""
-description: "The Veil"
+description: "John Hughes, received by Elizabeth Mack: “I desire to speak to you about the veil and the separation that it places between those of you in the flesh and …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

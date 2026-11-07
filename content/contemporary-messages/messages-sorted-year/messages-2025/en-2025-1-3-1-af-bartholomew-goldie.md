@@ -1,7 +1,7 @@
 ---
 title: "Our Purpose in Barbados"
 menu_title: ""
-description: "Our Purpose in Barbados"
+description: "Bartholomew, received by Al Fike: “As my dear brother says, there is no time to waste. Indeed, as you come together, dedicated and gifted souls that you …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

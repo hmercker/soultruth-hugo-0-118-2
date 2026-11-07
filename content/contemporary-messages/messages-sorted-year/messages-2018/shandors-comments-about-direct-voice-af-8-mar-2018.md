@@ -1,7 +1,7 @@
 ---
 title: "Shandor’s Comments about Direct Voice"
 menu_title: ""
-description: "Shandor’s Comments about Direct Voice"
+description: "Received by Al Fike: “Al: I think that they were very surprised and impressed a little that without the development that his civilization has gone though …”"
 date: 2020-05-19 07:20:28+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Reach and Receive the Great Blessing of Divine Love"
 menu_title: ""
-description: "Reach and Receive the Great Blessing of Divine Love"
+description: "Keea Atta Kem, received by Maureen Cardoso: “For when you gather in circles such as you are, a great light is seen far up into the Celestial Heavens where …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

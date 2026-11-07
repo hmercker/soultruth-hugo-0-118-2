@@ -1,7 +1,7 @@
 ---
 title: "Guidance for Coming Earth Changes"
 menu_title: ""
-description: "Guidance for Coming Earth Changes"
+description: "Andrew, received by Al Fike: “You are having important conversations regarding your future, seeking to do God's Will, also seeking to prepare yourselves …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

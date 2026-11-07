@@ -1,7 +1,7 @@
 ﻿---
 title: "What Holds You Back from Fulfilling Your Soul's Purpose?"
 menu_title: ""
-description: "What Holds You Back from Fulfilling Your Soul's Purpose?"
+description: "Andrew, received by Al Fike: “Oh, there are so many conditions in the world that are preventing God's blessings to come to every soul that inhabits it, so …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

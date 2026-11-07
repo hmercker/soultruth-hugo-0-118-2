@@ -1,7 +1,7 @@
 ﻿---
 title: "Seek and you shall find"
 menu_title: ""
-description: "Seek and you shall find"
+description: "Andrew, received by Al Fike: “And as you go to that place of communion with God, this will be an abiding comfort and place of respite and healing and joy.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

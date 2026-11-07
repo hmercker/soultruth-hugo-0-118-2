@@ -1,7 +1,7 @@
 ---
 title: "Continue Your Prayer Practice"
 menu_title: ""
-description: "Continue Your Prayer Practice"
+description: "Keea Atta Kem, received by Maureen Cardoso: “As dear Seretta Kem had indicated, this time that you have been together has given us a great opportunity to …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

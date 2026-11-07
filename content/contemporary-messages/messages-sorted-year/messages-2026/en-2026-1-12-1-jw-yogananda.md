@@ -1,7 +1,7 @@
 ---
 title: "Spiritual Magnetism"
 menu_title: ""
-description: "Spiritual Magnetism"
+description: "Yogananda, received by Jimbeau Walsh: “I have said, both on earth and from the spirit world, and I shall say again, the purpose of life is to find God, and …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

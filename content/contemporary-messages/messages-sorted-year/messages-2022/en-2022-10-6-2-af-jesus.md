@@ -1,7 +1,7 @@
 ---
 title: "Something Special from Jesus"
 menu_title: ""
-description: "Something Special from Jesus"
+description: "Jesus, received by Al Fike: “May the Father's Love continue to inflow into your souls. Indeed, as you earnestly pray for this gift from God and all that …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

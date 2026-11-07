@@ -1,7 +1,7 @@
 ﻿---
 title: "How your Soul is changed by the Divine Love"
 menu_title: ""
-description: "How your Soul is changed by the Divine Love"
+description: "Confucius, received by Al Fike: “May you be open and yearning from the very depths of your souls for this gift, this transformative gift that will make you …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

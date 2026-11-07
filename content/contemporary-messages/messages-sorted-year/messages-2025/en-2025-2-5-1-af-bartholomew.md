@@ -1,7 +1,7 @@
 ---
 title: "Prayers to be Used in Service Provide Opportunities for Growth and Learning"
 menu_title: ""
-description: "Prayers to be Used in Service Provide Opportunities for Growth and Learning"
+description: "Bartholomew, received by Al Fike: “May the blessings of the Heavenly Father touch you deeply, beloved souls. Thank you, dear daughter, for your prayer and …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

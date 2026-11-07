@@ -1,7 +1,7 @@
 ---
 title: "Describes the Benefits of Breathing"
 menu_title: ""
-description: "Describes the Benefits of Breathing"
+description: "Lotus Blossom, received by Maureen Cardoso: “You have been told that we have been working with you on the nervous system, helping your physical bodies to …”"
 date: 2025-06-18 07:21:03+0:00
 draft: False
 hidden: True

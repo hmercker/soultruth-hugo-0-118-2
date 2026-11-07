@@ -1,7 +1,7 @@
 ---
 title: "God Gives All to Assist Us on Our Spiritual Journey"
 menu_title: ""
-description: "God Gives All to Assist Us on Our Spiritual Journey"
+description: "Andrew, received by Al Fike: “The Breath of God is upon you, beloved souls, I am Andrew. He envelopes you in His Peace, the peace that passes all …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

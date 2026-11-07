@@ -1,7 +1,7 @@
 ---
 title: "Have faith over fear as conditions change in the world"
 menu_title: ""
-description: "Have faith over fear as conditions change in the world"
+description: "Augustine, received by Al Fike: “May the peace that passes all understanding be yours, beloved souls. May you come to the Father with open hearts and open …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

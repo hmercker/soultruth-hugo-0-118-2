@@ -1,7 +1,7 @@
 ﻿---
 title: "Release That Which is Misaligned"
 menu_title: ""
-description: "Release That Which is Misaligned"
+description: "Faith Nyquist, received by Maureen Cardoso: “We meet in a place that is elevated, in love, in peace, in acceptance, with a desire to grow, a desire to …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

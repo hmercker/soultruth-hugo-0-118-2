@@ -1,7 +1,7 @@
 ﻿---
 title: "When You Find Yourself Out of Balance, Take a Moment to Return to the Peace of the Soul"
 menu_title: ""
-description: "When You Find Yourself Out of Balance, Take a Moment to Return to the Peace of the Soul"
+description: "Mary, received by Maureen Cardoso: “I encourage you to be at peace, to allow peace to reign over your life and to live a life of peace.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

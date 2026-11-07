@@ -1,7 +1,7 @@
 ﻿---
 title: "Go within in order to hear the still quiet Voice"
 menu_title: ""
-description: "Go within in order to hear the still quiet Voice"
+description: "Alec Gaunt, received by Al Fike: “You have all that you require, my beloved friends, to do this work. You have that Light within your souls, the Divine …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Fishing for Souls in Puenta Delgado"
 menu_title: ""
-description: "Fishing for Souls in Puenta Delgado"
+description: "Peter, received by Elizabeth Mack: “(I am Peter.) I come forth to tell you that there are many, many who are seeking upon this land.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

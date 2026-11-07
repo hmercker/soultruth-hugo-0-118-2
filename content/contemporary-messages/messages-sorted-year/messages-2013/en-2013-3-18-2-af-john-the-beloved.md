@@ -1,7 +1,7 @@
 ﻿---
 title: "Continue to walk the Path Divine"
 menu_title: ""
-description: "Continue to walk the Path Divine"
+description: "John the Beloved, received by Al Fike: “Oh, precious souls of the Father’s Love. And yes, as you come together in this way, the Father touches you and …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

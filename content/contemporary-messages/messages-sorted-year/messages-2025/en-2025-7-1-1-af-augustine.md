@@ -1,7 +1,7 @@
 ---
 title: "Stand Fast in God's Love!"
 menu_title: ""
-description: "Stand Fast in God's Love!"
+description: "Augustine, received by Al Fike: “Stand fast, my beloved students. Be in the Truth of God's Love every moment of your life.”"
 date: 2025-07-29 07:21:03+00:00
 draft: False
 hidden: True

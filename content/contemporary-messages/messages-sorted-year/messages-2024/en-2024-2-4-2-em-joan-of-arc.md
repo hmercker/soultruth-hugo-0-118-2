@@ -1,7 +1,7 @@
 ---
 title: "We Are So Ready and Willing to Assist You in Expressing Your Gifts"
 menu_title: ""
-description: "We Are So Ready and Willing to Assist You in Expressing Your Gifts"
+description: "Joan of Arc, received by Elizabeth Mack: “We all join you in prayer, giving our love to our Heavenly Father, committing ourselves to do His will in …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "God’s Blessing Delivered"
 menu_title: ""
-description: "God’s Blessing Delivered"
+description: "John the Beloved & Jesus, received by Elizabeth Mack: “So we thank you for your prayer. Open completely, dear ones.”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

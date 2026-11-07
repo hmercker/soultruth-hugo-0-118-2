@@ -1,7 +1,7 @@
 ﻿---
 title: "You are all Members of a Family"
 menu_title: ""
-description: "You are all Members of a Family"
+description: "Confucius, received by Al Fike: “Every gathering has great potential to bring spiritual truth, to bring great blessings to the soul and to the mind.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

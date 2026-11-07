@@ -1,7 +1,7 @@
 ---
 title: "Keep Your Eyes Focused Upon God"
 menu_title: ""
-description: "Keep Your Eyes Focused Upon God"
+description: "John the Beloved & Mary, received by Elizabeth Mack: “I walk with you each day, children. I talk with you and some of you listen.”"
 date: 2025-07-20 07:21:03+11:00
 draft: False
 hidden: True

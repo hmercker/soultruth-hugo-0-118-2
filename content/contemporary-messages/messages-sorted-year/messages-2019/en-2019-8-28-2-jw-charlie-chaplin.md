@@ -1,7 +1,7 @@
 ---
 title: "Living with Joy"
 menu_title: ""
-description: "Living with Joy"
+description: "Charlie Chaplin, received by Jimbeau Walsh: “I got this one in stitches this morning, yeah. He recorded a song the other day for children.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

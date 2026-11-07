@@ -1,7 +1,7 @@
 ---
 title: "Reassurement that Spirit is Working to Heal our Bodies"
 menu_title: ""
-description: "Reassurement that Spirit is Working to Heal our Bodies"
+description: "Lotus Blossom, received by Maureen Cardoso: “Many of you know that I am this precious instrument’s guide, one of the many that work with her and through …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

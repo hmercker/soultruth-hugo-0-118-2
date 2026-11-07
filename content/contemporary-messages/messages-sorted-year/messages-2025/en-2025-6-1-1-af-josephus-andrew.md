@@ -1,7 +1,7 @@
 ---
 title: "The Power of Prayer"
 menu_title: ""
-description: "The Power of Prayer"
+description: "Josephus & Andrew, received by Al Fike: “Josephus: Blessings to you, dear son. Your heartfelt prayer is known by God.”"
 date: 2025-07-22 07:21:03+00:00
 draft: False
 hidden: True

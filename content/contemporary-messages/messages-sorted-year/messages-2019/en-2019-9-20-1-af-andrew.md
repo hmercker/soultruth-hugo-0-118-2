@@ -1,7 +1,7 @@
 ---
 title: "Awaken to the Call"
 menu_title: ""
-description: "Awaken to the Call"
+description: "Andrew, received by Al Fike: “The world still continues to need your prayers. So I ask you, when you take time in prayer to pray for the world, to pray for …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

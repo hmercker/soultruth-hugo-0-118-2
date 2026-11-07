@@ -1,7 +1,7 @@
 ---
 title: "Allow Yourself to be Guided"
 menu_title: ""
-description: "Allow Yourself to be Guided"
+description: "Mark, received by Al Fike: “May the mantel of peace be upon you, beloveds, and His Love find a constant inflowing into your souls.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

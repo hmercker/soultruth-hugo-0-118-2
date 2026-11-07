@@ -1,7 +1,7 @@
 ﻿---
 title: "Discover all the beautiful Flowers that grow from your Soul"
 menu_title: ""
-description: "Discover all the beautiful Flowers that grow from your Soul"
+description: "Goldie, received by Al Fike: “Do you not see all the new life springing up from the ground, and do you not relate this to your soul where there is new life …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

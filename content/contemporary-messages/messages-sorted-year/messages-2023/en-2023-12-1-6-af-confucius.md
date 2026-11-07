@@ -1,7 +1,7 @@
 ---
 title: "Rise Above the Corruption of the World"
 menu_title: ""
-description: "Rise Above the Corruption of the World"
+description: "Confucius, received by Al Fike: “We thank you for your gentle respect toward our efforts together. How important it is to have harmony and to coordinate …”"
 date: 2025-07-01 07:21:03+00:00
 draft: False
 hidden: True

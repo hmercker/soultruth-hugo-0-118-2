@@ -1,7 +1,7 @@
 ---
 title: "Eat Ice Cream to Celebrate God's Love!"
 menu_title: ""
-description: "Eat Ice Cream to Celebrate God's Love!"
+description: "Goldie, received by Al Fike: “Make sure you have ice cream in your gathering for I hear that that makes people happy. In all seriousness, the ice cream of …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

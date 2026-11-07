@@ -1,7 +1,7 @@
 ﻿---
 title: "The Power of Prayer"
 menu_title: ""
-description: "The Power of Prayer"
+description: "Abdullah Latif, received by Al Fike: “And I wish to tell you that God is everywhere. His blessings are available to every soul who seek these blessings.”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

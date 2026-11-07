@@ -1,7 +1,7 @@
 ---
 title: "Calls Us All to Serve God"
 menu_title: ""
-description: "Calls Us All to Serve God"
+description: "Eileen Caddy, received by Al Fike: “And I come because my dear friend (J) is with us in your circle. I continue to make my journey to at-onement with God.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

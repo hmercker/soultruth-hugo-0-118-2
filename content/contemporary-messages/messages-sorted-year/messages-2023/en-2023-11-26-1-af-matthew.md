@@ -1,7 +1,7 @@
 ﻿---
 title: "Comes to Reinforce the Desires of Our Souls"
 menu_title: ""
-description: "Comes to Reinforce the Desires of Our Souls"
+description: "Matthew, received by Al Fike: “The Love of God pours upon you at this very moment, beloved souls. To help reinforce the desires of your soul to be with God.”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

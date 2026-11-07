@@ -1,7 +1,7 @@
 ﻿---
 title: "Unite through Love"
 menu_title: ""
-description: "Unite through Love"
+description: "Father, received by Helge Mercker: “My child, it is your Father, The Love that shines through each one of you should be unified/united forming a sun of my …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

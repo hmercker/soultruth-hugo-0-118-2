@@ -1,7 +1,7 @@
 ---
 title: "The Challenges of Being Soulful in a Mindful World"
 menu_title: ""
-description: "The Challenges of Being Soulful in a Mindful World"
+description: "Professor Salyards, received by Al Fike: “Indeed, upon looking at these symbols that you have shown it is interesting that this interpretation reflects …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

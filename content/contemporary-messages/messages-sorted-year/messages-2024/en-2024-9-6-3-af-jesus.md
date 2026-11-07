@@ -1,7 +1,7 @@
 ---
 title: "Opens and Blesses Lansing Retreat"
 menu_title: ""
-description: "Opens and Blesses Lansing Retreat"
+description: "Jesus, received by Al Fike: “My brothers and my sisters, know that you are travelling a path that is of the highest, the deepest blessings.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

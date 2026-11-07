@@ -1,7 +1,7 @@
 ---
 title: "Serve All in the Divine Love and the Natural Love and Help each other in the Community"
 menu_title: ""
-description: "Serve All in the Divine Love and the Natural Love and Help each other in the Community"
+description: "Judas, received by Jimbeau Walsh: “Brothers and sisters may the love of God be upon us. There is much to be said about healing, which is a form of service …”"
 date: 2025-08-28 07:21:03+00:00
 draft: False
 hidden: True

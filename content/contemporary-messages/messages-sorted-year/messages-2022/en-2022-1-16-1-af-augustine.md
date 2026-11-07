@@ -1,7 +1,7 @@
 ---
 title: "God is Knocking at the Door of Your Soul"
 menu_title: ""
-description: "God is Knocking at the Door of Your Soul"
+description: "Augustine, received by Al Fike: “May the peace that passes all understanding be a mantle upon each one of you, beloved children.”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

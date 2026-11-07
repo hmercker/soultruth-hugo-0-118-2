@@ -1,7 +1,7 @@
 ---
 title: "Come Closer to Your Celestial Angel Guide"
 menu_title: ""
-description: "Come Closer to Your Celestial Angel Guide"
+description: "Joan of Arc, received by Elizabeth Mack: “These are your soul's desires. The soul has much wisdom and acknowledges the truth of your relationship with God …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

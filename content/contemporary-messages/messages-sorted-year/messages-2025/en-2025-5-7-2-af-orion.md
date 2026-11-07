@@ -1,7 +1,7 @@
 ---
 title: "God's Love is Available to Every Being in the Universe and Will Save Humanity"
 menu_title: ""
-description: "God's Love is Available to Every Being in the Universe and Will Save Humanity"
+description: "Orion, received by Al Fike: “You are blessed, my beloveds. Our desire is that everyone upon your planet might also follow suit and live in this way where …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

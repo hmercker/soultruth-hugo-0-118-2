@@ -1,7 +1,7 @@
 ---
 title: "United in Prayer, Transformed by Love"
 menu_title: ""
-description: "United in Prayer, Transformed by Love"
+description: "Jesus, received by Al Fike: “His desire is to ensure that you will enter into the Celestial Kingdom at some time in the future, as you grow and expand in …”"
 date: 2025-09-01 07:21:03+00:00
 draft: False
 hidden: True

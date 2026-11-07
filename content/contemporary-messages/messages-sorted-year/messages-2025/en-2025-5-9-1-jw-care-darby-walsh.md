@@ -1,7 +1,7 @@
 ---
 title: "How to create Sanctuaries "
 menu_title: ""
-description: "How to create Sanctuaries "
+description: "Care Darby Walsh, received by Jimbeau Walsh: “In the garden of the earth, you have agreed to plant the seeds of divine truth, and as the parable goes, some …”"
 date: 2025-05-18 07:21:03+00:00
 draft: False
 hidden: True

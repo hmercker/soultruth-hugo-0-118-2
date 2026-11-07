@@ -1,7 +1,7 @@
 ---
 title: "We are Joyed You Come to Serve"
 menu_title: ""
-description: "We are Joyed You Come to Serve"
+description: "Jesus, received by Al Fike: “And so you see, my beloved, beloved brothers and sisters, that there are many in the world of spirit and the Celestial Heavens …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

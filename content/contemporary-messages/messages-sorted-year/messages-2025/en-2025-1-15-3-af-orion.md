@@ -1,7 +1,7 @@
 ---
 title: "Our Efforts in Service to God and the Angels are Crucial at this Time"
 menu_title: ""
-description: "Our Efforts in Service to God and the Angels are Crucial at this Time"
+description: "Orion, received by Al Fike: “Indeed, he and I have had conversations in sleep state conditions that have helped to answer his questions about the nature of …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

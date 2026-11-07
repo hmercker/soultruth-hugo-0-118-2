@@ -1,7 +1,7 @@
 ---
 title: "Portals of Light Have a Purpose"
 menu_title: ""
-description: "Portals of Light Have a Purpose"
+description: "Augustine, received by Al Fike: “You ask of the gift of a portal, beloved daughter, and I wish to say that this blessing is not merely given as a gift, but …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

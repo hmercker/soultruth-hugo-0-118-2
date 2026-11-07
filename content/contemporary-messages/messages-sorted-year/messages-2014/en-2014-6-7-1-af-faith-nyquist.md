@@ -1,7 +1,7 @@
 ﻿---
 title: "God will change the World"
 menu_title: ""
-description: "God will change the World"
+description: "Faith Nyquist, received by Al Fike: “I lived on the Earth not too long ago and I now live in the Celestial spheres because I know the truth of God’s Love …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

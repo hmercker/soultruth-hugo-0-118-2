@@ -1,7 +1,7 @@
 ---
 title: "Do Not Let the Material Conditions Distract You"
 menu_title: ""
-description: "Do Not Let the Material Conditions Distract You"
+description: "Jesus, received by Al Fike: “My prayer for you is that your souls may continue to open and flourish in the gift of the Father's Essence that is intended to …”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "The Key to Healing Humanity Is Divine Love and Not Human Endeavour"
 menu_title: ""
-description: "The Key to Healing Humanity Is Divine Love and Not Human Endeavour"
+description: "Aaron, received by Al Fike: “May the Love of God enter your souls and flow in great abundance, healing and changing you forever.”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

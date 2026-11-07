@@ -1,7 +1,7 @@
 ---
 title: "Magnificent Love"
 menu_title: ""
-description: "Magnificent Love"
+description: "Orion, received by Al Fike: “…our souls, indeed, this is what is required. Not once have I not joined you and been with you as are many dedicated souls …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

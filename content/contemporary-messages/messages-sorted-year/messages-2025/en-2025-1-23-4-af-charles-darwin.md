@@ -1,7 +1,7 @@
 ---
 title: "Affirms Michael Collier’s Message"
 menu_title: ""
-description: "Affirms Michael Collier’s Message"
+description: "Charles Darwin, received by Al Fike: “I merely affirm what our friend has said. I concur with his description about evolution.”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

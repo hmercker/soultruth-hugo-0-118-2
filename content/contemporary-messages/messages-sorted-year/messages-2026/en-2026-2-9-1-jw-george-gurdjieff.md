@@ -1,7 +1,7 @@
 ---
 title: "The Path is between you and God"
 menu_title: ""
-description: "The Path is between you and God"
+description: "George Gurdjieff, received by Jimbeau Walsh: “Let us revisit the spiritual seeker, who, underneath it all desires happiness, joy, and freedom, and may …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

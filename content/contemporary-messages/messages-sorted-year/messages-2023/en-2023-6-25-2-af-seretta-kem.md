@@ -1,7 +1,7 @@
 ---
 title: "With God, The Possibilities Are Endless"
 menu_title: ""
-description: "With God, The Possibilities Are Endless"
+description: "Seretta Kem, received by Al Fike: “As you come together, you are more attuned to one another, more loving, more accepting, allowing the flow of love to …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

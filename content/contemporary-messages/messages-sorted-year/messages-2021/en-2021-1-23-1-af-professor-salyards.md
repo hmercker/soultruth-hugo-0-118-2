@@ -1,7 +1,7 @@
 ---
 title: "You Are All Ready For This Next Step"
 menu_title: ""
-description: "You Are All Ready For This Next Step"
+description: "Professor Salyards, received by Al Fike: “Once again I've come to help to assure you and guide you upon these matters which you are concerned and continue …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

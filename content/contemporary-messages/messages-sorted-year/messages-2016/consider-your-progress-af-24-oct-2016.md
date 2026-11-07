@@ -1,7 +1,7 @@
 ---
 title: "Consider Your Progress"
 menu_title: ""
-description: "Consider Your Progress"
+description: "Received by Al Fike: “Oh, how you struggle with the human condition, the great challenges that you face in this world.”"
 date: 2016-05-29 22:02:46+00:00
 draft: False
 hidden: True

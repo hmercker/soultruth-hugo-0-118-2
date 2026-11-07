@@ -1,7 +1,7 @@
 ---
 title: "God Will Carry You Forth upon Beams of Light"
 menu_title: ""
-description: "God Will Carry You Forth upon Beams of Light"
+description: "Andrew, received by Al Fike: “May God’s blessings be upon you, beloved souls. God will gather you again and again in these Circles of Light, seeking to …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

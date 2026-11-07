@@ -1,7 +1,7 @@
 ﻿---
 title: "Prayer to God and Guidance on Serving as God’s Instrument"
 menu_title: ""
-description: "Prayer to God and Guidance on Serving as God’s Instrument"
+description: "Faith Nyquist, received by Al Fike: “I wish to thank this instrument for allowing me to come through. My ministry on Earth is not finished yet, for the …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

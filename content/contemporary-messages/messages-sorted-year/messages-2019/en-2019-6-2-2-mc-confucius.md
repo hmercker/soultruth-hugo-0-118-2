@@ -1,7 +1,7 @@
 ---
 title: "I Bring You My Gift of Healing"
 menu_title: ""
-description: "I Bring You My Gift of Healing"
+description: "Confucius, received by Maureen Cardoso: “Age of old, your friend Confucius is here. What a powerful yearning each of you have within your souls, longing …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

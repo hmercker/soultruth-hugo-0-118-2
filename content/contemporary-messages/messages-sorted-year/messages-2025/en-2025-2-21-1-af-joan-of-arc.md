@@ -1,7 +1,7 @@
 ---
 title: "The Force of God’s Love Steadies Your World"
 menu_title: ""
-description: "The Force of God’s Love Steadies Your World"
+description: "Joan of Arc, received by Al Fike: “No matter what might happen in your world, this physical place in which you live, indeed, it has been your prayer that …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

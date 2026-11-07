@@ -1,7 +1,7 @@
 ﻿---
 title: "Encourages all to bring the Truth of God’s Love forward"
 menu_title: ""
-description: "Encourages all to bring the Truth of God’s Love forward"
+description: "Andrew, received by Al Fike: “God has brought you together, my beloveds. He has orchestrated this time together.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

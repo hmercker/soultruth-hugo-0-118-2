@@ -1,7 +1,7 @@
 ﻿---
 title: "Many Opportunities for Joy and Service and Love"
 menu_title: ""
-description: "Many Opportunities for Joy and Service and Love"
+description: "Goldie, received by Al Fike: “Because God has favoured you so. Your lives are such blessings, filled with so many, many opportunities for joy and service …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

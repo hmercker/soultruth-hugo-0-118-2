@@ -1,7 +1,7 @@
 ﻿---
 title: "Be a Channel for God in Every Way that is Possible"
 menu_title: ""
-description: "Be a Channel for God in Every Way that is Possible"
+description: "Jesus, received by Al Fike: “Indeed, you do every time you pray, every time you gather in circles such as this, every time you walk through your door into …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

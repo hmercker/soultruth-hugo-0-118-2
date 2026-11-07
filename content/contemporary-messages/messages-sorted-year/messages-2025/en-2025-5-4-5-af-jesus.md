@@ -1,7 +1,7 @@
 ---
 title: "Please Help Bring the Truth to Ease the Pain of Humanity"
 menu_title: ""
-description: "Please Help Bring the Truth to Ease the Pain of Humanity"
+description: "Jesus, received by Al Fike: “There is too much suffering on your world, suffering that is needless, suffering that is created by disharmony and a lack of …”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

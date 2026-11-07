@@ -1,7 +1,7 @@
 ---
 title: "Transformation in Divine Love"
 menu_title: ""
-description: "Transformation in Divine Love"
+description: "Orion, received by Al Fike: “You are each progressing, my beloved friends. Each of you, in your own way, have overcome various hurdles and barriers.”"
 date: 2025-06-29 07:21:03+11:00
 draft: False
 hidden: True

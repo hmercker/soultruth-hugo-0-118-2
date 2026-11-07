@@ -1,7 +1,7 @@
 ---
 title: "You Must Know and Teach the Truth to Combat Widespread Error in the World"
 menu_title: ""
-description: "You Must Know and Teach the Truth to Combat Widespread Error in the World"
+description: "Jesus, received by Al Fike: “I came as a universal man who spoke a universal truth. As such, I am not an intermediary between you and God.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

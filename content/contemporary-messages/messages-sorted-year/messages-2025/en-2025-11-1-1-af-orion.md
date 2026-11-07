@@ -1,7 +1,7 @@
 ---
 title: "As You Progress, You Will Walk Comfortably in Both Mind and Soul"
 menu_title: ""
-description: "As You Progress, You Will Walk Comfortably in Both Mind and Soul"
+description: "Orion, received by Al Fike: “Your road continues to be paved in love, its way lit by God's blessings and Will. Each of you is obedient and eager to take …”"
 date: 2025-12-17 06:00:00+00:00
 draft: False
 hidden: True

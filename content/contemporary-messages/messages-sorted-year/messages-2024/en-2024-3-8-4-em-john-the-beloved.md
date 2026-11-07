@@ -1,7 +1,7 @@
 ---
 title: "Come to Know Your Own Abilities"
 menu_title: ""
-description: "Come to Know Your Own Abilities"
+description: "John the Beloved, received by Elizabeth Mack: “I will step forward to speak to this congregation of beautiful souls. You have such Love in your souls, as …”"
 date: 2025-07-20 07:21:03+11:00
 draft: False
 hidden: True

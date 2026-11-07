@@ -1,7 +1,7 @@
 ---
 title: "One Tribe in God’s Love"
 menu_title: ""
-description: "One Tribe in God’s Love"
+description: "White Eagle, received by Jimbeau Walsh: “May the grace of the Great Spirit be upon you all. In these troubled times, people look for safety, they look for …”"
 date: 2025-05-18 07:21:03+00:00
 draft: False
 hidden: True

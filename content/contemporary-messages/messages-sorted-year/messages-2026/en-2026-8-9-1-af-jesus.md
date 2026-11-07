@@ -1,7 +1,7 @@
 ﻿---
 title: "The Eternal Path of Soul Awakening"
 menu_title: ""
-description: "The Eternal Path of Soul Awakening"
+description: "Jesus, received by Al Fike: “The path eternal, my beloveds. There is only one path where the soul may indeed flourish for eternity.”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

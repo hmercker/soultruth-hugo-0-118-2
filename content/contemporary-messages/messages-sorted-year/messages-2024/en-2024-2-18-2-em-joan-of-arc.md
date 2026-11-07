@@ -1,7 +1,7 @@
 ---
 title: "Praying Together Brightens the World"
 menu_title: ""
-description: "Praying Together Brightens the World"
+description: "Joan of Arc, received by Elizabeth Mack: “We bring our love to you, you who are true children of God, you who are blessed with God's Love in your souls.”"
 date: 2025-07-20 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "We Believe in You"
 menu_title: ""
-description: "We Believe in You"
+description: "George Stokes, received by Elizabeth Mack: “You faithfully come to these circles. You faithfully put forward your prayer requests, knowing that the Father …”"
 date: 2025-07-22 07:21:03+00:00
 draft: False
 hidden: True

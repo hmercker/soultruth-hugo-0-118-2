@@ -1,7 +1,7 @@
 ﻿---
 title: "See beyond the superficial Creations of Mankind"
 menu_title: ""
-description: "See beyond the superficial Creations of Mankind"
+description: "Augustine, received by Al Fike: “The world needs you, my children. The world needs the light that you bring, the love that you bring, for below the surface …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "It is not a Reward; it is your Birthright"
 menu_title: ""
-description: "It is not a Reward; it is your Birthright"
+description: "Augustine, received by Al Fike: “Bless you for coming together to receive the Father’s Love, to beseech the Creator for this great blessing of Love.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

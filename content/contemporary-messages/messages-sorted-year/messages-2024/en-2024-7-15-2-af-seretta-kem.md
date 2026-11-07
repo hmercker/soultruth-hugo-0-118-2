@@ -1,7 +1,7 @@
 ---
 title: "Continue on in Your Service"
 menu_title: ""
-description: "Continue on in Your Service"
+description: "Seretta Kem, received by Al Fike: “As your lives become busier, your engagements more often, then I know it will be difficult for you to establish hard and …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

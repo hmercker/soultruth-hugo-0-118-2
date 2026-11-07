@@ -1,7 +1,7 @@
 ﻿---
 title: "What will you do...the Choice is yours to make"
 menu_title: ""
-description: "What will you do...the Choice is yours to make"
+description: "Augustine, received by Al Fike: “Your teacher Augustine here. What will you do, my beloveds?”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

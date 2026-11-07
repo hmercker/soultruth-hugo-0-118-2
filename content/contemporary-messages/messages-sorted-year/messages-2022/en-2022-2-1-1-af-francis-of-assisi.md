@@ -1,7 +1,7 @@
 ---
 title: "The Importance of our Circles"
 menu_title: ""
-description: "The Importance of our Circles"
+description: "Francis of Assisi, received by Al Fike: “For there are many others who fulfill this task. Yet we all come together in this Circle of Light to pray, to seek …”"
 date: 2025-06-26 07:21:03+00:00
 draft: False
 hidden: True

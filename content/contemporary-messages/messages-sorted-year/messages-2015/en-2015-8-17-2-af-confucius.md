@@ -1,7 +1,7 @@
 ﻿---
 title: "Sow Seeds of Love upon your Journey"
 menu_title: ""
-description: "Sow Seeds of Love upon your Journey"
+description: "Confucius, received by Al Fike: “Precious and beloved souls, I am Confucius and I come to greet you this morning with my love and to give you some guidance.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

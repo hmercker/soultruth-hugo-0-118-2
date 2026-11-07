@@ -1,7 +1,7 @@
 ﻿---
 title: "I too encountered Difficulty in Teaching this simple Truth"
 menu_title: ""
-description: "I too encountered Difficulty in Teaching this simple Truth"
+description: "Jesus, received by Al Fike: “Such a blessing for each one of you, such a blessing for this world to have this Light in the world as you come together in …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

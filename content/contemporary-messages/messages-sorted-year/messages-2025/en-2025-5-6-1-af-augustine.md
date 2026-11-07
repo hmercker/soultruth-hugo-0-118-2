@@ -1,7 +1,7 @@
 ---
 title: "The Depth and Breadth of God’s Love for You"
 menu_title: ""
-description: "The Depth and Breadth of God’s Love for You"
+description: "Augustine, received by Al Fike: “When God is made to be judgemental and people reflect this, then there is no avenue for an innocent soul to come to God …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

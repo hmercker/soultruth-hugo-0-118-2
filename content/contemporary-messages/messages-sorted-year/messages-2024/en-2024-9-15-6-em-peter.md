@@ -1,7 +1,7 @@
 ---
 title: "Blessing"
 menu_title: ""
-description: "Blessing"
+description: "Peter, received by Elizabeth Mack: “Take it with you as you leave this place. Arm yourself with this truth and together, with love, give all that you have …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

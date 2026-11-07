@@ -1,7 +1,7 @@
 ---
 title: "That great bridge of Light and Truth continues to be forged between you and God"
 menu_title: ""
-description: "That great bridge of Light and Truth continues to be forged between you and God"
+description: "Keea Atta Kem, received by Al Fike: “That great bridge of Light and Truth continues to be forged between you and God. And God continues to pour His …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

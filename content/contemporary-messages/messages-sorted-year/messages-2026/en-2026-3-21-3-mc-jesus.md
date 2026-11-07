@@ -1,7 +1,7 @@
 ﻿---
 title: "Comes to Help Us to Acknowledge Our Calling"
 menu_title: ""
-description: "Comes to Help Us to Acknowledge Our Calling"
+description: "Jesus, received by Maureen Cardoso: “I have been with you, each one, blessing you, helping with an opening in your soul, so that your longings that are …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

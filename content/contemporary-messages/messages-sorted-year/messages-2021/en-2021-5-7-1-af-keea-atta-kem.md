@@ -1,7 +1,7 @@
 ---
 title: "The sweet and refreshing breath of God is upon you"
 menu_title: ""
-description: "The sweet and refreshing breath of God is upon you"
+description: "Keea Atta Kem, received by Al Fike: “The sweet and refreshing breath of God is upon you, beloved souls, and so you have brought this beautiful blessing …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

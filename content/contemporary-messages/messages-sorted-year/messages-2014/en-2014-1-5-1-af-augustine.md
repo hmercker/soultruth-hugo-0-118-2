@@ -1,7 +1,7 @@
 ﻿---
 title: "With the physical Manifestations of Change will come Calamities and Disruptions"
 menu_title: ""
-description: "With the physical Manifestations of Change will come Calamities and Disruptions"
+description: "Augustine, received by Al Fike: “My students, it is your teacher, Augustine. Do you feel the upliftment that has been given to each one of you of late …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

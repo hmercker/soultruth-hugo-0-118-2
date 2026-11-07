@@ -1,7 +1,7 @@
 ---
 title: "It is Important to Remain Unified"
 menu_title: ""
-description: "It is Important to Remain Unified"
+description: "Seretta Kem, received by Al Fike: “It’s important that you remain unified, that you are, and have a sense that you are, a part of one another, and that in …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

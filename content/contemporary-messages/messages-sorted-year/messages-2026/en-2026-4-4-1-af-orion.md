@@ -1,7 +1,7 @@
 ﻿---
 title: "The Gift of a New World in God's Love"
 menu_title: ""
-description: "The Gift of a New World in God's Love"
+description: "Orion, received by Al Fike: “The power of this great Love is building within you, beloved souls. So few understand it and yet you have the clarity and the …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

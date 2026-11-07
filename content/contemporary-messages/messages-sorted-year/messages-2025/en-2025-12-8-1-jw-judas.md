@@ -1,7 +1,7 @@
 ---
 title: "The Meaning of Being in the World but not of it"
 menu_title: ""
-description: "The Meaning of Being in the World but not of it"
+description: "Judas, received by Jimbeau Walsh: “First and foremost, consider if you will, if even for a moment, worlds within worlds. Consider the multitude of …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

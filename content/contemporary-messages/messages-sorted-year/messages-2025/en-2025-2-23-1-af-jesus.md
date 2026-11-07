@@ -1,7 +1,7 @@
 ---
 title: "Intends to Demonstrate the Power of God’s Love for All to See"
 menu_title: ""
-description: "Intends to Demonstrate the Power of God’s Love for All to See"
+description: "Jesus, received by Al Fike: “May the Holy Spirit infill you with His Love in great abundance. May you know this blessing, this light upon you, for it is …”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

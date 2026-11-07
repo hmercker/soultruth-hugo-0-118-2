@@ -1,7 +1,7 @@
 ---
 title: "Beyond the Material: Discovering the Many Layers of God's Creation"
 menu_title: ""
-description: "Beyond the Material: Discovering the Many Layers of God's Creation"
+description: "Copernicus, received by Al Fike: “I continue to study the Earth, as I did when I walked this Earth of yours and viewed it. It saddens me that with all the …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

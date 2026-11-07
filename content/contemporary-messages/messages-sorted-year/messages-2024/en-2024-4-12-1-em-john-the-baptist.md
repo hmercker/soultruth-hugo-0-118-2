@@ -1,7 +1,7 @@
 ---
 title: "Within Jesus Was Something More Sacred"
 menu_title: ""
-description: "Within Jesus Was Something More Sacred"
+description: "John the Baptist, received by Elizabeth Mack: “Your prayers draw me close. Your intentions for this love for your brothers’ and sisters’ redemption brings …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

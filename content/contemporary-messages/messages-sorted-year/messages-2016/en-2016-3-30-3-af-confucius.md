@@ -1,7 +1,7 @@
 ﻿---
 title: "Pull to you the Light"
 menu_title: ""
-description: "Pull to you the Light"
+description: "Confucius, received by Al Fike: “Drink deep, my beloveds, drink deep. Open yourselves to what your Heavenly Father has to give to you, beloved souls, for …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

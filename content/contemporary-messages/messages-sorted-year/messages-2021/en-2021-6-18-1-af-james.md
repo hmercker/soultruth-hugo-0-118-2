@@ -1,7 +1,7 @@
 ---
 title: "Your Journey to the Celestial Heavens is Shortened by Prayer for Divine Love"
 menu_title: ""
-description: "Your Journey to the Celestial Heavens is Shortened by Prayer for Divine Love"
+description: "James, received by Al Fike: “Bless you, blessed and beloved souls, I am James. The road to heaven is not as long as you might think.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Partners in Healing"
 menu_title: ""
-description: "Partners in Healing"
+description: "Mylora, received by Elizabeth Mack: “God wishes to let you know that He does not abandon His children, any of them and that His love will heal you.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

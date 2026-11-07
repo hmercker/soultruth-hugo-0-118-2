@@ -1,7 +1,7 @@
 ---
 title: "The Truth of God's Love Surpasses Any Barriers of Language and Culture"
 menu_title: ""
-description: "The Truth of God's Love Surpasses Any Barriers of Language and Culture"
+description: "Augustine, received by Al Fike: “The Truth of God's Love surpasses any barriers of culture, language and situations in your world.”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

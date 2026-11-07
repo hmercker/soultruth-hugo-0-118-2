@@ -1,7 +1,7 @@
 ---
 title: "Redouble Your Efforts in Prayer"
 menu_title: ""
-description: "Redouble Your Efforts in Prayer"
+description: "Augustine, received by Al Fike: “What a blessing it is for you to know the touch of the Master in your lives. Indeed, that touch comes more often than you …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

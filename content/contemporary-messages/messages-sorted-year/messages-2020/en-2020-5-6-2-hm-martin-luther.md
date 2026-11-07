@@ -1,7 +1,7 @@
 ---
 title: "Encouragement"
 menu_title: ""
-description: "Encouragement"
+description: "Martin Luther, received by Helge Mercker: “My daughter, I am here to write. I greet you at this hour of prayer and communion with our Father, this time of …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

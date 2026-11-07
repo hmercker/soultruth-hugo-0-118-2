@@ -1,7 +1,7 @@
 ﻿---
 title: "You cast these Seeds of Hope into the World"
 menu_title: ""
-description: "You cast these Seeds of Hope into the World"
+description: "Confucius, received by Al Fike: “Precious and beloved souls, I am Confucius and I come to greet you this morning with my love and to give you some guidance.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

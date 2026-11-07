@@ -1,7 +1,7 @@
 ﻿---
 title: "Healing from Temporal and Spiritual Bondage"
 menu_title: ""
-description: "Healing from Temporal and Spiritual Bondage"
+description: "Frederick Douglass, received by Jimbeau Walsh: “A person, while on earth, was born a slave, escaped to freedom, a lover of the gospels, self-taught, and …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

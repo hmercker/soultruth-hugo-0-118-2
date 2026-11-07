@@ -1,7 +1,7 @@
 ---
 title: "It's Not Easy to Build a Church"
 menu_title: ""
-description: "It's Not Easy to Build a Church"
+description: "Peter, received by Elizabeth Mack: “It’s not easy to build a church, but you will succeed. You have love, your love, God’s Love within you and this is how …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

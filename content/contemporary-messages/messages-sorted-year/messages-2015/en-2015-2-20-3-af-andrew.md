@@ -1,7 +1,7 @@
 ﻿---
 title: "Life’s Experiences bring Understanding, and you all grow within your Souls"
 menu_title: ""
-description: "Life’s Experiences bring Understanding, and you all grow within your Souls"
+description: "Andrew, received by Al Fike: “And I am so happy to see you all together, such beautiful souls, praying and yearning to be in the Light.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

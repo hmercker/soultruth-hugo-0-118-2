@@ -1,7 +1,7 @@
 ---
 title: "I Will Welcome You to the Kingdom When it is Time"
 menu_title: ""
-description: "I Will Welcome You to the Kingdom When it is Time"
+description: "Jesus, received by Elizabeth Mack: “For it is the Love of God that creates these changes within you and brings you closer, closer to Him.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

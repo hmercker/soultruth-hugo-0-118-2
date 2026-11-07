@@ -1,7 +1,7 @@
 ---
 title: "Keep Your Word Simple and Message Clear"
 menu_title: ""
-description: "Keep Your Word Simple and Message Clear"
+description: "Augustine, received by Al Fike: “There is so much to teach, my beloved students, so much to give to those who are yearning and seeking and thirsting for …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

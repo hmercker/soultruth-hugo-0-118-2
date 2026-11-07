@@ -1,7 +1,7 @@
 ﻿---
 title: "Hope was indeed given to some and Healing and Comfort to many"
 menu_title: ""
-description: "Hope was indeed given to some and Healing and Comfort to many"
+description: "Augustine, received by Al Fike: “Dear students, this is Augustine. So you see that things have unfolded in ways that you did not expect and attitudes have …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

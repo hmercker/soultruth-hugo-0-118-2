@@ -1,7 +1,7 @@
 ---
 title: "Political and Spiritual Conditions in Estonia Will Get Worse"
 menu_title: ""
-description: "Political and Spiritual Conditions in Estonia Will Get Worse"
+description: "Stephen, received by Al Fike: “Indeed, the struggles will not get any less as political and geological upheavals continue to make times worse for all who …”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Blesses us and prays with us"
 menu_title: ""
-description: "Blesses us and prays with us"
+description: "Jesus, received by Al Fike: “Seeking to be servants of God in every way and means that are possible through you. Seeking to help transform the world from …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

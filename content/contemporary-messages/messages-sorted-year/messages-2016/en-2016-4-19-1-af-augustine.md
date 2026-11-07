@@ -1,7 +1,7 @@
 ﻿---
 title: "You will come together again"
 menu_title: ""
-description: "You will come together again"
+description: "Augustine, received by Al Fike: “We have accomplished much in these short weeks. We have accomplished much.”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

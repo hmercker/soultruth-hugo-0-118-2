@@ -1,7 +1,7 @@
 ---
 title: "The Footings are within Your Soul"
 menu_title: ""
-description: "The Footings are within Your Soul"
+description: "Matthew, received by Al Fike: “I would encourage each one of you to be introspective and contemplative in regards to your own gifts and purpose and …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

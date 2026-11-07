@@ -1,7 +1,7 @@
 ---
 title: "Pope John Paul II is in the Celestial Heavens"
 menu_title: ""
-description: "Pope John Paul II is in the Celestial Heavens"
+description: "Received by Maureen Cardoso: “I join you in your Circle of Light. You know me as Pope John Paul and I would like to come and let you know that now I am a …”"
 date: 2020-08-27 07:21:03+11:00
 draft: False
 hidden: True

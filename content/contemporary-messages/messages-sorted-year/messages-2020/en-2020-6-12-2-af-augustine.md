@@ -1,7 +1,7 @@
 ---
 title: "The Winds of Change Have Brought You Together"
 menu_title: ""
-description: "The Winds of Change Have Brought You Together"
+description: "Augustine, received by Al Fike: “The winds of change have brought you together, have they not? You have been drawn together that you may pitch your tents …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

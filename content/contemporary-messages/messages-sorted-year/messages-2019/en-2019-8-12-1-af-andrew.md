@@ -1,7 +1,7 @@
 ---
 title: "Have You Released Your Need to Be in Control?"
 menu_title: ""
-description: "Have You Released Your Need to Be in Control?"
+description: "Andrew, received by Al Fike: “Have you released your need to be in control, to be independent of God? When you come to God with sincerity, with a true …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

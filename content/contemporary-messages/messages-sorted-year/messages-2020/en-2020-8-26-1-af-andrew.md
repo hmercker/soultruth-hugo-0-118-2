@@ -1,7 +1,7 @@
 ---
 title: "Prayer is the Key to Spiritual Work"
 menu_title: ""
-description: "Prayer is the Key to Spiritual Work"
+description: "Andrew, received by Al Fike: “Prayer is the key to spiritual work for when you engage God in prayer, you open the doors to light, to the influence of …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

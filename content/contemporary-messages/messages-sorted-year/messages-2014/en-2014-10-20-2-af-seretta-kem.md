@@ -1,7 +1,7 @@
 ﻿---
 title: "The Role as a Channel of Love has many Aspects"
 menu_title: ""
-description: "The Role as a Channel of Love has many Aspects"
+description: "Seretta Kem, received by Al Fike: “I have been here bringing energies and chemicals into this group to help balance your bodies and to develop faculties …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

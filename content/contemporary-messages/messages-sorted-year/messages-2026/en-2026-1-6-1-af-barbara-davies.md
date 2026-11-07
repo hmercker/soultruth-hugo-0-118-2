@@ -1,7 +1,7 @@
 ---
 title: "The World Can Be Changed With the Power of God's Love"
 menu_title: ""
-description: "The World Can Be Changed With the Power of God's Love"
+description: "Barbara Davies, received by Al Fike: “In this time for prayer and replenishment, my hope is that each of you here will find greater insight, capacity for …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

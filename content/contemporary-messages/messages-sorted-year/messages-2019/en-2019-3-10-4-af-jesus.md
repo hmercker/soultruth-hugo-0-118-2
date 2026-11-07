@@ -1,7 +1,7 @@
 ---
 title: "I Am With You"
 menu_title: ""
-description: "I Am With You"
+description: "Jesus, received by Al Fike: “For those who are willing to walk upon the path of love and light, they are my disciples and are blessed in many ways as they …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

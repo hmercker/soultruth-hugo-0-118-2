@@ -1,7 +1,7 @@
 ﻿---
 title: "In Accordance to Your Gifts You Will Receive the Support and Blessings of an Angel Friend with You"
 menu_title: ""
-description: "In Accordance to Your Gifts You Will Receive the Support and Blessings of an Angel Friend with You"
+description: "Augustine, received by Al Fike: “As you see, in accordance with your gifts, you will receive the support and the blessings of an angel friend with you, one …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

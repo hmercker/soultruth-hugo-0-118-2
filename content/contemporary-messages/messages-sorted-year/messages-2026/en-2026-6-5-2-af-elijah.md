@@ -1,7 +1,7 @@
 ﻿---
 title: "The Time Comes When God’s Will Shall Be Done"
 menu_title: ""
-description: "The Time Comes When God’s Will Shall Be Done"
+description: "Elijah, received by Al Fike: “Blessings to you, beloved souls. The world is poised, waiting for the change that is coming and for the awakening that must be.”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Engage Your Soul"
 menu_title: ""
-description: "Engage Your Soul"
+description: "Ann Rollins, received by Jimbeau Walsh: “What a wonder it is to connect with our heavenly Father, the presence of His love permeating this place, inflowing …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "May your Guidance by Celestial rather than Terrestrial"
 menu_title: ""
-description: "May your Guidance by Celestial rather than Terrestrial"
+description: "Yogananda & Care Darby Walsh, received by Jimbeau Walsh: “Yogananda: I am here, your brother, Yogananda, your celestial friend, and I shall be your guide …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

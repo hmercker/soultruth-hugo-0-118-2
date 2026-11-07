@@ -1,7 +1,7 @@
 ---
 title: "Expresses Her Gratitude for the Starpoint Retreat"
 menu_title: ""
-description: "Expresses Her Gratitude for the Starpoint Retreat"
+description: "Grace Jordan, received by Al Fike: “Each of you has your own unique way of doing that. I want to encourage you to discover, to develop and to express all …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

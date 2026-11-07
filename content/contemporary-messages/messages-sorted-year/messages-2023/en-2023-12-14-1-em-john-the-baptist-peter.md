@@ -1,7 +1,7 @@
 ---
 title: "Do Not Seek Only Repentance/Your Love Manifested on the Earth Is Having Its Effects"
 menu_title: ""
-description: "Do Not Seek Only Repentance/Your Love Manifested on the Earth Is Having Its Effects"
+description: "John the Baptist & Peter, received by Elizabeth Mack: “We who know the truth encourage prayer for God’s love. A multitude has come to be with you as you …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

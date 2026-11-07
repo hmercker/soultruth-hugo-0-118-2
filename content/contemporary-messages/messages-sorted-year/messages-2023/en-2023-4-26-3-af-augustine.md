@@ -1,7 +1,7 @@
 ---
 title: "There's More Work to Do"
 menu_title: ""
-description: "There's More Work to Do"
+description: "Augustinus, received by Al Fike: “I have tutored these two beautiful souls. I have tutored many of you over the years.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

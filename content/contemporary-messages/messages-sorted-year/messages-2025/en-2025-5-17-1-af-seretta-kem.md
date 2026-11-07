@@ -1,7 +1,7 @@
 ---
 title: "As Different Aspects of Our Souls Awaken, This Impacts How Communications From The Angels Takes Place"
 menu_title: ""
-description: "As Different Aspects of Our Souls Awaken, This Impacts How Communications From The Angels Takes Place"
+description: "Seretta Kem, received by Al Fike: “Indeed, the structures of the mind, as has been formulated and developed over the years of human evolution, is somewhat …”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

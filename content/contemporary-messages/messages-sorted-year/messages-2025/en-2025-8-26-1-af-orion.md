@@ -1,7 +1,7 @@
 ---
 title: "Ascend Beyond the Consciousness of the Material Mind"
 menu_title: ""
-description: "Ascend Beyond the Consciousness of the Material Mind"
+description: "Orion, received by Al Fike: “Oh, how the material mind is revered in your world, especially the western world. This reverence started eons ago in Europe …”"
 date: 2025-09-01 07:21:03+00:00
 draft: False
 hidden: True

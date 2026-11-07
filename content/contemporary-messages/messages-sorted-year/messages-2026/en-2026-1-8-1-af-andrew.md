@@ -1,7 +1,7 @@
 ---
 title: "You Are Building a Bridge Between Yourself and God"
 menu_title: ""
-description: "You Are Building a Bridge Between Yourself and God"
+description: "Andrew, received by Al Fike: “The bridge between you and God continues to be built every time you pray. Every time you put a thought, a desire, to God, you …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

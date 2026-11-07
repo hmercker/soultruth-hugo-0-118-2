@@ -1,7 +1,7 @@
 ---
 title: "Entering a New Phase"
 menu_title: ""
-description: "Entering a New Phase"
+description: "Seretta Kem, received by Al Fike: “Tomorrow in the dark room you will experience something different from what has been the case in the past few weeks.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

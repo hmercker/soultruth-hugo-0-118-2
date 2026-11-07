@@ -1,7 +1,7 @@
 ---
 title: "Let The Truth Develop In You"
 menu_title: ""
-description: "Let The Truth Develop In You"
+description: "Jesus, received by Elizabeth Mack: “Love from God pours into your souls and many other blessings are now descending upon you. May you open your souls so …”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

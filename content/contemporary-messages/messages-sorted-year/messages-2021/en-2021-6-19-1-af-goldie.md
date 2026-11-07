@@ -1,7 +1,7 @@
 ---
 title: "All Is in Gods Hands"
 menu_title: ""
-description: "All Is in Gods Hands"
+description: "Goldie, received by Al Fike: “I like the idea of a celebration, I am Goldie. Indeed, anything that brings joy, I like, I like it very much.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

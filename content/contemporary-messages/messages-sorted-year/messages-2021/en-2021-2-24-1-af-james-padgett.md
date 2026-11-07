@@ -1,7 +1,7 @@
 ---
 title: "The Importance of Our Work in Recording Messages from Celestial Angels"
 menu_title: ""
-description: "The Importance of Our Work in Recording Messages from Celestial Angels"
+description: "James Padgett, received by Al Fike: “I will be brief but I wish to acknowledge and thank you all for your efforts, to continue to make the efforts of the …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

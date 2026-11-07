@@ -1,7 +1,7 @@
 ---
 title: "Be a Light in the World"
 menu_title: ""
-description: "Be a Light in the World"
+description: "Keea Atta Kem, received by Al Fike: “May this Love be yours, dear precious souls who are seeking truth and are seeking the highest blessing from God.”"
 date: 2025-06-21 00:00:00+00:00
 draft: False
 hidden: True

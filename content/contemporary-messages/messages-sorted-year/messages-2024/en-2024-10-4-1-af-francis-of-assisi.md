@@ -1,7 +1,7 @@
 ---
 title: "God’s Love Will Bring the Changes Needed in the World"
 menu_title: ""
-description: "God’s Love Will Bring the Changes Needed in the World"
+description: "Francis of Assisi, received by Al Fike: “As you all know, seeking the highest gift of Love, the Essence of God, asking for it to enter into your soul and …”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

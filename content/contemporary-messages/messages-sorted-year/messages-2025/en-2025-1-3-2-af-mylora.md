@@ -1,7 +1,7 @@
 ---
 title: "Healing Blessing for the Earth"
 menu_title: ""
-description: "Healing Blessing for the Earth"
+description: "Mylora, received by Al Fike: “So, what does this make you, my beloved friends? A bridge between God and Earth, between these two consciousnesses and …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "We are All Family"
 menu_title: ""
-description: "We are All Family"
+description: "Jesus, received by Al Fike: “Though I may be your older brother, you are my brothers and sisters. Though I reside in the Celestial Heavens and you are upon …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

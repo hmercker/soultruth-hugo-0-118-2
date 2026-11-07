@@ -1,7 +1,7 @@
 ---
 title: "Deep Drink of These Healing Waters"
 menu_title: ""
-description: "Deep Drink of These Healing Waters"
+description: "Confucius, received by Maureen Cardoso: “Oh my dear and precious little birds who flock together, flock together over the wires, each one drawn to the Love.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

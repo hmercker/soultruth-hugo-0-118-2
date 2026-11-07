@@ -1,7 +1,7 @@
 ---
 title: "Preparing to Live the Love"
 menu_title: ""
-description: "Preparing to Live the Love"
+description: "Keea Atta Kem, received by Al Fike: “The path to God is so simple. Indeed, each of you, even though you struggle, have found that when your feelings …”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

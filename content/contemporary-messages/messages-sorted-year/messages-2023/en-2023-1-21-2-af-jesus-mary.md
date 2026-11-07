@@ -1,7 +1,7 @@
 ---
 title: "Each of You Are Precious to Our Heavenly Father"
 menu_title: ""
-description: "Each of You Are Precious to Our Heavenly Father"
+description: "Jesus & Maria, received by Al Fike: “May the Father’s love be upon you, precious souls. Each of you is precious to our Heavenly Father.”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

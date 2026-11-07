@@ -1,7 +1,7 @@
 ---
 title: "Blessings for the First Spiritualist Church"
 menu_title: ""
-description: "Blessings for the First Spiritualist Church"
+description: "Mark, received by Al Fike: “Dearly beloved souls, may His Love touch your soul and bring you to the awareness of His presence, for God wishes to …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

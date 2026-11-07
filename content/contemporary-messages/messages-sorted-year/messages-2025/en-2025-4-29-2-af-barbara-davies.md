@@ -1,7 +1,7 @@
 ---
 title: "Be a Channel of God's Love Wherever You Go"
 menu_title: ""
-description: "Be a Channel of God's Love Wherever You Go"
+description: "Barbara Davies, received by Al Fike: “I love you all so dearly and I have great compassion for your struggles on this earthly plane, struggles that I had …”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

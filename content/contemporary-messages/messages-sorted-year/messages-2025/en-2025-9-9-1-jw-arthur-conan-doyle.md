@@ -1,7 +1,7 @@
 ---
 title: "Prayer, It's elementary!"
 menu_title: ""
-description: "Prayer, It's elementary!"
+description: "Arthur Conan Doyle, received by Jimbeau Walsh: “So delighted to be here on the old sod. Though there have been many changes since my time here on earth, in …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

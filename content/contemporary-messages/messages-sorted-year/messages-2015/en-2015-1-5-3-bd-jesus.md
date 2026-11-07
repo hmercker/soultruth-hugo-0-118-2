@@ -1,7 +1,7 @@
 ﻿---
 title: "You are deeply needed"
 menu_title: ""
-description: "You are deeply needed"
+description: "Jesus, received by Barbara Davies: “You bring peace and love and acceptance which is so deeply, deeply required. The Angels surround you with a touch that …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

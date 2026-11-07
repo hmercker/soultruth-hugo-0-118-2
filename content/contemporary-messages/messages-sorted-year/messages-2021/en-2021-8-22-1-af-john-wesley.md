@@ -1,7 +1,7 @@
 ---
 title: "Time to Bring the Truth to Humanity"
 menu_title: ""
-description: "Time to Bring the Truth to Humanity"
+description: "John Wesley, received by Al Fike: “Some of you know me well for you have ascribed to the church and following which I created not so long ago.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

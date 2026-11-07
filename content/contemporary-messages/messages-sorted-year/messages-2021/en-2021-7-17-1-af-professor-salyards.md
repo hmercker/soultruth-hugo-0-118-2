@@ -1,7 +1,7 @@
 ---
 title: "Gods Gift is to Open that Door for You"
 menu_title: ""
-description: "Gods Gift is to Open that Door for You"
+description: "Professor Salyards, received by Al Fike: “I sense a bit of a waning of your momentum but indeed as everything on your earthly life, things wax and wane as …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Know that you come very close to that Time of great Work and the Fulfillment of God’s mighty Plan"
 menu_title: ""
-description: "Know that you come very close to that Time of great Work and the Fulfillment of God’s mighty Plan"
+description: "Confucius, received by Al Fike: “Even the beast is drawn to the light my beloveds. It requires from you a great deal, a willingness to move in this flow of …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

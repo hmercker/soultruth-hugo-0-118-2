@@ -1,7 +1,7 @@
 ---
 title: "We are truly a part of one another"
 menu_title: ""
-description: "We are truly a part of one another"
+description: "Mary, received by Al Fike: “Blessings of peace, blessings of Love, and all that is of Light and of God, may this be your blessing today.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "No Time to waste"
 menu_title: ""
-description: "No Time to waste"
+description: "Goldie, received by Al Fike: “And no time to waste! (laughs) But please, take time to enjoy your life and be happy in this world, for God has given you …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

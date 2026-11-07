@@ -1,7 +1,7 @@
 ---
 title: "Addresses DLSF Board of Directors on Priorities"
 menu_title: ""
-description: "Addresses DLSF Board of Directors on Priorities"
+description: "Augustine, received by Al Fike: “Blessings to you, my beloved students. I commend you on your efforts, the harmony that has ensued from your efforts.”"
 date: 2025-04-15 07:21:03+11:00
 draft: False
 hidden: True

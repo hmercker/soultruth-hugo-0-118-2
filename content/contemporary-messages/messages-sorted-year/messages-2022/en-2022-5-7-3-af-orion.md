@@ -1,7 +1,7 @@
 ---
 title: "Announces His Presence and Other Stellar Beings Here to Help Us on Earth"
 menu_title: ""
-description: "Announces His Presence and Other Stellar Beings Here to Help Us on Earth"
+description: "Orion, received by Al Fike: “…you, my friends; I am Orion. The great edict of God is that all must progress, and that within the flow of progression there …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

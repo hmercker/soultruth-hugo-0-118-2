@@ -1,7 +1,7 @@
 ---
 title: "A Developing Spirit's Lesson"
 menu_title: ""
-description: "A Developing Spirit's Lesson"
+description: "George Stokes, received by Elizabeth Mack: “Developing Spirit: Let go of accumulation of material objects, but pray deeply to come to know your purpose in …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

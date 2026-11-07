@@ -1,7 +1,7 @@
 ---
 title: "This Love is Universal"
 menu_title: ""
-description: "This Love is Universal"
+description: "Orion, received by Al Fike: “Although our language and our experience of it may be somewhat different from yours, the actual law, practice and receptance …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Are You Prepared?"
 menu_title: ""
-description: "Are You Prepared?"
+description: "Seretta Kem, received by Al Fike: “May the way to open for each of you to find the grace of God in every moment of your lives.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

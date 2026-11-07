@@ -1,7 +1,7 @@
 ---
 title: "Laying down your love"
 menu_title: ""
-description: "Laying down your love"
+description: "Jesus, received by Jimbeau Walsh: “However, I might have just as easily said there is no greater gift than one who lays down his love for his friends, and …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Blessing from Jesus"
 menu_title: ""
-description: "Blessing from Jesus"
+description: "Jesus, received by Maureen Cardoso: “May a great blessing be bestowed upon the dear child this morning, speaking from her heart, casting out the prayers of …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

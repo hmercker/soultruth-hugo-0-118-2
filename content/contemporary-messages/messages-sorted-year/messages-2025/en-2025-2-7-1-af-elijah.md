@@ -1,7 +1,7 @@
 ---
 title: "Comes to Affirm Life and Reinforce Truth"
 menu_title: ""
-description: "Comes to Affirm Life and Reinforce Truth"
+description: "Elijah, received by Al Fike: “Blessings to all of you on the Earth plane. For it is the gift of life that God gave this Earth and all within it that has …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

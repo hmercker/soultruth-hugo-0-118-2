@@ -1,7 +1,7 @@
 ﻿---
 title: "Bring the Truth of God’s Love to Mankind"
 menu_title: ""
-description: "Bring the Truth of God’s Love to Mankind"
+description: "James Padgett, received by Al Fike: “I wish to thank you my daughter for making these efforts to speak the words that came through me all those years ago …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

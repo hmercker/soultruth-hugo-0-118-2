@@ -1,7 +1,7 @@
 ---
 title: "Opening Channels for Healing Energies to Flow"
 menu_title: ""
-description: "Opening Channels for Healing Energies to Flow"
+description: "Seretta Kem, received by Maureen Cardoso: “I bring forward the gifts that I carry, a longing to bless you, to serve God, to bring healing and to help each …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

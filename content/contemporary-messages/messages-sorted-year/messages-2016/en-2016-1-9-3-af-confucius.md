@@ -1,7 +1,7 @@
 ﻿---
 title: "Act upon the Guidance which God gives each one"
 menu_title: ""
-description: "Act upon the Guidance which God gives each one"
+description: "Confucius, received by Al Fike: “My beautiful birds, precious souls, indeed you celebrate the beginning of a new era in your lives and your service to God …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

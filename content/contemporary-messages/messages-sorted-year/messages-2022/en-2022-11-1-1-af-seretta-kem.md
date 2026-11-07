@@ -1,7 +1,7 @@
 ---
 title: "Knowing God"
 menu_title: ""
-description: "Knowing God"
+description: "Seretta Kem, received by Al Fike: “Blessings to you, my beloved friends. All within the purview of your lives and the life of this planet in which you …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

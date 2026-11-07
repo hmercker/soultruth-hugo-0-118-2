@@ -1,7 +1,7 @@
 ---
 title: "David's Mother"
 menu_title: ""
-description: "David's Mother"
+description: "Grace Jordan, received by Al Fike: “Welcome dear son and daughter. I want to assure you that I am doing very well indeed on this side of the veil.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

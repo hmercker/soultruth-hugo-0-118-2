@@ -1,7 +1,7 @@
 ---
 title: "Prayer is a Vital Component in God's Plan for the Transformation of the World"
 menu_title: ""
-description: "Prayer is a Vital Component in God's Plan for the Transformation of the World"
+description: "Orion & Jesus, received by Al Fike: “Orion: May the peace that passes all understanding be yours, beloved friends. In this, I am one of His instruments …”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

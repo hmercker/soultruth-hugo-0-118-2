@@ -1,7 +1,7 @@
 ﻿---
 title: "You have accomplished much in this past Year"
 menu_title: ""
-description: "You have accomplished much in this past Year"
+description: "Alec Gaunt, received by Al Fike: “There is so much work awaiting you and many doors will open for you, doors that you had not anticipated will be …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

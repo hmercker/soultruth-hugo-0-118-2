@@ -1,7 +1,7 @@
 ---
 title: "So you are blessed according to your Dedication"
 menu_title: ""
-description: "So you are blessed according to your Dedication"
+description: "Andrew, received by Jimbeau Walsh: “May the blessings of God's Love sweep into your souls, beloved and beautiful souls that you are, who continue to gather …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

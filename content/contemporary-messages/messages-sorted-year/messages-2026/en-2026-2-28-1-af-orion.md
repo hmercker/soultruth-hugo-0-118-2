@@ -1,7 +1,7 @@
 ---
 title: "Q&A: Orion Opens the Floor to Questions, Addresses Soul Consciousness and How to Discern Between Different Stellar/Spirit Influences"
 menu_title: ""
-description: "Q&A: Orion Opens the Floor to Questions, Addresses Soul Consciousness and How to Discern Between Different Stellar/Spirit Influences"
+description: "Orion, received by Al Fike: “Before we go further, I would be interested in opening the floor to any questions you might ask of me, to give that …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

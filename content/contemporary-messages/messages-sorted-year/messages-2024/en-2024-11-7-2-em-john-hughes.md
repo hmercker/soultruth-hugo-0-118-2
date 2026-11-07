@@ -1,7 +1,7 @@
 ---
 title: "The Truth of Divine Love"
 menu_title: ""
-description: "The Truth of Divine Love"
+description: "John Hughes, received by Elizabeth Mack: “Each moment that you allow your souls’ longings to ascend to the Father, brings you closer, closer to the truth …”"
 date: 2025-03-20 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Do Not Denigrate Your Souls: There is a Hierarchy in Heaven"
 menu_title: ""
-description: "Do Not Denigrate Your Souls: There is a Hierarchy in Heaven"
+description: "Augustine, received by Al Fike: “Bless you, dear children of God. This instrument makes light of his designation on Earth as a minister of a church.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

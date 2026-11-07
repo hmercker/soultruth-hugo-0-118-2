@@ -1,7 +1,7 @@
 ﻿---
 title: "From Mindful Confusion to Soul Wisdom"
 menu_title: ""
-description: "From Mindful Confusion to Soul Wisdom"
+description: "Jesus, received by Al Fike: “Merci, mon ami, merci [^1]. Open yourselves, my beloveds.”"
 date: 2026-10-06 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Though We Start with the Physical, Many are Blessed in Spirit"
 menu_title: ""
-description: "Though We Start with the Physical, Many are Blessed in Spirit"
+description: "Jesus, received by Al Fike: “Those who are my disciples shall be blessed accordingly, protected and guided, inspired and opened as God's channels of love …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

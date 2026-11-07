@@ -1,5 +1,6 @@
 ---
 title: "Enjoy each moment of Soul Longing in Prayer"
+description: "Received by Jimbeau Walsh: “Some of you have been on many journeys and for others new beginnings await you. At the end of the day, you can always evaluate …”"
 menu_title: ""
 descriLtion: "Care says Enjoy each moment of Soul Longing in Prayer"
 date: 2022-04-12 07:21:03+11:00

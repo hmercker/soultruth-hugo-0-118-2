@@ -1,7 +1,7 @@
 ---
 title: "Faith and the Soul 5: Brother Mandus Discusses the WHC and Urges Us to Overcome Our Mindful Reluctance"
 menu_title: ""
-description: "Faith and the Soul 5: Brother Mandus Discusses the WHC and Urges Us to Overcome Our Mindful Reluctance"
+description: "Brother Mandus, received by Al Fike: “My friends, I am Brother Mandus, Mandus Nyquist. Since you were discussing your experiences at the centre (World …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

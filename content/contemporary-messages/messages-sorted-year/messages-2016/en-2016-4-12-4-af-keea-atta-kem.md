@@ -1,7 +1,7 @@
 ﻿---
 title: "Talk on Receiving Guidance"
 menu_title: ""
-description: "Talk on Receiving Guidance"
+description: "Keea Atta Kem, received by Al Fike: “I have come to speak to you on receiving guidance. And this is but one way that we communicate with you who desire to …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

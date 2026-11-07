@@ -1,7 +1,7 @@
 ---
 title: "Opportunities for Soul Awakening Experiences"
 menu_title: ""
-description: "Opportunities for Soul Awakening Experiences"
+description: "Yogananda, received by Al Fike: “Blessings to you, my friends. This dear instrument has been reading some of my messages that have been delivered in the …”"
 date: 2025-03-15 07:21:03+11:00
 draft: False
 hidden: True

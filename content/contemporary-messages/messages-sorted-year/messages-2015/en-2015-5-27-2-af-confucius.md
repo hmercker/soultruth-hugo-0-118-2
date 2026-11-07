@@ -1,7 +1,7 @@
 ﻿---
 title: "Prepare yourselves for what is coming"
 menu_title: ""
-description: "Prepare yourselves for what is coming"
+description: "Confucius, received by Al Fike: “Blessed and beloved souls, I am Confucius. You are all eager and beautiful, my beloveds.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

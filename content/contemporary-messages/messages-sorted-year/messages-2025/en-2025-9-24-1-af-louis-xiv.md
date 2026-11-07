@@ -1,7 +1,7 @@
 ---
 title: "Do Not Let Judgement Shroud Your Light"
 menu_title: ""
-description: "Do Not Let Judgement Shroud Your Light"
+description: "Louis XIV, received by Al Fike: “Beautiful souls, I am Louis XIV. For when you pass judgement, you close off that beautiful channel that you are.”"
 date: 2025-11-02 06:00:00+00:00
 draft: False
 hidden: True

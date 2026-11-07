@@ -1,7 +1,7 @@
 ﻿---
 title: "Make a concerted Effort to change the Patterns of Behaviour within yourselves"
 menu_title: ""
-description: "Make a concerted Effort to change the Patterns of Behaviour within yourselves"
+description: "Augustine, received by Al Fike: “Bless you, your teacher Augustine is with you. There is much work ahead, my dear students, and much to prepare for within …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

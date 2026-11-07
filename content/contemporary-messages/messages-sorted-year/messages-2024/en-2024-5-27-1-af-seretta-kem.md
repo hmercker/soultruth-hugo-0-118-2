@@ -1,7 +1,7 @@
 ---
 title: "Pentecost Prayer and Blessing"
 menu_title: ""
-description: "Pentecost Prayer and Blessing"
+description: "Seretta Kem, received by Al Fike: “Realise the responsibility that you carry when you gather souls together such as this and open them to these gifts.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Humility is a great Attribute and a Reflection of Love and Soul Progression"
 menu_title: ""
-description: "Humility is a great Attribute and a Reflection of Love and Soul Progression"
+description: "James, received by Al Fike: “...who gather so faithfully in the desire to receive our Father’s Divine Love, to walk in this light, to be a channel of this …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

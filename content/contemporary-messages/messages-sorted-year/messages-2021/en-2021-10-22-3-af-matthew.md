@@ -1,7 +1,7 @@
 ---
 title: "The world needs God's Love to survive coming changes"
 menu_title: ""
-description: "The world needs God's Love to survive coming changes"
+description: "Matthew, received by Al Fike: “I know many of you cannot see nor do you recognize the amount and depth of support and love that is given to you and given …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

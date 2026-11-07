@@ -1,7 +1,7 @@
 ---
 title: "God's Love is the Greatest Gift in the Universe"
 menu_title: ""
-description: "God's Love is the Greatest Gift in the Universe"
+description: "Orion, received by Al Fike: “May there be peace amongst you, my friends. May Love shine in your souls.”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

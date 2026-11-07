@@ -1,7 +1,7 @@
 ---
 title: "Pray for Soul Consciousness"
 menu_title: ""
-description: "Pray for Soul Consciousness"
+description: "Orion, received by Al Fike: “You continue to shift in consciousness. Your perspective of the world changes.”"
 date: 2025-07-22 07:21:03+11:00
 draft: False
 hidden: True

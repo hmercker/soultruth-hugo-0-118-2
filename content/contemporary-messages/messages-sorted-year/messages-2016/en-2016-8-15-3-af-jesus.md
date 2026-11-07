@@ -1,7 +1,7 @@
 ﻿---
 title: "Bring the Light to the lost Souls"
 menu_title: ""
-description: "Bring the Light to the lost Souls"
+description: "Jesus, received by Al Fike: “What greater journey can there be in life than this sweet embrace, this unfolding of your souls in this special Light and Love?”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

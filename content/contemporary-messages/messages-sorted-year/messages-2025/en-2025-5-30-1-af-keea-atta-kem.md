@@ -1,7 +1,7 @@
 ---
 title: "God Whispers His Love into Your Souls"
 menu_title: ""
-description: "God Whispers His Love into Your Souls"
+description: "Keea Atta Kem, received by Al Fike: “God whispers into the ear of your soul, His sweet Voice uplifting you in light. God has gathered us together into that …”"
 date: 2025-06-21 00:00:00+00:00
 draft: False
 hidden: True

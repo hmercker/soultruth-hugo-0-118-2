@@ -1,7 +1,7 @@
 ---
 title: "Our Development Continues in Gods Love"
 menu_title: ""
-description: "Our Development Continues in Gods Love"
+description: "Orion, received by Al Fike: “…my friends, it is your brother Orion. We do so often in your sleep states.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

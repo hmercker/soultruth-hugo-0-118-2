@@ -1,7 +1,7 @@
 ---
 title: "A Lesson on Achieving Harmony Through Unity"
 menu_title: ""
-description: "A Lesson on Achieving Harmony Through Unity"
+description: "Orion, received by Al Fike: “May there be unity amongst you, my friends. On your earthly plane, there is such diversity of thought.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

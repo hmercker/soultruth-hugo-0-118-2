@@ -1,7 +1,7 @@
 ﻿---
 title: "A few Words of Encouragement"
 menu_title: ""
-description: "A few Words of Encouragement"
+description: "Alec Gaunt, received by Al Fike: “Alec here, wishing to say a few words of encouragement. You are all walking the Path and heading in the directions that …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

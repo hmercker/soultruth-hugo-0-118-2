@@ -1,7 +1,7 @@
 ---
 title: "You Will Develop More Strength and Wisdom Over Time"
 menu_title: ""
-description: "You Will Develop More Strength and Wisdom Over Time"
+description: "Faith Nyquist, received by Al Fike: “Oh, my beloved friends, how you continue to strive for the highest and greatest and most beautiful of outcomes as you …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

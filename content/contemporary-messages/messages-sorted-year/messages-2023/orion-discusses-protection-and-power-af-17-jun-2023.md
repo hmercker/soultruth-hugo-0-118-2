@@ -1,7 +1,7 @@
 ---
 title: "Orion Discusses Protection and Power"
 menu_title: ""
-description: "Orion Discusses Protection and Power"
+description: "Received by Al Fike: “May God’s Essence continue to flow into your souls. For it is in this rapport of angels and men, of bright spirits and all that is …”"
 date: 2023-09-05 07:21:03+11:00
 draft: False
 hidden: True

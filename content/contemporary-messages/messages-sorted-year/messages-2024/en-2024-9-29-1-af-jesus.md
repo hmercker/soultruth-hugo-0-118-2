@@ -1,7 +1,7 @@
 ---
 title: "Jesus Prays to the Father"
 menu_title: ""
-description: "Jesus Prays to the Father"
+description: "Jesus, received by Al Fike: “That they may be uplifted, healed and given great dispensation from the darkness of this world.”"
 date: 2025-02-12 07:21:03+11:00
 draft: False
 hidden: True

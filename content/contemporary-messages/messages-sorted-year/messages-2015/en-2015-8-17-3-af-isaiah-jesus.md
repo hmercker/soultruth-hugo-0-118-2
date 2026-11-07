@@ -1,7 +1,7 @@
 ﻿---
 title: "The Power of the Love Bonds shared by those who pray for God’s Love together"
 menu_title: ""
-description: "The Power of the Love Bonds shared by those who pray for God’s Love together"
+description: "Isaiah & Jesus, received by Al Fike: “Dear, beloved souls, do not forget what you have learned here, do not release the commitments that you have made but …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

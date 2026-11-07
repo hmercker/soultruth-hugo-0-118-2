@@ -1,7 +1,7 @@
 ---
 title: "Blesses Circle in Running Springs California"
 menu_title: ""
-description: "Blesses Circle in Running Springs California"
+description: "Jesus, received by Al Fike: “In this pursuit, in your longings and prayers, comes the Light of the Divine Touch, the Light that is peace everlasting, the …”"
 date: 2025-05-20 07:21:03+11:00
 draft: False
 hidden: True

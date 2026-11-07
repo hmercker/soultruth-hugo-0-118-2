@@ -1,7 +1,7 @@
 ---
 title: "More Divine Love Circles of Light are Needed in the World"
 menu_title: ""
-description: "More Divine Love Circles of Light are Needed in the World"
+description: "Seretta Kem, received by Al Fike: “Blessings to you my friends, I am Seretta Kem. How important it is to be in a Circle of Light such as this, and how …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

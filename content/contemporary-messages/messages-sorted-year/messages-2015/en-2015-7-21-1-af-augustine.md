@@ -1,7 +1,7 @@
 ﻿---
 title: "In the End you will come to that Place of Liberation that our Master speaks of"
 menu_title: ""
-description: "In the End you will come to that Place of Liberation that our Master speaks of"
+description: "Augustine, received by Al Fike: “Your coming gathering has great import. You are all aware of this and you want to be a part of whatever it is that is …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Focus on God's Will and Have Faith"
 menu_title: ""
-description: "Focus on God's Will and Have Faith"
+description: "Mark, received by Al Fike: “Today we gather together to mark a new year for our beloved church, to bring the cleansing and the changes to this place so …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "You sit in the Light and Desire the Love of God to enter your Souls"
 menu_title: ""
-description: "You sit in the Light and Desire the Love of God to enter your Souls"
+description: "Confucius, received by Al Fike: “In this is a powerful channel of Love into the world. In this, you fulfill your souls’ desire to be close to God and to be …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

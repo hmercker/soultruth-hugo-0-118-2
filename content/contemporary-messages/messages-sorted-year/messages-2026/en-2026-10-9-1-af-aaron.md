@@ -1,7 +1,7 @@
 ﻿---
 title: "The Power of Free Will and the Awakening of the Soul"
 menu_title: ""
-description: "The Power of Free Will and the Awakening of the Soul"
+description: "Aaron, received by Al Fike: “God's power is immense, able to create the ongoing creation of the universe. He has the ability to make possible changes and …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

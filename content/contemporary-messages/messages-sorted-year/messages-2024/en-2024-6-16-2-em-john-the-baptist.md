@@ -1,7 +1,7 @@
 ---
 title: "Affirms Jesus’ Father’s Day Message"
 menu_title: ""
-description: "Affirms Jesus’ Father’s Day Message"
+description: "John the Baptist, received by Elizabeth Mack: “I follow my brother in the Celestial Heavens. I, too, come to honour you and support you in your progression …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "As you test your Gifts and your Abilities, you will gain more Confidence"
 menu_title: ""
-description: "As you test your Gifts and your Abilities, you will gain more Confidence"
+description: "Augustine, received by Al Fike: “Bless you children, as you come together to receive the Father’s Love, this great blessing of Love, as you come together …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

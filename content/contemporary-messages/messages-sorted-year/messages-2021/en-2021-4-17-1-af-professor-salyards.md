@@ -1,7 +1,7 @@
 ---
 title: "You Will Know Your Part to Play"
 menu_title: ""
-description: "You Will Know Your Part to Play"
+description: "Professor Salyards, received by Al Fike: “Be assured, my beloved beautiful friends, that there is a plan and that your challenge and your invitation is to …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

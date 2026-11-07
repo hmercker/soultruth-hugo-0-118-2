@@ -1,7 +1,7 @@
 ---
 title: "Here to Assist in Singleness of Purpose"
 menu_title: ""
-description: "Here to Assist in Singleness of Purpose"
+description: "Orion, received by Al Fike: “Your Stellar friends join you as well in this effort to bring greater light to this part of the world.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

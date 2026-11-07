@@ -1,7 +1,7 @@
 ---
 title: "Be Grateful for Life!"
 menu_title: ""
-description: "Be Grateful for Life!"
+description: "Josephus, received by Al Fike: “May the deep blessings of the Holy Spirit touch your soul. Each soul upon this world is not disconnected from God's …”"
 date: 2025-04-02 07:21:03+11:00
 draft: False
 hidden: True

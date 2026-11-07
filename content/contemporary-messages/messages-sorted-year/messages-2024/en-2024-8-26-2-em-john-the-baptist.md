@@ -1,7 +1,7 @@
 ---
 title: "Stay Open to Share Your Love"
 menu_title: ""
-description: "Stay Open to Share Your Love"
+description: "John the Baptist, received by Elizabeth Mack: “You speak of love and you know that words cannot express the depth and breadth of feeling of even human love …”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

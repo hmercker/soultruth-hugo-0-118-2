@@ -1,7 +1,7 @@
 ---
 title: "We Will Open Another Door"
 menu_title: ""
-description: "We Will Open Another Door"
+description: "Seretta Kem, received by Al Fike: “We have prepared this portal to work in your favour and our favour, to bring many spirits forth.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

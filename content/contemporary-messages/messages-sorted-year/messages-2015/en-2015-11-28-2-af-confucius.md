@@ -1,7 +1,7 @@
 ﻿---
 title: "Prayer to bring Freedom and Joy"
 menu_title: ""
-description: "Prayer to bring Freedom and Joy"
+description: "Confucius, received by Al Fike: “Father, bless these thy children and lift their burdens that they may feel the glory and joy of your Love, that they may …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

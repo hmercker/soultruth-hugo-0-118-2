@@ -1,7 +1,7 @@
 ---
 title: "Speaks Seriously about What is Required for Commitment"
 menu_title: ""
-description: "Speaks Seriously about What is Required for Commitment"
+description: "Matthew, received by Al Fike: “We see great promise in your efforts for to see a group of individuals band together in their desire to bring the Truth of …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

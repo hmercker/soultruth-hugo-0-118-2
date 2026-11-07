@@ -1,7 +1,7 @@
 ﻿---
 title: "Care will be given"
 menu_title: ""
-description: "Care will be given"
+description: "Seretta Kem, received by Al Fike: “Your dear and beloved sister (M) is very depleted and the treatments that she receives at this time are important, and …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

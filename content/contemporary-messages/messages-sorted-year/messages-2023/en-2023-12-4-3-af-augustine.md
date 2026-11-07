@@ -1,7 +1,7 @@
 ﻿---
 title: "Blesses and Closes Running Springs Retreat"
 menu_title: ""
-description: "Blesses and Closes Running Springs Retreat"
+description: "Augustine, received by Al Fike: “You have made valuable contacts and have received many blessings. What more could you ask from a small group such as this …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Personal for Matt on His Journey"
 menu_title: ""
-description: "Personal for Matt on His Journey"
+description: "Isaiah, received by Al Fike: “And it is important that you continue to forge this relationship and this knowing so that we may communicate more fully together.”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

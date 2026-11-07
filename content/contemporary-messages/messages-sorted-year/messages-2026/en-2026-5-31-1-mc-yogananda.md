@@ -1,7 +1,7 @@
 ﻿---
 title: "Allow Things of the Soul to be What Stimulates You"
 menu_title: ""
-description: "Allow Things of the Soul to be What Stimulates You"
+description: "Yogananda, received by Maureen Cardoso: “Your discussion draws me near. This topic is one that, for some, stimulates the mental faculties, gives the …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

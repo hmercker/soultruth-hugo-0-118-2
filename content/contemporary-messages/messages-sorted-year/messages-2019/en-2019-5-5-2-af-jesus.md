@@ -1,7 +1,7 @@
 ---
 title: "I Am With You"
 menu_title: ""
-description: "I Am With You"
+description: "Jesus, received by Al Fike: “Each of you holds a Light, a blessing and a purpose. I, and those with me in the Celestial Kingdom, will continue to work with …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

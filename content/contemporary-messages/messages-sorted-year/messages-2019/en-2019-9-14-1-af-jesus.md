@@ -1,7 +1,7 @@
 ---
 title: "Awaken and Seek the Truth and Love of God"
 menu_title: ""
-description: "Awaken and Seek the Truth and Love of God"
+description: "Jesus, received by Al Fike: “The deep resonance of your beloved souls reach God, my brothers and sisters. Know that the Heavenly hosts rejoice, that God …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

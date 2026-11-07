@@ -1,7 +1,7 @@
 ---
 title: "Thanks for Listening to Guidance"
 menu_title: ""
-description: "Thanks for Listening to Guidance"
+description: "Seretta Kem, received by Maureen Cardoso: “I wish to speak to the dear friends who have arrived in their new location where they will spend time in prayer …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Soul Gifts Start As Small and Subtle Buds Before Blooming into Beautiful Flowers Unique to Each Individual"
 menu_title: ""
-description: "Soul Gifts Start As Small and Subtle Buds Before Blooming into Beautiful Flowers Unique to Each Individual"
+description: "Orion, received by Al Fike: “The progression of your development, your spiritual gifts, your psychic abilities, those things that you may manifest in the …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

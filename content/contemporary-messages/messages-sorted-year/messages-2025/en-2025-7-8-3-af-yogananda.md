@@ -1,7 +1,7 @@
 ---
 title: "The Yoga of Love"
 menu_title: ""
-description: "The Yoga of Love"
+description: "Yogananda, received by Al Fike: “Dear one (Tina), you are a follower of my teachings. I taught what I knew while I was on Earth, and I shared what I could …”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Bring God’s Love and Light in every Room"
 menu_title: ""
-description: "Bring God’s Love and Light in every Room"
+description: "Augustine, received by Al Fike: “My students, it is Augustine. As you walk these halls and these rooms you bring a light that cleanses this place.”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

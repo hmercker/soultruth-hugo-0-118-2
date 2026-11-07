@@ -1,7 +1,7 @@
 ---
 title: "Reconcile Your Soul With God"
 menu_title: ""
-description: "Reconcile Your Soul With God"
+description: "Moses, received by Al Fike: “Reconcile yourselves with God, dear and beloved souls of Earth. You have tried to bring solutions and you have great knowledge …”"
 date: 2025-06-22 00:00:00+00:00
 draft: False
 hidden: True

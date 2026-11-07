@@ -1,7 +1,7 @@
 ﻿---
 title: "Choosing the Path of Divine Love and Soul Awakening"
 menu_title: ""
-description: "Choosing the Path of Divine Love and Soul Awakening"
+description: "Isaiah, received by Al Fike: “May the blessings of the Father's Love be with you, my beloveds. Indeed, you have sought for the highest and shall benefit …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Blessings of Healing, Love, and Light"
 menu_title: ""
-description: "Blessings of Healing, Love, and Light"
+description: "Confucius, received by Al Fike: “Healing comes, beloveds, to you all. The Father’s Love comes in a great wave that sweeps through you into your souls, this …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

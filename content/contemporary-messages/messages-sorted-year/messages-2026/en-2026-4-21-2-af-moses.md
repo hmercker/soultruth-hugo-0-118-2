@@ -1,7 +1,7 @@
 ﻿---
 title: "Moses Describes His Journey in Spirit and The Transforming Power of Divine Love"
 menu_title: ""
-description: "Moses Describes His Journey in Spirit and The Transforming Power of Divine Love"
+description: "Moses, received by Al Fike: “I lived for many years in the spirit world not knowing of this Love, because it was not bestowed upon humanity until our …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

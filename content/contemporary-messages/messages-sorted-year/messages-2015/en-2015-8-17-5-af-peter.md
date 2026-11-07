@@ -1,7 +1,7 @@
 ﻿---
 title: "Seek out your true Purpose"
 menu_title: ""
-description: "Seek out your true Purpose"
+description: "Peter, received by Al Fike: “You each prepare yourselves for the work that lies ahead, for each of you has a purpose in this world to fulfill.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Application of your spiritual Gifts is required"
 menu_title: ""
-description: "Application of your spiritual Gifts is required"
+description: "Augustine, received by Al Fike: “To share in this way, in your own personal way, not only reflects your own personality, but reflects your approach to your …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

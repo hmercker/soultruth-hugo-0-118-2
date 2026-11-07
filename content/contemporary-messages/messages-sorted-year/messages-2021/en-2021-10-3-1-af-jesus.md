@@ -1,7 +1,7 @@
 ---
 title: "Blessings in Divine Love"
 menu_title: ""
-description: "Blessings in Divine Love"
+description: "Jesus, received by Al Fike: “Precious and beloved souls, I come, I am Jesus. You are my brothers and sisters, and I am your eldest brother because within …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Guidance in Articulating Questions During Retreat"
 menu_title: ""
-description: "Guidance in Articulating Questions During Retreat"
+description: "Keea Atta Kem, received by Maureen Cardoso: “There is not much time left together in this opportunity to answer your questions, your soulful questions …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

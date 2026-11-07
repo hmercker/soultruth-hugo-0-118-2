@@ -1,7 +1,7 @@
 ---
 title: "This your mandate"
 menu_title: ""
-description: "This your mandate"
+description: "Professor Salyards, received by Al Fike: “In order for many to feel that they belong, it is important that you acknowledge these differences and honor them …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

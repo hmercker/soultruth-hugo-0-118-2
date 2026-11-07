@@ -1,7 +1,7 @@
 ﻿---
 title: "Love is the most powerful Thing in all the Universe"
 menu_title: ""
-description: "Love is the most powerful Thing in all the Universe"
+description: "Augustine, received by Al Fike: “Your teacher Augustine here. Nothing will stop you, my children, from doing God’s will and fulfilling that which you are …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

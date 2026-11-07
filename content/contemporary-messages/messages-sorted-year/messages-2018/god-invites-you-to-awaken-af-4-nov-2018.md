@@ -1,7 +1,7 @@
 ---
 title: "God Invites You to Awaken in His Love"
 menu_title: ""
-description: "God Invites You to Awaken in His Love"
+description: "Received by Al Fike: “God is gathering many souls, in many different ways, in prayers, in conversation, in mutual efforts to bring the Divine Love, the …”"
 date: 2020-06-24 08:10:01+11:00
 draft: False
 hidden: True

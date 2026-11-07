@@ -1,7 +1,7 @@
 ---
 title: "Consider being busy in Prayer"
 menu_title: ""
-description: "Consider being busy in Prayer"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “There are many here in your lineage and beyond. I wish to impart one simple bit of advice, a suggestion.”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

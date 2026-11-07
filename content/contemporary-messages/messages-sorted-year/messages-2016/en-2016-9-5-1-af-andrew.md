@@ -1,7 +1,7 @@
 ﻿---
 title: "Be secure upon the Path"
 menu_title: ""
-description: "Be secure upon the Path"
+description: "Andrew, received by Al Fike: “The steps upon your path are many, my beloveds, many increments of understanding, of receiving the Father’s Love within your …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

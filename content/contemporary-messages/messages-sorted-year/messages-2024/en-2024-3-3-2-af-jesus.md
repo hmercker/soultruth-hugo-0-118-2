@@ -1,7 +1,7 @@
 ---
 title: "Do Not Tarry as You Listen To God’s Calling"
 menu_title: ""
-description: "Do Not Tarry as You Listen To God’s Calling"
+description: "Jesus, received by Al Fike: “...beautiful and unique to each one of you. For each of you are unique.”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

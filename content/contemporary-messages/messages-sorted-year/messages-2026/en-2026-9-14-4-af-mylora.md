@@ -1,7 +1,7 @@
 ﻿---
 title: "The Seed of God’s Love Has Been Planted; Continue to Nurture It"
 menu_title: ""
-description: "The Seed of God’s Love Has Been Planted; Continue to Nurture It"
+description: "Mylora, received by Al Fike: “My name is Mylora and I come from these parts many, many centuries ago. The seed has been planted now.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

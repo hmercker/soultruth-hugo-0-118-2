@@ -1,7 +1,7 @@
 ---
 title: "Answers Geoff’s Question"
 menu_title: ""
-description: "Answers Geoff’s Question"
+description: "Josephus, received by Al Fike: “We fully understand the seven spheres that lie on the path of a human post death, before passing into the Celestial Kingdom.”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

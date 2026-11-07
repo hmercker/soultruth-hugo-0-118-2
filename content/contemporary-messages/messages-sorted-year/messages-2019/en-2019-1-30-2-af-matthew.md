@@ -1,7 +1,7 @@
 ---
 title: "Thank you for your effort in prayer"
 menu_title: ""
-description: "Thank you for your effort in prayer"
+description: "Matthew, received by Al Fike: “I’ve come to thank you for your efforts in prayer, for all those who participated in this time together to receive messages …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

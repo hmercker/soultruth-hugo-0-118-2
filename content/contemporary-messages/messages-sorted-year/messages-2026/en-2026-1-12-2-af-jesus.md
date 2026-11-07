@@ -1,7 +1,7 @@
 ---
 title: "There is Much You Do Not Know About Yourselves"
 menu_title: ""
-description: "There is Much You Do Not Know About Yourselves"
+description: "Jesus, received by Al Fike: “With each one comes a blessing, a shift, a change in your hearts and your souls and for some in your consciousness, a change …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

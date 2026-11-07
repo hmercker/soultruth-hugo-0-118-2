@@ -1,7 +1,7 @@
 ﻿---
 title: "Speaking to a Divine Love Retreat Group; It is time to step forward"
 menu_title: ""
-description: "Speaking to a Divine Love Retreat Group; It is time to step forward"
+description: "Augustine, received by Al Fike: “And some of you have struggled through the darkened conditions of this world and have triumphed in this struggle, have …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

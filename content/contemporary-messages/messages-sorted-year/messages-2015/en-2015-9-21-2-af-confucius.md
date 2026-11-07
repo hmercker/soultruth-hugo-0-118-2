@@ -1,7 +1,7 @@
 ﻿---
 title: "God opens Doors for you to understand the Truth"
 menu_title: ""
-description: "God opens Doors for you to understand the Truth"
+description: "Confucius, received by Al Fike: “...beautiful circle, my beloved, beautiful soul. Feel the Love here, my beloved.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

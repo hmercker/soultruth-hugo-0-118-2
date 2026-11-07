@@ -1,7 +1,7 @@
 ---
 title: "Guidance on How to Live Your Life!"
 menu_title: ""
-description: "Guidance on How to Live Your Life!"
+description: "Solomon, received by Al Fike: “As you continue to grow in the Father's Love, you continue to make your way toward at-onement with God and eventual …”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

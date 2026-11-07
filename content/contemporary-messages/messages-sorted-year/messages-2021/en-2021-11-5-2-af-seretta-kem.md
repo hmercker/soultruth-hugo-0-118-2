@@ -1,7 +1,7 @@
 ---
 title: "Continue to Build on the Foundation of Gods Love"
 menu_title: ""
-description: "Continue to Build on the Foundation of Gods Love"
+description: "Seretta Kem, received by Al Fike: “The world is beginning to awaken to the fact that the Earth is changing. They see dimly into the future and realize that …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

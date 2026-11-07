@@ -1,7 +1,7 @@
 ---
 title: "Teaching the Spirits"
 menu_title: ""
-description: "Teaching the Spirits"
+description: "John the Beloved, received by Elizabeth Mack: “Today, I desire to bring the truth of God’s Love to those souls who visit, who are not regularly here who …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

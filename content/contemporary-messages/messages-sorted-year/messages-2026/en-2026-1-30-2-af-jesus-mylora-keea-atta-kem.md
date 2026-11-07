@@ -1,7 +1,7 @@
 ---
 title: "Angels' Promise for the Trinidad Retreat"
 menu_title: ""
-description: "Angels' Promise for the Trinidad Retreat"
+description: "Jesus, Mylora & Keea Atta Kem, received by Al Fike: “Jesus: May the Light of the Father’s Love be within you, with His Hand upon you, my beloveds.”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

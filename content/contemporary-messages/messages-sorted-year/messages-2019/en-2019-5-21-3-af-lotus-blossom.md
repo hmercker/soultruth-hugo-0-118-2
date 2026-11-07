@@ -1,7 +1,7 @@
 ---
 title: "Healing Will Come"
 menu_title: ""
-description: "Healing Will Come"
+description: "Lotus Blossom, received by Al Fike: “I wish to say to you, if you call upon me, I will come and help you with your healing, with those problems and pains …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

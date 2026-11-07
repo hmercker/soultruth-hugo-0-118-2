@@ -1,7 +1,7 @@
 ---
 title: "Your Path Narrows in Simplicity and Joy!"
 menu_title: ""
-description: "Your Path Narrows in Simplicity and Joy!"
+description: "Orion, received by Al Fike: “The path narrows for you all, my friends. The intensity of your development and your focus continues to narrow with it as you …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

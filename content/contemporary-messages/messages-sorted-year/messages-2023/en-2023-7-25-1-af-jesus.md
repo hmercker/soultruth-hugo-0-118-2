@@ -1,7 +1,7 @@
 ---
 title: "Pays Tribute to Al and All of Us on His 70th Birthday"
 menu_title: ""
-description: "Pays Tribute to Al and All of Us on His 70th Birthday"
+description: "Jesus, received by Al Fike: “I have known this child from his very beginnings. I have observed him, I have prayed for him and I have come to know him as a …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

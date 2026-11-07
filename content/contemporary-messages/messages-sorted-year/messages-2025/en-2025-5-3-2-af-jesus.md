@@ -1,7 +1,7 @@
 ---
 title: "Blessings and Praises to Close Anaheim Retreat"
 menu_title: ""
-description: "Blessings and Praises to Close Anaheim Retreat"
+description: "Jesus, received by Al Fike: “You have benefited not only yourselves, but many others who you are not aware of, but who have been praying with you and those …”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

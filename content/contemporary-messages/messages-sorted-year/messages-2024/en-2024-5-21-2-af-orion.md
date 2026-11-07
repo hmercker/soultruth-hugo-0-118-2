@@ -1,7 +1,7 @@
 ---
 title: "Time to Take Responsibility and Choose Harmony Always"
 menu_title: ""
-description: "Time to Take Responsibility and Choose Harmony Always"
+description: "Orion, received by Al Fike: “My friends, it is Orion here. Once again, we meet, we pray, we discuss various topics and issues pertaining to your soul.”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

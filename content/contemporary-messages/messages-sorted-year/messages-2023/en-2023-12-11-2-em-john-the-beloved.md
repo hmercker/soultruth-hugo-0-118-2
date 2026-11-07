@@ -1,7 +1,7 @@
 ---
 title: "God's Plan in Action"
 menu_title: ""
-description: "God's Plan in Action"
+description: "John the Beloved, received by Elizabeth Mack: “You know the truth and you exercise this truth each time you pray, each time you lift up your longings, your …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

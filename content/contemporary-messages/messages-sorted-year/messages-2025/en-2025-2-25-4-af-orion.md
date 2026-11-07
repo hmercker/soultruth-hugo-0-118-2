@@ -1,7 +1,7 @@
 ---
 title: "Conditions Required for Manifestation"
 menu_title: ""
-description: "Conditions Required for Manifestation"
+description: "Orion, received by Al Fike: “May your souls awaken more fully, my beloved brothers and sisters, that this great Love of God, this Essence within the …”"
 date: 2025-03-24 07:21:03+11:00
 draft: False
 hidden: True

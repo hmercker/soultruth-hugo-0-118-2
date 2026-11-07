@@ -1,7 +1,7 @@
 ---
 title: "Life is Not Intended for Toiling, Worrying or Being Downtrodden"
 menu_title: ""
-description: "Life is Not Intended for Toiling, Worrying or Being Downtrodden"
+description: "Mary, received by Al Fike: “I urge you to open your souls and pray. Ask for God to inflow His Love into your souls, for this is what will heal the Earth …”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Pat Yourselves on the Back!"
 menu_title: ""
-description: "Pat Yourselves on the Back!"
+description: "Professor Salyards, received by Al Fike: “Though you assess yourselves and the impediments that you carry as being a serious issue in your lives, I say to …”"
 date: 2025-07-22 07:21:03+00:00
 draft: False
 hidden: True

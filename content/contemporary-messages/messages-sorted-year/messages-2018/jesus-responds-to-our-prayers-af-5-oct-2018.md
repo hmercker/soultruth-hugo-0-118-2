@@ -1,7 +1,7 @@
 ---
 title: "Jesus Responds to Our Prayers of Gratitude"
 menu_title: ""
-description: "Jesus Responds to Our Prayers of Gratitude"
+description: "Received by Al Fike: “The longings of your souls are quite evident to my sight. So you become blessed brothers and sisters of this family of Truth and Love.”"
 date: 2020-06-04 07:27:15+11:00
 draft: False
 hidden: True

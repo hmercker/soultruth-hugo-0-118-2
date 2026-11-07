@@ -1,7 +1,7 @@
 ﻿---
 title: "The Deeper Meaning of Sanctuary"
 menu_title: ""
-description: "The Deeper Meaning of Sanctuary"
+description: "Eileen Caddy, received by Jimbeau Walsh: “I encouraged my brother, whom I have spoken through on many occasions, to be present tonight, because I wished to …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

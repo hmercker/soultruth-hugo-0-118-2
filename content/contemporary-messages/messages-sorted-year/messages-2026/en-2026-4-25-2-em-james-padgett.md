@@ -1,7 +1,7 @@
 ﻿---
 title: "Encouragement to Trust Our Guidance"
 menu_title: ""
-description: "Encouragement to Trust Our Guidance"
+description: "James Padgett, received by Elizabeth Mack: “Oh, she is surprised [^1]. I bumbled my way through it.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

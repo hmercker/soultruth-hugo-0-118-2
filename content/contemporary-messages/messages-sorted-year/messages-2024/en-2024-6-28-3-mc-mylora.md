@@ -1,7 +1,7 @@
 ---
 title: "You Are a Soul with the Vehicle of Your Body and Mind"
 menu_title: ""
-description: "You Are a Soul with the Vehicle of Your Body and Mind"
+description: "Mylora, received by Maureen Cardoso: “The experiences that you are engaging in are helping you to go a little deeper within, into the essence of your soul.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

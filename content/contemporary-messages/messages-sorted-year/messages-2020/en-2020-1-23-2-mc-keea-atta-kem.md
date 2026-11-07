@@ -1,7 +1,7 @@
 ---
 title: "The Grace of Divine Love and at-onement with God"
 menu_title: ""
-description: "The Grace of Divine Love and at-onement with God"
+description: "Keea Atta Kem, received by Maureen Cardoso: “I join you in your circle of light this evening as you gather together opening your hearts and opening your …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "One Person's Prayer Extends Beyond One Person"
 menu_title: ""
-description: "One Person's Prayer Extends Beyond One Person"
+description: "John Hughes, received by Elizabeth Mack: “To all your souls who come to pray, welcome. As you come together to pray, as you lift up your souls, as you lift …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

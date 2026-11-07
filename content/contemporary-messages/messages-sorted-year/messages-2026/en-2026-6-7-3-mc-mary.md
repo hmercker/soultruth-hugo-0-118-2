@@ -1,7 +1,7 @@
 ﻿---
 title: "Mary Tells Us in Time as the Love Takes Form in Our Soul Actions are Informed By Love"
 menu_title: ""
-description: "Mary Tells Us in Time as the Love Takes Form in Our Soul Actions are Informed By Love"
+description: "Mary, received by Maureen Cardoso: “May the peace that passes all understanding fill this room and be carried into your soul. May the Divine Essence fulfil …”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

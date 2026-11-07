@@ -1,7 +1,7 @@
 ﻿---
 title: "God’s Love Will Strengthen and Guide You Forward"
 menu_title: ""
-description: "God’s Love Will Strengthen and Guide You Forward"
+description: "Andrew, received by Al Fike: “I have heard you speak and pray for changes in this world. As you are all well aware, change begins with each individual …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

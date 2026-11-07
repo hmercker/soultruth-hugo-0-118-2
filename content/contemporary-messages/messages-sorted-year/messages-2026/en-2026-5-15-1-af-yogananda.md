@@ -1,7 +1,7 @@
 ﻿---
 title: "Purveyors of Light in a World of Chaos"
 menu_title: ""
-description: "Purveyors of Light in a World of Chaos"
+description: "Yogananda, received by Al Fike: “Love is the most powerful instrument for change in the universe. Whether that be the natural love that you carry and you …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

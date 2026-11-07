@@ -1,7 +1,7 @@
 ﻿---
 title: "The Reluctance to step fully into the Light"
 menu_title: ""
-description: "The Reluctance to step fully into the Light"
+description: "Alec Gaunt, received by Al Fike: “And as you see this union has borne fruit. As you can see there is such a great complement of gifts and abilities amongst …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

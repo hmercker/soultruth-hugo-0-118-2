@@ -1,7 +1,7 @@
 ---
 title: "Be a Light in the Dark Conditions that Assail You"
 menu_title: ""
-description: "Be a Light in the Dark Conditions that Assail You"
+description: "Orion, received by Al Fike: “My friends, Orion comes once again to help uplift you, to teach you and to inspire you. God continues to answer your prayers …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

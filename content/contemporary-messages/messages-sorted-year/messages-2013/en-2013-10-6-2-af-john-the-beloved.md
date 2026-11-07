@@ -1,7 +1,7 @@
 ﻿---
 title: "Angels surround you in great Numbers, more than has ever been in this World"
 menu_title: ""
-description: "Angels surround you in great Numbers, more than has ever been in this World"
+description: "John the Beloved, received by Al Fike: “The river of Love flows into you, and great gushes of living light, of loving essence of the Creator.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

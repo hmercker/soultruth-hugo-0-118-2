@@ -1,7 +1,7 @@
 ---
 title: "Jesus Brings a Blessing to F.U.S.C."
 menu_title: ""
-description: "Jesus Brings a Blessing to F.U.S.C."
+description: "Received by Al Fike: “You have brought me with your prayers and your sentiments. Many times I have heard the conversations of those who seek the Truth.”"
 date: 2018-05-28 22:37:28+00:00
 draft: False
 hidden: True

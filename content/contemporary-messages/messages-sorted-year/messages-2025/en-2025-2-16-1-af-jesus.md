@@ -1,7 +1,7 @@
 ---
 title: "Jesus Knows Each One of Us by Name"
 menu_title: ""
-description: "Jesus Knows Each One of Us by Name"
+description: "Jesus, received by Al Fike: “We ask that God might bless us with His Love. Each of you represents an ember of truth that you are sustaining with prayer, an …”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

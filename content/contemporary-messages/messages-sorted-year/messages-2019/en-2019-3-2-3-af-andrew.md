@@ -1,7 +1,7 @@
 ---
 title: "God Loves You Beyond All Measure"
 menu_title: ""
-description: "God Loves You Beyond All Measure"
+description: "Andrew, received by Al Fike: “God’s healing and peace, may you absorb this into every part of your being and know that God loves you beyond all measure.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

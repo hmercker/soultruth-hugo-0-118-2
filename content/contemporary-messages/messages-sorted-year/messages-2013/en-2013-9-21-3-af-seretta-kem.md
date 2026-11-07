@@ -1,7 +1,7 @@
 ﻿---
 title: "Think Thoughts that are positive and godly and loving"
 menu_title: ""
-description: "Think Thoughts that are positive and godly and loving"
+description: "Seretta Kem, received by Al Fike: “The coming days before you set off for your journey are very important, my children, for your preparation.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

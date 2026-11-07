@@ -1,7 +1,7 @@
 ---
 title: "The Gift of Life is Precious"
 menu_title: ""
-description: "The Gift of Life is Precious"
+description: "Jesus, received by Al Fike: “Each and every moment has the fullness and the richness of great opportunities and expressions of soul awakening that may come …”"
 date: 2025-11-02 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Your purpose in this Gathering is to teach the Prayer Practice"
 menu_title: ""
-description: "Your purpose in this Gathering is to teach the Prayer Practice"
+description: "John the Beloved, received by Al Fike: “And a blessing upon you, my beloveds, for your efforts to bring light into this place, to draw the lost souls …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

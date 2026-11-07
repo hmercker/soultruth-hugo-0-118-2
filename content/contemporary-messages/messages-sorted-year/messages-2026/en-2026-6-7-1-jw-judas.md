@@ -1,7 +1,7 @@
 ﻿---
 title: "God does the heavy Lifting"
 menu_title: ""
-description: "God does the heavy Lifting"
+description: "Judas, received by Jimbeau Walsh: “My brothers and sisters, who have come to share in the bounty of the Father’s love, all of us here honor you for your …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

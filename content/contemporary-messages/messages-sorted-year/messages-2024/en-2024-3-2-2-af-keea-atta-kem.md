@@ -1,7 +1,7 @@
 ---
 title: "Echoes the Importance for All of Us to Spread the Truths of God’s Love"
 menu_title: ""
-description: "Echoes the Importance for All of Us to Spread the Truths of God’s Love"
+description: "Keea Atta Kem, received by Al Fike: “I merely wish to say that what Augustine has to say to you is very important indeed. An active agent of God is what …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

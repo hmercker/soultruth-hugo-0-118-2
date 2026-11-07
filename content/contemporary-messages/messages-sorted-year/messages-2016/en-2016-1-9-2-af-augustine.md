@@ -1,7 +1,7 @@
 ﻿---
 title: "A Garden filled with many lovely and unique Flowers"
 menu_title: ""
-description: "A Garden filled with many lovely and unique Flowers"
+description: "Augustine, received by Al Fike: “It shall do great service in this world, this beautiful thing that you have created, that we all have encouraged and …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

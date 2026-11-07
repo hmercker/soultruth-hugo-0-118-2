@@ -1,7 +1,7 @@
 ---
 title: "Continued Support and Guidance for DV Dozen in God's Plan for the Transformation of the World"
 menu_title: ""
-description: "Continued Support and Guidance for DV Dozen in God's Plan for the Transformation of the World"
+description: "Orion, received by Al Fike: “A rarity in the world, for few truly understand the journey of the soul. Many are attracted to and nurture the journey of the …”"
 date: 2025-06-29 07:21:03+11:00
 draft: False
 hidden: True

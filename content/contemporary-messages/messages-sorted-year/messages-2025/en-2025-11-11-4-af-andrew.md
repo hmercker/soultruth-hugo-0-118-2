@@ -1,7 +1,7 @@
 ---
 title: "Sow the Seeds of Truth"
 menu_title: ""
-description: "Sow the Seeds of Truth"
+description: "Andrew, received by Al Fike: “The ground is ripe for tilling, my beloved friends. It is, in truth, a time to sow seeds of truth.”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

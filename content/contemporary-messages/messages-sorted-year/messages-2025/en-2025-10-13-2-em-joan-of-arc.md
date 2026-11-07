@@ -1,7 +1,7 @@
 ---
 title: "The Work of Prayer"
 menu_title: ""
-description: "The Work of Prayer"
+description: "Joan of Arc, received by Elizabeth Mack: “We come forward today to be with you in your prayers, helping to strengthen your prayers, coming close to open …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

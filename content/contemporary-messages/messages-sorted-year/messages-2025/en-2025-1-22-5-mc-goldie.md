@@ -1,7 +1,7 @@
 ---
 title: "Acknowledges Our Beautiful Bajan Sister Dorothy's Opening Prayer"
 menu_title: ""
-description: "Acknowledges Our Beautiful Bajan Sister Dorothy's Opening Prayer"
+description: "Goldie, received by Maureen Cardoso: “This dear child of God, who has just spoken from her heart and soul, has lit up the room, has cast a dear and sincere …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

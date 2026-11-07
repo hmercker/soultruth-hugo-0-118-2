@@ -1,7 +1,7 @@
 ---
 title: "The Nature of Celestial Angelhood"
 menu_title: ""
-description: "The Nature of Celestial Angelhood"
+description: "Matthew, received by Elizabeth Mack: “May the breath of God be upon your souls. We who are here have felt your sincere desires to be closer to the Father …”"
 date: 2025-07-19 07:21:03+11:00
 draft: False
 hidden: True

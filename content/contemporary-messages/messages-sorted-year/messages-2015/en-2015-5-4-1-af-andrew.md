@@ -1,7 +1,7 @@
 ﻿---
 title: "The coming Retreats have a great Importance"
 menu_title: ""
-description: "The coming Retreats have a great Importance"
+description: "Andrew, received by Al Fike: “The coming retreats have a great importance. There is purpose and there are great outcomes that are possible with the …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

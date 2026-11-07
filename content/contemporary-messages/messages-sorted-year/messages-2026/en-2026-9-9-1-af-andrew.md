@@ -1,7 +1,7 @@
 ﻿---
 title: "It Is in Service that Fulfillment Comes"
 menu_title: ""
-description: "It Is in Service that Fulfillment Comes"
+description: "Andrew, received by Al Fike: “The sun shines upon you, my beloved souls. That inner light will continue to grow as you receive more of this blessing of the …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Come To Know God"
 menu_title: ""
-description: "Come To Know God"
+description: "Paul of Tarsus, received by Elizabeth Mack: “God gives and gives and gives, desiring only that His children love as they are loved by Him, with the Essence …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

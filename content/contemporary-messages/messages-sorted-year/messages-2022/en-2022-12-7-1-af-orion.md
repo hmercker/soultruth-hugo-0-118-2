@@ -1,7 +1,7 @@
 ---
 title: "May You Find Unity and Harmony Together"
 menu_title: ""
-description: "May You Find Unity and Harmony Together"
+description: "Orion, received by Al Fike: “Oh, blessed children of light, I am Orion. May you find unity and alignment together so that you may be a formidable force of …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

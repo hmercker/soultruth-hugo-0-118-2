@@ -1,7 +1,7 @@
 ---
 title: "Journey of Soul Consciousness"
 menu_title: ""
-description: "Journey of Soul Consciousness"
+description: "Michael Collier, received by Al Fike: “May God’s Love continue to flow into your souls, and may you yearn for this with great intensity and longing, for …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

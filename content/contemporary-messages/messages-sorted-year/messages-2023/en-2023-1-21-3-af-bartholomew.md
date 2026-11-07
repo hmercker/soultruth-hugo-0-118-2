@@ -1,7 +1,7 @@
 ---
 title: "Are You Willing to Receive God's Great Gift"
 menu_title: ""
-description: "Are You Willing to Receive God's Great Gift"
+description: "Bartholomew, received by Al Fike: “When I walked the Earth, I was a black man. I experienced the healing Touch of God’s Love while I was associated with …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

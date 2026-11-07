@@ -1,7 +1,7 @@
 ---
 title: "Whether or Not They Accept It, This Truth Takes Root in the Souls of Those Who Hear It"
 menu_title: ""
-description: "Whether or Not They Accept It, This Truth Takes Root in the Souls of Those Who Hear It"
+description: "James Tudor Sr, received by Al Fike: “I made my efforts and inroads to bring this truth to this island. Some took it seriously and some did not.”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

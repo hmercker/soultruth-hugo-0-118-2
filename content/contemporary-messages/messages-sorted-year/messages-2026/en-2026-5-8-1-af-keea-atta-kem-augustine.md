@@ -1,7 +1,7 @@
 ﻿---
 title: "The Lattice of Light: Strengthening the Network of Divine Love"
 menu_title: ""
-description: "The Lattice of Light: Strengthening the Network of Divine Love"
+description: "Keea Atta Kem & Augustine, received by Al Fike: “Keea Atta Kem: May the blessings of the Father's Love be yours. When you do so, you establish and …”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

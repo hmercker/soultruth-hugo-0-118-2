@@ -1,7 +1,7 @@
 ---
 title: "Be Diligent and Make Great Effort"
 menu_title: ""
-description: "Be Diligent and Make Great Effort"
+description: "Confucius, received by Al Fike: “You will benefit greatly from our presence and our assistance. Little birds, we want you to fly high into the light, to …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

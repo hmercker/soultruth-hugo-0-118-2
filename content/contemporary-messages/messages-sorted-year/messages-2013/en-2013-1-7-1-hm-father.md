@@ -1,7 +1,7 @@
 ﻿---
 title: "Father’s Love"
 menu_title: ""
-description: "Father’s Love"
+description: "Father, received by Helge Mercker: “My child, I am here, your loving Father. Do not falter to the depths of the construct of your material mind, revel in …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

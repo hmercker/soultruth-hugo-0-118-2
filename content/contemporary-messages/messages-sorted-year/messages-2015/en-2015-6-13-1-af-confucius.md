@@ -1,7 +1,7 @@
 ﻿---
 title: "The many Benefits of praying in a Circle of Light"
 menu_title: ""
-description: "The many Benefits of praying in a Circle of Light"
+description: "Confucius, received by Al Fike: “For each of you have many spirits of all levels of progression with you as you walk in this world.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

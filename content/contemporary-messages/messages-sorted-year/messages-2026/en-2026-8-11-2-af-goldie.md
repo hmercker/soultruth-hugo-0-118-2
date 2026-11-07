@@ -1,7 +1,7 @@
 ﻿---
 title: "The Joy of Being Loved by God"
 menu_title: ""
-description: "The Joy of Being Loved by God"
+description: "Goldie, received by Al Fike: “May God's Love enter your souls and may you know the joy of it. I know there are many things in your world that do not bring …”"
 date: 2026-09-17 00:00:00+00:00
 draft: False
 hidden: True

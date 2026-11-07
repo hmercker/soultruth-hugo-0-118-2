@@ -1,7 +1,7 @@
 ---
 title: "Grace Jordan Speaks Truth to Her Son"
 menu_title: ""
-description: "Grace Jordan Speaks Truth to Her Son"
+description: "Grace Jordan, received by Al Fike: “You have been drifting along, allowing the winds to take you where it will and now you have come ashore.”"
 date: 2025-04-08 07:21:03+00:00
 draft: False
 hidden: True

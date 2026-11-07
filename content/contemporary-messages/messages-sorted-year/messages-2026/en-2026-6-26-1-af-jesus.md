@@ -1,7 +1,7 @@
 ﻿---
 title: "Receive the Abundant Gift of the Father’s Love"
 menu_title: ""
-description: "Receive the Abundant Gift of the Father’s Love"
+description: "Jesus, received by Al Fike: “May the Father's Love enter your soul, my beloveds. All the blessings that God has to give to the Earth, all that is available …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "When the Soul is in Precedence"
 menu_title: ""
-description: "When the Soul is in Precedence"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “Such a regal and light-filled soul he is. I know many of you struggle with the dichotomy of living on earth …”"
 date: 2025-04-19 07:21:03+11:00
 draft: False
 hidden: True

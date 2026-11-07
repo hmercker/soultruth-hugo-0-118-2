@@ -1,7 +1,7 @@
 ﻿---
 title: "The Door to God’s Love is Open to You"
 menu_title: ""
-description: "The Door to God’s Love is Open to You"
+description: "Jesus, received by Al Fike: “I continue to work with him and through him, as I do with many, we do not waste our moments in idleness.”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

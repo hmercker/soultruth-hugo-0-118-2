@@ -1,7 +1,7 @@
 ---
 title: "Be Together as a Family of Light in this World"
 menu_title: ""
-description: "Be Together as a Family of Light in this World"
+description: "Professor Salyards, received by Al Fike: “I greet you and I welcome you back to your collaborations and continued unfolding of the realization of this plan.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

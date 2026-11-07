@@ -1,7 +1,7 @@
 ﻿---
 title: "The Door opens"
 menu_title: ""
-description: "The Door opens"
+description: "Peter, received by Al Fike: “Your Heavenly Father eagerly awaits your prayers and the abundance of His Love awaits its bestowal within your souls, an …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

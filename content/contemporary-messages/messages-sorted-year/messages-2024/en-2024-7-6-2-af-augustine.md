@@ -1,7 +1,7 @@
 ---
 title: "The Way is Clear!"
 menu_title: ""
-description: "The Way is Clear!"
+description: "Augustine, received by Al Fike: “Very little will hold you back, beloved souls. I want you to know that it is a clear road ahead.”"
 date: 2025-03-17 07:21:03+11:00
 draft: False
 hidden: True

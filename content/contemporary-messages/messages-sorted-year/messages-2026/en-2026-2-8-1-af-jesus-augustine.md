@@ -1,7 +1,7 @@
 ---
 title: "Faith and the Soul 1: Step Forward in Faith to Fulfill Your Destiny"
 menu_title: ""
-description: "Faith and the Soul 1: Step Forward in Faith to Fulfill Your Destiny"
+description: "Jesus & Augustine, received by Al Fike: “Jesus: Beloved brothers and sisters, I come. For these circles are precious and not common in your world, but the …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

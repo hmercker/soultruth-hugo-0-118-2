@@ -1,7 +1,7 @@
 ---
 title: "Commends Us for Our Capacities for Strength, Persistence and Choices to Serve God"
 menu_title: ""
-description: "Commends Us for Our Capacities for Strength, Persistence and Choices to Serve God"
+description: "Andrew, received by Al Fike: “Your Earth sleeps in acquiescence. It continues to seek out the material gratification that comes with desires of the flesh.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

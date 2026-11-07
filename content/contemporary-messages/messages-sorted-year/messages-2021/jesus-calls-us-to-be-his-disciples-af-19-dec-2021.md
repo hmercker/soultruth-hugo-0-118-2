@@ -1,7 +1,7 @@
 ---
 title: "Jesus Calls Us to be His Disciples"
 menu_title: ""
-description: "Jesus Calls Us to be His Disciples"
+description: "Received by Al Fike: “I thank you for your prayers and your acknowledgment of my mission to help open the hearts and souls of humanity to the great …”"
 date: 2023-04-02 07:21:03+11:00
 draft: False
 hidden: True

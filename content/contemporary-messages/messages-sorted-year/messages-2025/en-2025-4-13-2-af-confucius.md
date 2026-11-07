@@ -1,7 +1,7 @@
 ---
 title: "Praises for the Children of Light"
 menu_title: ""
-description: "Praises for the Children of Light"
+description: "Confucius, received by Al Fike: “I bring love and praise for my friends on Earth. I praise you because you have chosen the highest path, the Path of God's …”"
 date: 2025-04-22 07:21:03+11:00
 draft: False
 hidden: True

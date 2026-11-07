@@ -1,7 +1,7 @@
 ---
 title: "Portal of Light at Fitzroy Falls"
 menu_title: ""
-description: "Portal of Light at Fitzroy Falls"
+description: "Seretta Kem, received by Maureen Cardoso: “I worked much behind the scenes during these days assisting with the portal that is here in your home.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

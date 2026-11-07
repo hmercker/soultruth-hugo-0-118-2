@@ -1,7 +1,7 @@
 ﻿---
 title: "God has lit a Spark within you"
 menu_title: ""
-description: "God has lit a Spark within you"
+description: "Confucius, received by Al Fike: “God has lit a spark within each soul in this circle, a spark that will change you, beloved souls, and will inspire you …”"
 date: 2026-09-29 00:00:00+00:00
 draft: False
 hidden: True

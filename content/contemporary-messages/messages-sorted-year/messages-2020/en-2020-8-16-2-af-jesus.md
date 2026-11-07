@@ -1,7 +1,7 @@
 ---
 title: "You Will Know God's Will"
 menu_title: ""
-description: "You Will Know God's Will"
+description: "Jesus, received by Al Fike: “I give you with a blessing. Each knows one another through their soul’s knowings that they are truly bonded in this Love and …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

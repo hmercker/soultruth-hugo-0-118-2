@@ -1,7 +1,7 @@
 ---
 title: "Open Yourselves in Anticipation"
 menu_title: ""
-description: "Open Yourselves in Anticipation"
+description: "Augustine, received by Al Fike: “A special blessing from God, bringing you together in love in harmony, in joy. In these times together, so the bonds will …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

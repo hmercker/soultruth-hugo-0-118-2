@@ -1,7 +1,7 @@
 ---
 title: "Have Compassion for Yourselves"
 menu_title: ""
-description: "Have Compassion for Yourselves"
+description: "Keea Atta Kem, received by Al Fike: “You must treat yourselves tenderly, beloved souls, for in this stage of development, you are quite vulnerable.”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

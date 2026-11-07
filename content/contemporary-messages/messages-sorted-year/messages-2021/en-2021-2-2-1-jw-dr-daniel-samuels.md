@@ -1,7 +1,7 @@
 ---
 title: "Encouragement to Read Messages and the Benefits Received"
 menu_title: ""
-description: "Encouragement to Read Messages and the Benefits Received"
+description: "Dr Daniel Samuels, received by Jimbeau Walsh: “Samuels, along with my dear brother James, who during our days on Earth, I spent much time within prayer, in …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

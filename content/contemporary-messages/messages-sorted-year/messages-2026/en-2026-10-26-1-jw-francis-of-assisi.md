@@ -1,7 +1,7 @@
 ﻿---
 title: "The Seventh Sense and Prayer"
 menu_title: ""
-description: "The Seventh Sense and Prayer"
+description: "Francis of Assisi, received by Jimbeau Walsh: “Let us allow our busy minds to step back, that our souls may be ascendant, and our longings may take …”"
 date: 2026-11-01 00:00:00+00:00
 draft: False
 hidden: True

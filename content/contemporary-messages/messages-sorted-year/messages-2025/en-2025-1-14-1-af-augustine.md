@@ -1,7 +1,7 @@
 ---
 title: "Continues to Call You to Service"
 menu_title: ""
-description: "Continues to Call You to Service"
+description: "Augustine, received by Al Fike: “Jesus continues to call you to service, beloved souls. I know you have one ear listening and one ear directed toward the …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

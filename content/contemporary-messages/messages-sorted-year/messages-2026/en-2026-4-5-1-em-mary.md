@@ -1,7 +1,7 @@
 ﻿---
 title: "A Mother's Faith"
 menu_title: ""
-description: "A Mother's Faith"
+description: "Mary, received by Elizabeth Mack: “It was a very different experience for me as a mother. Yet, even in that moment, I held onto God’s promise for a new …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

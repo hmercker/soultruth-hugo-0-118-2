@@ -1,7 +1,7 @@
 ﻿---
 title: "Love will indeed bring you all together"
 menu_title: ""
-description: "Love will indeed bring you all together"
+description: "Jesus, received by Al Fike: “I wish you to know that each soul drawn here for the coming days, hungers for the Love of God.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

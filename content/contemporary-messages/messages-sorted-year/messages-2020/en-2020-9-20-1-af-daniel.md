@@ -1,7 +1,7 @@
 ---
 title: "God Lights a Flame with Each of Us"
 menu_title: ""
-description: "God Lights a Flame with Each of Us"
+description: "Daniel, received by Al Fike: “There are many, many angels with you today, angels who come to support you in your prayers and to be with God.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

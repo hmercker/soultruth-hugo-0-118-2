@@ -1,7 +1,7 @@
 ﻿---
 title: "Honouring Karen Swanson: How Her Gifts Bless the Local Community Weaving the Fabric of Love into the T&T Circle"
 menu_title: ""
-description: "Honouring Karen Swanson: How Her Gifts Bless the Local Community Weaving the Fabric of Love into the T&T Circle"
+description: "Augustine, received by Maureen Cardoso: “I would like to make a few comments about the dear sister (Karen) who sits to my left and about how she brings the …”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

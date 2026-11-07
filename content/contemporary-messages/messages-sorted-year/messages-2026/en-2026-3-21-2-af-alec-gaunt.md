@@ -1,7 +1,7 @@
 ﻿---
 title: "Alec Gaunt Describes His Role in Creating Circles of Light and Explains the Process of Awakening in Love"
 menu_title: ""
-description: "Alec Gaunt Describes His Role in Creating Circles of Light and Explains the Process of Awakening in Love"
+description: "Alec Gaunt, received by Al Fike: “May the blessings of this Love be with you, my friends. May you open to its gifts.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

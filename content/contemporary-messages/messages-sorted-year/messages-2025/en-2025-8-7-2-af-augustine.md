@@ -1,7 +1,7 @@
 ---
 title: "Lesson on Discernment"
 menu_title: ""
-description: "Lesson on Discernment"
+description: "Augustine, received by Al Fike: “I wish to make a brief comment about discernment before our beloved Keea speaks. True discernment comes from the soul.”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

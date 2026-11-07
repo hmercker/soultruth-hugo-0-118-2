@@ -1,7 +1,7 @@
 ---
 title: "Healing Blessing"
 menu_title: ""
-description: "Healing Blessing"
+description: "Keea Atta Kem, received by Al Fike: “Blessings to you, beloveds. Each of you are being led to this pool of light, which feels like water, where you may …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

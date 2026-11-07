@@ -1,7 +1,7 @@
 ---
 title: "How to Counteract the Human Condition Vol 2 msg 3"
 menu_title: ""
-description: "How to Counteract the Human Condition Vol 2 msg 3"
+description: "Received by Al Fike: “I wish to discuss the subject of how to neutralize and combat the human condition upon your Earth plane, how you may bring greater …”"
 date: 2021-05-03 07:21:03+11:00
 draft: False
 hidden: True

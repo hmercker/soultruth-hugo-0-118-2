@@ -1,7 +1,7 @@
 ---
 title: "Seek God's Gift of Love"
 menu_title: ""
-description: "Seek God's Gift of Love"
+description: "Augustine, received by Al Fike: “You have been washed in the blessing of God’s Love and Light. Allow this gift to wash over you and replenish you.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Greetings from Victor Summers"
 menu_title: ""
-description: "Greetings from Victor Summers"
+description: "Received by Al Fike: “My dear KO, I love you so dearly and you were such a good friend to me when we walked together in this world.”"
 date: 2017-03-15 04:43:00+00:00
 draft: False
 hidden: True

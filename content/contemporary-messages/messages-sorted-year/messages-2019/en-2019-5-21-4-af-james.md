@@ -1,7 +1,7 @@
 ---
 title: "You Are Upheld"
 menu_title: ""
-description: "You Are Upheld"
+description: "James, received by Al Fike: “I greet each one of you, beloved and beautiful children of God, and I say to you that you are loved, that you have found the …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

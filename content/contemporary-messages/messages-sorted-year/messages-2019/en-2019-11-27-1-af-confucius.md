@@ -1,7 +1,7 @@
 ---
 title: "Drink Deep These Waters"
 menu_title: ""
-description: "Drink Deep These Waters"
+description: "Confucius, received by Al Fike: “Blessings to you, beloved souls. The winds of change and opportunity continue to blow within your midst, beloved souls …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

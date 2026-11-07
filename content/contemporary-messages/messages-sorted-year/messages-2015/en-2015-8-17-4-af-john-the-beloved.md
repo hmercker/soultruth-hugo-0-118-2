@@ -1,7 +1,7 @@
 ﻿---
 title: "Drink deep these living Waters"
 menu_title: ""
-description: "Drink deep these living Waters"
+description: "John the Beloved, received by Al Fike: “A great Light builds within your midst and the angels crowd around you, my beloveds. Helping you to build this …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

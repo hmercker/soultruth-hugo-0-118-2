@@ -1,7 +1,7 @@
 ---
 title: "The Book of Soul"
 menu_title: ""
-description: "The Book of Soul"
+description: "Augustine, received by Helge Mercker: “In the quest to realise and recognise the inner parts of oneself, one is required to spend time alone in …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

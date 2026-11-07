@@ -1,7 +1,7 @@
 ---
 title: "Healing Blessing"
 menu_title: ""
-description: "Healing Blessing"
+description: "Mylora, received by Al Fike: “I have come to bring some healing for each one of you for your physical bodies and to bring a special little something that …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

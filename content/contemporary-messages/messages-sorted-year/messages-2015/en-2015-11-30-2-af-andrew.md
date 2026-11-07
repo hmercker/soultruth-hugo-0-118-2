@@ -1,7 +1,7 @@
 ﻿---
 title: "The Work begins and you are ready"
 menu_title: ""
-description: "The Work begins and you are ready"
+description: "Andrew, received by Al Fike: “May the peace that passes all understanding may be yours, my beloved, dear souls, as you continue to gather together in …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

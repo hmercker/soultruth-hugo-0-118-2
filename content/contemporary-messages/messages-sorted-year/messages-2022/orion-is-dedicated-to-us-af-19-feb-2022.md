@@ -1,7 +1,7 @@
 ---
 title: "Orion is Dedicated to Our Individual and Collective Work"
 menu_title: ""
-description: "Orion is Dedicated to Our Individual and Collective Work"
+description: "Received by Al Fike: “I sometimes wonder where my home is. Is it on the planet from which I inhabit or is it here on the Earth plane for I spend much time …”"
 date: 2022-02-21 07:21:03+11:00
 draft: False
 hidden: True

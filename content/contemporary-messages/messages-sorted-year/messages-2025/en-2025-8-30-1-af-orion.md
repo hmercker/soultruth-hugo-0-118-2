@@ -1,7 +1,7 @@
 ---
 title: "You Are the Determining Factor in Your Progress"
 menu_title: ""
-description: "You Are the Determining Factor in Your Progress"
+description: "Orion, received by Al Fike: “The uprising of your souls is paramount at this time, my beautiful friends. All efforts are being made to help you in that …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

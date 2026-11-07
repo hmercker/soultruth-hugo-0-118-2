@@ -1,7 +1,7 @@
 ---
 title: "Valentine’s Day Message for All"
 menu_title: ""
-description: "Valentine’s Day Message for All"
+description: "Augustine, received by Al Fike: “For in time, this Love that you carry within your souls will overshadow and absorb the natural love that you possess, the …”"
 date: 2025-03-13 07:21:03+11:00
 draft: False
 hidden: True

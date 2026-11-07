@@ -1,7 +1,7 @@
 ---
 title: "The Winds of Change Are Coming"
 menu_title: ""
-description: "The Winds of Change Are Coming"
+description: "Andrew, received by Al Fike: “The winds of change are coming, my friends. They blow across the world.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

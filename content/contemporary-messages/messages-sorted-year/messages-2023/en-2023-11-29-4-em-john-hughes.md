@@ -1,7 +1,7 @@
 ---
 title: "Welcomes Us to Running Springs, California"
 menu_title: ""
-description: "Welcomes Us to Running Springs, California"
+description: "John Hughes, received by Elizabeth Mack: “Please recognize that there will be others unlike yourselves who will be in attendance, in part because of their …”"
 date: 2025-07-01 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Mary Comes to Uplift and Bless at Les Chapel Monet Guernsey"
 menu_title: ""
-description: "Mary Comes to Uplift and Bless at Les Chapel Monet Guernsey"
+description: "Received by Al Fike: “I too come to uplift and bless my beloved brothers and sisters in the world. That they may see the way forward in light and know the …”"
 date: 2022-06-20 07:21:03+11:00
 draft: False
 hidden: True

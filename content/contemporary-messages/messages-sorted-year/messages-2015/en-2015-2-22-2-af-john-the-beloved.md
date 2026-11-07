@@ -1,7 +1,7 @@
 ﻿---
 title: "You cannot do this on your own"
 menu_title: ""
-description: "You cannot do this on your own"
+description: "John the Beloved, received by Al Fike: “Carry this light with you as you journey home. Contemplate the words that were spoken, the conversations you have …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

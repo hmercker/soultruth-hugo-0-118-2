@@ -1,7 +1,7 @@
 ﻿---
 title: "Encouragement to newcomers to receive God’s Love"
 menu_title: ""
-description: "Encouragement to newcomers to receive God’s Love"
+description: "Joseph, received by Al Fike: “Every soul possesses a capacity to love but not every soul possesses the Divine Essence which is God’s Love and God is Love …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

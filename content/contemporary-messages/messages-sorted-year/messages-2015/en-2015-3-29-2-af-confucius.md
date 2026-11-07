@@ -1,7 +1,7 @@
 ﻿---
 title: "Know that your are loved"
 menu_title: ""
-description: "Know that your are loved"
+description: "Confucius, received by Al Fike: “It seems that some of my countrymen do not understand the courtesies of prayer and meditation.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

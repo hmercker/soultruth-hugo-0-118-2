@@ -1,7 +1,7 @@
 ﻿---
 title: "Seeking the Divine Love will bring many Rewards"
 menu_title: ""
-description: "Seeking the Divine Love will bring many Rewards"
+description: "Augustine, received by Al Fike: “You all know the Truth within your souls. It burns brightly within you, my beloveds, and you all seek to understand this …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

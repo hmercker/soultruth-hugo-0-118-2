@@ -1,7 +1,7 @@
 ---
 title: "Precious Flowers of God"
 menu_title: ""
-description: "Precious Flowers of God"
+description: "Confucius, received by Al Fike: “Precious souls, I am Confucius. Allow yourselves to open to the blessings offered.”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

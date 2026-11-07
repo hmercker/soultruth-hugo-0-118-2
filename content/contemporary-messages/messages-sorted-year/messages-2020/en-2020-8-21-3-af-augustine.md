@@ -1,7 +1,7 @@
 ---
 title: "Fear Will not Exist with the Detachment that Comes"
 menu_title: ""
-description: "Fear Will not Exist with the Detachment that Comes"
+description: "Augustine, received by Al Fike: “Your efforts do not go unrewarded for in your prayers, in your efforts to be close to God, in your efforts to change your …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

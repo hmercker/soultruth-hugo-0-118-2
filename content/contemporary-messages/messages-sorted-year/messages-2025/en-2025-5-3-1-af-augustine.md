@@ -1,7 +1,7 @@
 ---
 title: "It Is The Outliers and Non-Conformists Who Will Work Outside Norms of Society that Will Change the World!"
 menu_title: ""
-description: "It Is The Outliers and Non-Conformists Who Will Work Outside Norms of Society that Will Change the World!"
+description: "Augustine, received by Al Fike: “Your groups will continue to be somewhat disparate, outliers, individuals who do not fit into the mainstream society.”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

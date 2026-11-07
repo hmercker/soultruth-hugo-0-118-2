@@ -1,7 +1,7 @@
 ---
 title: "Much Work is Being Accomplished"
 menu_title: ""
-description: "Much Work is Being Accomplished"
+description: "Jesus, received by Al Fike: “….souls who are yet unborn the opportunity and blessings to live a life of joy, fulfillment.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

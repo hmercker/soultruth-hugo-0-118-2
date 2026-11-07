@@ -1,7 +1,7 @@
 ---
 title: "Preview of Things to Come"
 menu_title: ""
-description: "Preview of Things to Come"
+description: "Seretta Kem, received by Al Fike: “My love is with you today, beloved souls. The light is evident in your loving care for one another and your desire to be …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

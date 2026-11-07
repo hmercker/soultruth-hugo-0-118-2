@@ -1,7 +1,7 @@
 ---
 title: "God's plan and our calling"
 menu_title: ""
-description: "God's plan and our calling"
+description: "Jesus, received by Al Fike: “I wish to speak to you about God’s plan for the salvation of humanity and that I see that each of you have committed yourself …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

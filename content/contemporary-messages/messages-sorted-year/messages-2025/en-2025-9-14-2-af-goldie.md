@@ -1,7 +1,7 @@
 ---
 title: "You Defy the Conditions of this World Through Laughter and Joy"
 menu_title: ""
-description: "You Defy the Conditions of this World Through Laughter and Joy"
+description: "Goldie, received by Al Fike: “When you laugh, you overcome the sorrow of this world. You have a desire to be defiant against the conditions of this world.”"
 date: 2025-10-25 06:00:00+00:00
 draft: False
 hidden: True

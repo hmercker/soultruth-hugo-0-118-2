@@ -1,7 +1,7 @@
 ﻿---
 title: "Tahlia Describes Her Healing Gift and Explains The Soul’s Path to Communion with God"
 menu_title: ""
-description: "Tahlia Describes Her Healing Gift and Explains The Soul’s Path to Communion with God"
+description: "Tahlia, received by Al Fike: “I have not spoken often through this instrument, but I have been with you. I lived in the Inca Empire many years ago and I …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

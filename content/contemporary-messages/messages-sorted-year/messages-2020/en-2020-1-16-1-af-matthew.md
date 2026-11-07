@@ -1,7 +1,7 @@
 ---
 title: "The Power of Prayer and Free Will"
 menu_title: ""
-description: "The Power of Prayer and Free Will"
+description: "Matthew, received by Al Fike: “I wish to comment on the power of prayer since this conversation has been shared amongst you and many different perspectives …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

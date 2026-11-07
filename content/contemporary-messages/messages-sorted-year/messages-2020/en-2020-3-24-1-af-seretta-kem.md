@@ -1,7 +1,7 @@
 ---
 title: "The Joy of Your Soul Is Your Anchor to God"
 menu_title: ""
-description: "The Joy of Your Soul Is Your Anchor to God"
+description: "Seretta Kem, received by Al Fike: “Friends, this is Seretta Kem. I wish to add to my message of the other night to clear up any confusion others may have …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

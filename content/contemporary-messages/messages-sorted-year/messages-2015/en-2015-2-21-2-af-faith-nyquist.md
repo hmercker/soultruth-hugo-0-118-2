@@ -1,7 +1,7 @@
 ﻿---
 title: "God uses many Instruments in this World"
 menu_title: ""
-description: "God uses many Instruments in this World"
+description: "Faith Nyquist, received by Al Fike: “Well, my beloved friends, did I not say that my guidance was correct? And indeed, you have doubt.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

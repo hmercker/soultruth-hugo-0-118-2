@@ -1,7 +1,7 @@
 ﻿---
 title: "Ask the Father to Show You All That You Have Been Given"
 menu_title: ""
-description: "Ask the Father to Show You All That You Have Been Given"
+description: "Jesus, received by Elizabeth Mack: “Dear children of our Father, my Father has sent me here to bless you, to raise you, your souls in this Love that He is …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

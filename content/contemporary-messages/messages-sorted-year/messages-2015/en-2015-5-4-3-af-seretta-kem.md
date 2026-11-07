@@ -1,7 +1,7 @@
 ﻿---
 title: "You all have received Healing Tonight"
 menu_title: ""
-description: "You all have received Healing Tonight"
+description: "Seretta Kem, received by Al Fike: “You have each received healing this night and received the Love of God within your souls and I wish to say to you, those …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

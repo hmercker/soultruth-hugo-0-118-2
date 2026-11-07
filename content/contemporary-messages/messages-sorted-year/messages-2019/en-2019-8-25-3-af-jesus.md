@@ -1,7 +1,7 @@
 ---
 title: "Jesus is with Us on Our Journey"
 menu_title: ""
-description: "Jesus is with Us on Our Journey"
+description: "Jesus, received by Al Fike: “I bring a blessing of love for you all, beloved souls, a blessing that will assist you on your journey to help awaken your …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

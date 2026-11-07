@@ -1,7 +1,7 @@
 ---
 title: "Encouragement from Jesus"
 menu_title: ""
-description: "Encouragement from Jesus"
+description: "Received by Al Fike: “Bless these thy children who have within them a great purpose to fulfil in this life. Put your Hand upon them, dear Father, that with …”"
 date: 2017-03-15 04:43:00+00:00
 draft: False
 hidden: True

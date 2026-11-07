@@ -1,7 +1,7 @@
 ---
 title: "The Depth of Healing ministrations is a great blessing to our efforts"
 menu_title: ""
-description: "The Depth of Healing ministrations is a great blessing to our efforts"
+description: "Seretta Kem, received by Al Fike: “We are engaged in the process of clearing many toxins, blockages, dark aspects of energies within you.”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

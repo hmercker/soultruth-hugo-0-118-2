@@ -1,7 +1,7 @@
 ---
 title: "White Eagle comes to Offer Healing"
 menu_title: ""
-description: "White Eagle comes to Offer Healing"
+description: "Received by Jimbeau Walsh: “In my time on earth we relied on the Great Spirit, The Creator, God, for our spiritual sustenance and we had faith in the …”"
 date: 2020-08-06 07:21:03+11:00
 draft: False
 hidden: True

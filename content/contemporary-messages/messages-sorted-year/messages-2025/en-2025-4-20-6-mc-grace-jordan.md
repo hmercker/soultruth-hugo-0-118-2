@@ -1,7 +1,7 @@
 ---
 title: "Be Courageous in the Face of Your Challenges"
 menu_title: ""
-description: "Be Courageous in the Face of Your Challenges"
+description: "Grace Jordan, received by Maureen Cardoso: “Dear gracious souls, I am Grace. When you look at challenges, it can often stir within you a sense of being …”"
 date: 2025-06-21 07:21:03+11:00
 draft: False
 hidden: True

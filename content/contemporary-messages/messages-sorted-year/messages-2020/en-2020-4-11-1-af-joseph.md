@@ -1,7 +1,7 @@
 ---
 title: "You Will Learn to be Awake Within Your Souls"
 menu_title: ""
-description: "You Will Learn to be Awake Within Your Souls"
+description: "Joseph, received by Al Fike: “You will learn to be awake within your souls. You must have patience with yourselves.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

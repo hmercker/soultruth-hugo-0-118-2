@@ -1,7 +1,7 @@
 ---
 title: "Conflict Resolution"
 menu_title: ""
-description: "Conflict Resolution"
+description: "Matthew, received by Helge Mercker: “My daughter, I am Matthew and I bring you my love and greetings in this morning hour. “Resolution of conflict” are the …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

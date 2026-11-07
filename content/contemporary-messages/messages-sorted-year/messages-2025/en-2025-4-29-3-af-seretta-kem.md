@@ -1,7 +1,7 @@
 ---
 title: "Expresses His Happiness With Our Soul Progression"
 menu_title: ""
-description: "Expresses His Happiness With Our Soul Progression"
+description: "Seretta Kem, received by Al Fike: “Indeed, how often do we have this opportunity to do so? How fortuitous it is to have the gifts and the conditions that …”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

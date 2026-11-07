@@ -1,7 +1,7 @@
 ﻿---
 title: "Open your Eyes and be loving in this World"
 menu_title: ""
-description: "Open your Eyes and be loving in this World"
+description: "Confucius, received by Al Fike: “You must acknowledge your own strength, that you do, despite these terrible conditions and distractions and burdens, that …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

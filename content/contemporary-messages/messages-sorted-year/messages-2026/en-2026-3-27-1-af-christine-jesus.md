@@ -1,7 +1,7 @@
 ﻿---
 title: "Becoming Instruments of Light in a Changing World"
 menu_title: ""
-description: "Becoming Instruments of Light in a Changing World"
+description: "Christine & Jesus, received by Al Fike: “Some of you know me, some of you do not, but know that even I, who come from far away, am part of your efforts to …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

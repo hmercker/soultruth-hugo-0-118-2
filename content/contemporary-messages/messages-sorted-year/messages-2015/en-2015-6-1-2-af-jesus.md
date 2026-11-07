@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessing"
 menu_title: ""
-description: "Blessing"
+description: "Jesus, received by Al Fike: “The Father enfolds you in His Love. He carries you upon the Divine Path to bring you to that great destination of at-onement …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

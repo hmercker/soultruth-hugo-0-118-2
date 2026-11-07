@@ -1,5 +1,6 @@
 ---
 title: "Continues to Encourage Us to Soul Consciousness"
+description: "Received by Al Fike: “I want to speak about the choices that one makes with each moment of each day, what you like to engage in with your minds and your souls.”"
 menu_title: "Orion Continues to Encourage Us to Soul Consciousness"
 date: 2024-11-19 07:21:03+11:00
 draft: False

@@ -1,7 +1,7 @@
 ---
 title: "An Arrogant Queen Finds Redemption"
 menu_title: ""
-description: "An Arrogant Queen Finds Redemption"
+description: "Marie Antoinette, received by Al Fike: “…God's Love to you, beautiful children of Light. My name is Josephine and you may know me from the words that I …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

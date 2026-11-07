@@ -1,7 +1,7 @@
 ﻿---
 title: "Encourages Our Instrumentality"
 menu_title: ""
-description: "Encourages Our Instrumentality"
+description: "Seretta Kem, received by Al Fike: “…pray with you, beloved souls. What a gift you have in your fellowship, your friendship, your loving acknowledgment of …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

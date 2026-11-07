@@ -1,7 +1,7 @@
 ﻿---
 title: "The Abundant Grace and Blessings of God"
 menu_title: ""
-description: "The Abundant Grace and Blessings of God"
+description: "Jesus, received by Al Fike: “We are one in this blessing and so uplifted into the great Hall of Peace together. As God's great treasure trove of blessings …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

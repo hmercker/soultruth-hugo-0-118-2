@@ -1,7 +1,7 @@
 ---
 title: "Welcomes First Guest to Arrive at Monroeville Retreat"
 menu_title: ""
-description: "Welcomes First Guest to Arrive at Monroeville Retreat"
+description: "Augustine, received by Al Fike: “…love be upon you all, beloved souls. We are not so concerned about the infirmities of the flesh, my beloved and beautiful …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

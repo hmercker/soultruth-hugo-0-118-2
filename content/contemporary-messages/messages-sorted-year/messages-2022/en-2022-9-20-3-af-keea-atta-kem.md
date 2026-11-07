@@ -1,7 +1,7 @@
 ---
 title: "Deep Blessing of Peace and Love"
 menu_title: ""
-description: "Deep Blessing of Peace and Love"
+description: "Keea Atta Kem, received by Al Fike: “Be at peace, beloveds, and know that you are embraced by God, that in this time of prayer together you are removed …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

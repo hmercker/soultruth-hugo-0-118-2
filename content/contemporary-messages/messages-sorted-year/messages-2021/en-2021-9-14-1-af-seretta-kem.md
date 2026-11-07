@@ -1,7 +1,7 @@
 ---
 title: "Adjustments to the Opening of Our Spiritual Gifts"
 menu_title: ""
-description: "Adjustments to the Opening of Our Spiritual Gifts"
+description: "Seretta Kem, received by Al Fike: “You are beginning to understand your sensitivities and what may come of your time together in this circle of development …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

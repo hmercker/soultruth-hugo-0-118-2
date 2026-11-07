@@ -1,7 +1,7 @@
 ---
 title: "Pentecost Prayer and Blessing"
 menu_title: ""
-description: "Pentecost Prayer and Blessing"
+description: "Jesus, received by Al Fike: “Creator of all, I beseech you to touch deeply each and every soul that is here. All the yearning souls of the world with the …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

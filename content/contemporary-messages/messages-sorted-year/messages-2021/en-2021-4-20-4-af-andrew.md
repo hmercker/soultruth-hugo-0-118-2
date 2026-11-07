@@ -1,7 +1,7 @@
 ---
 title: "The Blessings of God"
 menu_title: ""
-description: "The Blessings of God"
+description: "Andrew, received by Al Fike: “Your prayers have been heard, beloved souls. We are collecting each one of you, gathering you together into this place that …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

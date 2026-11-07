@@ -1,7 +1,7 @@
 ---
 title: "Seek the Truths That God Has Already Bestowed Upon You in Your Souls"
 menu_title: ""
-description: "Seek the Truths That God Has Already Bestowed Upon You in Your Souls"
+description: "Mary, received by Elizabeth Mack: “I bring you blessings, blessings of peace, contentment, upliftment, blessings of truth for your souls.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

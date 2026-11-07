@@ -1,7 +1,7 @@
 ---
 title: "Getting past your wounds - Part 1"
 menu_title: ""
-description: "Getting past your wounds - Part 1"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “You can consider this a spiritual orchestra, for together we try to influence and orchestrate these …”"
 date: 2025-05-18 07:21:03+00:00
 draft: False
 hidden: True

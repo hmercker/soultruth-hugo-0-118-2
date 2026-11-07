@@ -1,7 +1,7 @@
 ---
 title: "Waves of Divine Intervention and the Call to Be God's Instruments"
 menu_title: ""
-description: "Waves of Divine Intervention and the Call to Be God's Instruments"
+description: "Jesus, received by Al Fike: “The mercy of God, the Love of God, the ministrations of God are focused upon this planet in ways and means that will bring …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

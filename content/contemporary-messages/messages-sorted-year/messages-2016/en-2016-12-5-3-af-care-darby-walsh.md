@@ -1,7 +1,7 @@
 ﻿---
 title: "I do appreciate the Prayers"
 menu_title: ""
-description: "I do appreciate the Prayers"
+description: "Care Darby Walsh, received by Al Fike: “And I do appreciate the Prayers and I appreciate all of you who are roses in God’s great beautiful garden and I’m …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Bring the Blessing of Divine Love to This Sanctuary"
 menu_title: ""
-description: "Bring the Blessing of Divine Love to This Sanctuary"
+description: "Mark, received by Al Fike: “You feel the blessings of God’s Love amongst you at this moment. You know its comfort and power and healing.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

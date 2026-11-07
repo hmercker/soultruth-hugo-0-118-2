@@ -1,7 +1,7 @@
 ---
 title: "Understanding the Power of Free Will"
 menu_title: ""
-description: "Understanding the Power of Free Will"
+description: "Augustine, received by Al Fike: “I cannot resist this opportunity to speak to you about your choices and the power of your own free will concerning your life.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Give Them the Foundation That They Require"
 menu_title: ""
-description: "Give Them the Foundation That They Require"
+description: "John the Baptist, received by Elizabeth Mack: “I touch you each with my love given to me by my Father. So, you see the more you receive, the more you have …”"
 date: 2025-03-22 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "The Gift of the Present: A Lesson on the Perception of Time and Consciousness"
 menu_title: ""
-description: "The Gift of the Present: A Lesson on the Perception of Time and Consciousness"
+description: "Matthew, received by Al Fike: “You live in a material world, a world discovered by time. As the Earth turns, as the sun turns, seasons, all the elements …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

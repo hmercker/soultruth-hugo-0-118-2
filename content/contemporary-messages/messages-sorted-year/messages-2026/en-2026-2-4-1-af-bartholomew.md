@@ -1,7 +1,7 @@
 ---
 title: "Your Choices and Desires Determine the Road You Travel"
 menu_title: ""
-description: "Your Choices and Desires Determine the Road You Travel"
+description: "Bartholomew, received by Al Fike: “The path of Divine Love can be circuitous or direct. Each individual, through their choices, will determine the road …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

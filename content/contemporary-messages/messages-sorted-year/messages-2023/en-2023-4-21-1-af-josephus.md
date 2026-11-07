@@ -1,7 +1,7 @@
 ---
 title: "Know Your Own Soul"
 menu_title: ""
-description: "Know Your Own Soul"
+description: "Josephus, received by Al Fike: “Do you know your own soul? Do you understand this vital part within you that continues to seek the blessing of God’s Love …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

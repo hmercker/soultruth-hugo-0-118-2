@@ -1,7 +1,7 @@
 ﻿---
 title: "The Father has given you a Gift"
 menu_title: ""
-description: "The Father has given you a Gift"
+description: "Augustine, received by Al Fike: “You have each received the Gift of the Father’s Love within your souls and you have each received a Gift that you will …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

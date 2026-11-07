@@ -1,7 +1,7 @@
 ---
 title: "You are Blessed Upon Your Journey"
 menu_title: ""
-description: "You are Blessed Upon Your Journey"
+description: "Jesus, received by Al Fike: “God’s Love is upon you, my children. Each of you are blessed and loved by God and nourished by His angels upon this journey of …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "In your Prayers lay down your Fears, your Doubts"
 menu_title: ""
-description: "In your Prayers lay down your Fears, your Doubts"
+description: "Seretta Kem, received by Al Fike: “For some of you, you acknowledge that deep desire within to receive this Love and it is a burning desire, a compelling …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

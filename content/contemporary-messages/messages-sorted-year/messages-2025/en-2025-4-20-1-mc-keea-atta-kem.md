@@ -1,7 +1,7 @@
 ---
 title: "True Redemption of the Soul"
 menu_title: ""
-description: "True Redemption of the Soul"
+description: "Keea Atta Kem, received by Maureen Cardoso: “You speak about the great resurrection, the misunderstanding of the truth of resurrection, and how you wish …”"
 date: 2025-06-21 07:21:03+11:00
 draft: False
 hidden: True

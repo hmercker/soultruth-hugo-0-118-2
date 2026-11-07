@@ -1,7 +1,7 @@
 ---
 title: "The Love of God Brings You into Service for Humanity"
 menu_title: ""
-description: "The Love of God Brings You into Service for Humanity"
+description: "Jesus, received by Al Fike: “May the blessings of the Father's Love be yours, beloved children of truth. For we are brethren, brothers and sisters all, on …”"
 date: 2025-07-29 07:21:03+11:00
 draft: False
 hidden: True

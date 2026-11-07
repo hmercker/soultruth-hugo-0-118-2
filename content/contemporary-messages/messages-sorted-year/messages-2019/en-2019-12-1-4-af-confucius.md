@@ -1,7 +1,7 @@
 ---
 title: "Allow the Joy in Your Hearts to Spread within You"
 menu_title: ""
-description: "Allow the Joy in Your Hearts to Spread within You"
+description: "Confucius, received by Al Fike: “I bring to you all a blessing, a blessing that will strengthen and uplift you, beloved souls, so that as you live your …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

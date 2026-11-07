@@ -1,7 +1,7 @@
 ---
 title: "Finding Our Way to God's Love"
 menu_title: ""
-description: "Finding Our Way to God's Love"
+description: "Augustine, received by Al Fike: “The world is a place of material effort and accomplishment, but without love, what is truly accomplished?”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

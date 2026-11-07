@@ -1,7 +1,7 @@
 ---
 title: "You Will be Challenged"
 menu_title: ""
-description: "You Will be Challenged"
+description: "Faith Nyquist, received by Al Fike: “I thank you for your dedications in the World Healing Centre, that your prayers were felt, the Portal of Light has …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Truth Must Be Experienced by the Soul"
 menu_title: ""
-description: "Truth Must Be Experienced by the Soul"
+description: "Augustine, received by Helge Mercker: “I greet you in this morning hour, it is your friend and teacher Augustine. The writings of Truth are being revealed …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

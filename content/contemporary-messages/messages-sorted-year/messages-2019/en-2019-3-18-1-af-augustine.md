@@ -1,7 +1,7 @@
 ---
 title: "Your Instrumentalities Which Serve God Grow"
 menu_title: ""
-description: "Your Instrumentalities Which Serve God Grow"
+description: "Augustine, received by Al Fike: “As you continue to gather the souls together, so we are creating a powerful network of light in your world.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

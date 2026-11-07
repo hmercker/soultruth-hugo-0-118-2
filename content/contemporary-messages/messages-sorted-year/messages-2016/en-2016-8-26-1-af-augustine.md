@@ -1,7 +1,7 @@
 ﻿---
 title: "Seek the Light of God’s Love"
 menu_title: ""
-description: "Seek the Light of God’s Love"
+description: "Augustine, received by Al Fike: “May each one of you come to truly recognize the touch of God within your souls, that you come to recognize how God may …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Seek and It Shall Be Yours"
 menu_title: ""
-description: "Seek and It Shall Be Yours"
+description: "Jesus, received by Al Fike: “I wish to commend this beautiful instrument for his efforts to bring the Truth of the soul forward.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

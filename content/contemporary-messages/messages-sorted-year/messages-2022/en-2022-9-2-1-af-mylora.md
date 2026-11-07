@@ -1,7 +1,7 @@
 ---
 title: "Honour Mother Earth Who Loves Us So"
 menu_title: ""
-description: "Honour Mother Earth Who Loves Us So"
+description: "Mylora, received by Al Fike: “When this harmony is broken and not in balance, then there is a need for healing. So it is with your bodies, and so it is …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

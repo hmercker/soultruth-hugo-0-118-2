@@ -1,7 +1,7 @@
 ---
 title: "Fighting back the Darkness of the Earth Conditions"
 menu_title: "Fighting back the Darkness of the Earth Conditions"
-description: "Fighting back the Darkness of the Earth Conditions"
+description: "Received by Al Fike: “Blessings to you, my dear ones, beloved souls, children of the Heavenly Father, whose souls are open to what our Heavenly Father has …”"
 date: 2016-10-10 21:48:44+00:00
 draft: False
 hidden: True

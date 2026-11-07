@@ -1,7 +1,7 @@
 ---
 title: "Jesus is with us"
 menu_title: ""
-description: "Jesus is with us"
+description: "Received by Al Fike: “May the Hand of the Father touch deeply within you beloveds. His Love pouring into every recess of your soul.”"
 date: 2017-11-22 16:51:35+00:00
 draft: False
 hidden: True

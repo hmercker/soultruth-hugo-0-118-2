@@ -1,7 +1,7 @@
 ---
 title: "There is Great Change Coming to the World Which Will Bring Light, Joy and Peace"
 menu_title: ""
-description: "There is Great Change Coming to the World Which Will Bring Light, Joy and Peace"
+description: "Andrew, received by Al Fike: “I feel the momentum building in the world, momentum that will bring great change and great healing.”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

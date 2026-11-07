@@ -1,7 +1,7 @@
 ---
 title: "Step Forward in Service"
 menu_title: ""
-description: "Step Forward in Service"
+description: "Jesus, received by Al Fike: “May you continue to step forward in love, carry the flame of Truth wherever you go. Set aside all conditions that are contrary …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

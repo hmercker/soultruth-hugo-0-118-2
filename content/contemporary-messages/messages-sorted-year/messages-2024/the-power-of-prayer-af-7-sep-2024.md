@@ -1,5 +1,6 @@
 ---
 title: "It Takes Our Prayer Power to Bring God and the Angels Close"
+description: "Received by Al Fike: “May the Father’s Love be upon you my beloved souls, children of the truth. Remember that it takes great effort and power to bring the …”"
 menu_title: "Augustine says It Takes Our Prayer Power to Bring God and the Angels Close"
 date: 2024-11-28 07:21:03+11:00
 draft: False

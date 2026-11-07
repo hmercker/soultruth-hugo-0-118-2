@@ -1,7 +1,7 @@
 ---
 title: "To Truly Recognize God's Whispers in Your Souls"
 menu_title: ""
-description: "To Truly Recognize God's Whispers in Your Souls"
+description: "Keea Atta Kem, received by Maureen Cardoso: “While your circle is not complete, meaning those who are yet to arrive and join us in our prayer but also …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

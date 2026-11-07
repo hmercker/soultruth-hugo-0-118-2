@@ -1,7 +1,7 @@
 ---
 title: "God's Will as Protection"
 menu_title: ""
-description: "God's Will as Protection"
+description: "Matthew, received by Elizabeth Mack: “Our brother, Jesus, has come to bless us, to bless all upon the Earth. For there is such a need for such an …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

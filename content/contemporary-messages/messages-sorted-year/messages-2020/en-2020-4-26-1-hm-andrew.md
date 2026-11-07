@@ -1,7 +1,7 @@
 ---
 title: "Serving in the Network of Love"
 menu_title: ""
-description: "Serving in the Network of Love"
+description: "Andrew, received by Helge Mercker: “Dear daughter, I desire to write and wish to spend this prayer time with you and speak about the establishment of the …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Pray earnestly, pray often, pray always with every Breath"
 menu_title: ""
-description: "Pray earnestly, pray often, pray always with every Breath"
+description: "Isaiah, received by Al Fike: “A blessing of love to each one here who have gathered together in prayer, earnestly seeking the Love, seeking the guidance …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

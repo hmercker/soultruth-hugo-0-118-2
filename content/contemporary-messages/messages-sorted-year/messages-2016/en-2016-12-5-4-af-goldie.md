@@ -1,7 +1,7 @@
 ﻿---
 title: "Dance in the light of God’s Love"
 menu_title: ""
-description: "Dance in the light of God’s Love"
+description: "Goldie, received by Al Fike: “You are no longer asked to take baby steps. It’s time to stride forward for you are not babies anymore, you are beginning to …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

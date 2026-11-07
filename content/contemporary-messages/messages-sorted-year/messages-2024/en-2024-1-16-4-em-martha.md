@@ -1,7 +1,7 @@
 ---
 title: "How Exquisite Your Souls Are"
 menu_title: ""
-description: "How Exquisite Your Souls Are"
+description: "Martha, received by Elizabeth Mack: “You are such exquisite souls. If you could see the light, you would not question anything.”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

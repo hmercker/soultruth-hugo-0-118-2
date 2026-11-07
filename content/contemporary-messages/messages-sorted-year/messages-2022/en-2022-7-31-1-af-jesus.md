@@ -1,7 +1,7 @@
 ---
 title: "Compelling Message to Walk with Him to the Celestial Heavens"
 menu_title: ""
-description: "Compelling Message to Walk with Him to the Celestial Heavens"
+description: "Jesus, received by Al Fike: “For, the most powerful thing you might do for your own spiritual progression is send your hearts to God, your desires, your …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

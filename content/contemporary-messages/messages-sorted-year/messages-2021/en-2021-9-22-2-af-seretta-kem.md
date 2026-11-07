@@ -1,7 +1,7 @@
 ---
 title: "DV Dozen, Aussie DV and Lightbringers Brought Together"
 menu_title: ""
-description: "DV Dozen, Aussie DV and Lightbringers Brought Together"
+description: "Seretta Kem, received by Al Fike: “You carry forth the light and the blessings to your fellow seekers of development for the Direct Voice in other parts of …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,5 +1,6 @@
 ---
 title: "Mental Belief and Soul Perception"
+description: "Received by Jimbeau Walsh: “Some of you may know me as monsignor which was my station on earth. Others may know that I was a writer and as a cleric I wrote …”"
 menu_title: ""
 descriLtion: "Robert Hugh Benson talks of Mental Belief and Soul Perception"
 date: 2022-06-09 07:21:03+11:00

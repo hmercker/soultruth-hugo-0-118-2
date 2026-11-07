@@ -1,7 +1,7 @@
 ---
 title: "The Importance of Having Divine Love Channels of Love on Earth"
 menu_title: ""
-description: "The Importance of Having Divine Love Channels of Love on Earth"
+description: "John the Beloved, received by Al Fike: “For each one who challenges the status quo upon the Earth and carries the mantle of God's Love into the Earth …”"
 date: 2025-05-18 07:21:03+11:00
 draft: False
 hidden: True

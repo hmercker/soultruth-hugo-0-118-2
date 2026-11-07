@@ -1,7 +1,7 @@
 ---
 title: "Humility is the Key"
 menu_title: ""
-description: "Humility is the Key"
+description: "James Padgett, received by Jimbeau Walsh: “You honor my work by suggesting to all the truth that it contains, the truth that I received, and I thank you …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

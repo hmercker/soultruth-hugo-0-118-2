@@ -1,7 +1,7 @@
 ---
 title: "Instructions for Work Ahead"
 menu_title: ""
-description: "Instructions for Work Ahead"
+description: "Bartholomew, received by Al Fike: “For our ears are to God and God directs us and guides us forward in these great preparatory times for the unfolding of a …”"
 date: 2025-07-10 07:21:03+00:00
 draft: False
 hidden: True

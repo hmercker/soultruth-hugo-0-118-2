@@ -1,7 +1,7 @@
 ﻿---
 title: "Awakening and Transformation Come With Practice, Application, Prayer and Dedication"
 menu_title: ""
-description: "Awakening and Transformation Come With Practice, Application, Prayer and Dedication"
+description: "Confucius, received by Al Fike: “Oh little birds, it is I, Confucius. I have come to speak to you.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

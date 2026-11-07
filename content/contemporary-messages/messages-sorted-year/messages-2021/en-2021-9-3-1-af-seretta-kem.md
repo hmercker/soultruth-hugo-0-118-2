@@ -1,7 +1,7 @@
 ---
 title: "Loving Reminder for the Importance of Our Preparations"
 menu_title: ""
-description: "Loving Reminder for the Importance of Our Preparations"
+description: "Seretta Kem, received by Al Fike: “As we have assured you and informed you, there are various impe-diments and challenges that will be evident before you …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

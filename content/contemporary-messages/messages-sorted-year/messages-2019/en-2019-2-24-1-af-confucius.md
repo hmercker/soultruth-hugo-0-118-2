@@ -1,7 +1,7 @@
 ---
 title: "We Use You to Teach Many Souls The Truth"
 menu_title: ""
-description: "We Use You to Teach Many Souls The Truth"
+description: "Confucius, received by Al Fike: “We continue with our healing sessions together, do we not, beloved children? We continue to help support and uplift, to …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

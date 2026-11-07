@@ -1,7 +1,7 @@
 ﻿---
 title: "In Humility comes Harmony and Grace and Peace"
 menu_title: ""
-description: "In Humility comes Harmony and Grace and Peace"
+description: "Confucius, received by Al Fike: “Welcome to this gathering of light and love. When you declare a truth in the world, my children, there will be a response …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

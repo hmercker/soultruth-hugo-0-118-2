@@ -1,7 +1,7 @@
 ---
 title: "Desire and Soul Perception"
 menu_title: ""
-description: "Desire and Soul Perception"
+description: "Yogananda & Francis of Assisi, received by Jimbeau Walsh: “In the message that was read, beloved Thomas talked about his desire for proof, and I wish to …”"
 date: 2025-05-18 07:21:03+00:00
 draft: False
 hidden: True

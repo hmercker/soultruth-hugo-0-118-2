@@ -1,7 +1,7 @@
 ﻿---
 title: "Do Not Complicate the Simplicity of God’s Love and Truth"
 menu_title: ""
-description: "Do Not Complicate the Simplicity of God’s Love and Truth"
+description: "Daniel, received by Al Fike: “Blessings to you, my dear friends. So many of us sit in the background and do not speak often, but we are with you.”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,5 +1,6 @@
 ---
 title: "Lesson 11: The Nature of Mind and Soul Consciousness"
+description: "Received by Al Fike: “Again, I come to speak to you and to the world regarding the need for a shift of consciousness and soulful awakening in the world.”"
 menu_title: "Jesus: Lesson 11: The Nature of Mind and Soul Consciousness"
 date: 2022-07-19 07:21:03+11:00
 draft: False

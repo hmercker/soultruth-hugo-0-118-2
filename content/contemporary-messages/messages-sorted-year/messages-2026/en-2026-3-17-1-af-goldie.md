@@ -1,7 +1,7 @@
 ---
 title: "The Rising of Joy Within the Soul"
 menu_title: ""
-description: "The Rising of Joy Within the Soul"
+description: "Goldie, received by Al Fike: “From the heart of the soul, the heart of the soul that knows that even these days upon the Earth are numbered and limited and …”"
 date: 2026-04-26 00:00:00+00:00
 draft: False
 hidden: True

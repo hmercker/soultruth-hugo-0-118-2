@@ -1,7 +1,7 @@
 ---
 title: "Your Soul's Spiritual Journey in God's Love"
 menu_title: ""
-description: "Your Soul's Spiritual Journey in God's Love"
+description: "Confucius, received by Al Fike: “Little birds, it is Confucious. Each of you within your souls has a vast treasure trove of gifts and abilities that are …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

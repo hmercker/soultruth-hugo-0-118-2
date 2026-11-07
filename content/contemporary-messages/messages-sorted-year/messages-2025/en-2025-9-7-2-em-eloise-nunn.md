@@ -1,7 +1,7 @@
 ---
 title: "Each One Here is Receiving a Gift Crafted Just for You"
 menu_title: ""
-description: "Each One Here is Receiving a Gift Crafted Just for You"
+description: "Eloise Nunn, received by Elizabeth Mack: “I serve God in this way at this time, for God has special purposes for each of His Celestial Angels, many, many …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

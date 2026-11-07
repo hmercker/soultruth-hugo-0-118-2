@@ -1,7 +1,7 @@
 ---
 title: "I Give You My Daughter"
 menu_title: ""
-description: "I Give You My Daughter"
+description: "Eloise Nunn, received by Elizabeth Mack: “I have enjoyed being part of this group this week. I have particularly enjoyed helping my daughter in her …”"
 date: 2025-06-28 07:21:03+11:00
 draft: False
 hidden: True

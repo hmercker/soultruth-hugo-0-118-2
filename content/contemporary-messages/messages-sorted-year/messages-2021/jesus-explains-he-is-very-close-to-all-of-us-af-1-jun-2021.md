@@ -1,7 +1,7 @@
 ---
 title: "Jesus Explains He is very Close to All of Us"
 menu_title: ""
-description: "Jesus Explains He is very Close to All of Us"
+description: "Received by Al Fike: “Even those who do not know me well, understand that I know you very well indeed and that I am close to each one of you.”"
 date: 2021-06-11 07:21:03+11:00
 draft: False
 hidden: True

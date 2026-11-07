@@ -1,7 +1,7 @@
 ---
 title: "Encouragement for Divine Love Mediumship Development Retreat"
 menu_title: ""
-description: "Encouragement for Divine Love Mediumship Development Retreat"
+description: "Matthew, received by Al Fike: “The world is opening up to you my friends. There is a wider and wider passage that continues to unfold for your work.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

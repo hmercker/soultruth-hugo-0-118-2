@@ -1,7 +1,7 @@
 ﻿---
 title: "The Power of God’s Love"
 menu_title: ""
-description: "The Power of God’s Love"
+description: "Keea Atta Kem, received by Maureen Cardoso: “Forgive me if I interrupt you as you receive God's Love into your souls, but I would like to acknowledge the …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

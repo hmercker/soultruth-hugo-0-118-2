@@ -1,7 +1,7 @@
 ---
 title: "The Grace of God's Essence Comes with Responsibility"
 menu_title: ""
-description: "The Grace of God's Essence Comes with Responsibility"
+description: "Jesus, received by Maureen Cardoso: “I stand before my disciples, whose souls are growing in the light of God. Whose souls are illuminated with the …”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

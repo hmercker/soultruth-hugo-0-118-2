@@ -1,7 +1,7 @@
 ﻿---
 title: "Truth and Love"
 menu_title: ""
-description: "Truth and Love"
+description: "Father, received by Helge Mercker: “To love one has to be in truth. A Love, so truthful as Mine, is what I have to offer, to give.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

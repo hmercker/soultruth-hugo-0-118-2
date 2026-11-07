@@ -1,7 +1,7 @@
 ---
 title: "Blessing for Trini-Tribe"
 menu_title: ""
-description: "Blessing for Trini-Tribe"
+description: "Confucius, received by Al Fike: “Children of God, I am Confucius. I greet you in this place, sacred and holy, filled with love and light.”"
 date: 2025-03-12 07:21:03+11:00
 draft: False
 hidden: True

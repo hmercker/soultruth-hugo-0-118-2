@@ -1,7 +1,7 @@
 ﻿---
 title: "Soul Transformation, Prayer and Longings"
 menu_title: ""
-description: "Soul Transformation, Prayer and Longings"
+description: "Martin Luther, received by Joseph Babinsky: “They are here now with me and each one sends you greetings with love. We were present while you prayed.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

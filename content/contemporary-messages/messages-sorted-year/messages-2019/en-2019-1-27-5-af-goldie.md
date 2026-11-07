@@ -1,7 +1,7 @@
 ---
 title: "Be Thankful and Joyful"
 menu_title: ""
-description: "Be Thankful and Joyful"
+description: "Goldie, received by Al Fike: “Oh, our friend is so serious. Know that you are in the Light of God’s Love, my friends, and that your life has much joy in …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

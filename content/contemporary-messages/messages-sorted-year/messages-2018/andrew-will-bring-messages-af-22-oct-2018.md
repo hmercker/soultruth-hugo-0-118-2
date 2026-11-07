@@ -1,7 +1,7 @@
 ---
 title: "Andrew Will Bring Messages of Love and Truth - (Online Prayer Circle)"
 menu_title: ""
-description: "Andrew Will Bring Messages of Love and Truth - (Online Prayer Circle)"
+description: "Received by Al Fike: “I will come to bring teachings to you as you come together in this way and I hope that you will make time to be in prayer and to …”"
 date: 2020-06-19 06:00:01+11:00
 draft: False
 hidden: True

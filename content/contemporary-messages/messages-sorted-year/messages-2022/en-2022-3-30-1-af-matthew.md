@@ -1,7 +1,7 @@
 ---
 title: "Encourages Collaboration in Forming the Nucleus of Light"
 menu_title: ""
-description: "Encourages Collaboration in Forming the Nucleus of Light"
+description: "Matthew, received by Al Fike: “In your earthly world, these relationships and the bonds that are formed are necessary and important for without these …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

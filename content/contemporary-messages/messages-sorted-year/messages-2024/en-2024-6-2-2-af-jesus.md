@@ -1,7 +1,7 @@
 ---
 title: "Affirms and Pays Tribute to Orion’s Work on Earth"
 menu_title: ""
-description: "Affirms and Pays Tribute to Orion’s Work on Earth"
+description: "Jesus, received by Al Fike: “Orion is a dear and beloved friend of mine and I am your friend. As you have seen and witnessed, there are great forces in the …”"
 date: 2025-06-01 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Remember God Whatever the Day Brings"
 menu_title: ""
-description: "Remember God Whatever the Day Brings"
+description: "Yogananda, received by Jimbeau Walsh: “In this group of five runs the gamut from scheduling your day to spontaneity and of course, everything in between.”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

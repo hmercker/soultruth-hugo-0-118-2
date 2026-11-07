@@ -1,7 +1,7 @@
 ﻿---
 title: "So few Places in the World are free from the Human Condition"
 menu_title: ""
-description: "So few Places in the World are free from the Human Condition"
+description: "Andrew, received by Al Fike: “God’s grace envelopes you my beloveds as Love pours into your souls and in this pure and beautiful place you are nourished …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

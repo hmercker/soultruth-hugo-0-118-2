@@ -1,7 +1,7 @@
 ---
 title: "Connecting with God"
 menu_title: ""
-description: "Connecting with God"
+description: "George, Stellar Friend, received by Elizabeth Mack: “… a friend [^1] from a faraway planet. You may call me George, as you used to call me when you looked …”"
 date: 2025-07-20 07:21:03+11:00
 draft: False
 hidden: True

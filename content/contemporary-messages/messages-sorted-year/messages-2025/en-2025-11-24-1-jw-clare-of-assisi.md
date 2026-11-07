@@ -1,7 +1,7 @@
 ---
 title: "Reluctance and Courage"
 menu_title: ""
-description: "Reluctance and Courage"
+description: "Clare of Assisi, received by Jimbeau Walsh: “Brothers and sisters, it is I, Clare. I wish to speak about reluctance and gravity.”"
 date: 2025-12-07 06:00:00+00:00
 draft: False
 hidden: True

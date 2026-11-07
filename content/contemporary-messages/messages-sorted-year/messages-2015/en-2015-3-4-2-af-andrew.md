@@ -1,7 +1,7 @@
 ﻿---
 title: "Yes you are eager, and we are pleased"
 menu_title: ""
-description: "Yes you are eager, and we are pleased"
+description: "Andrew, received by Al Fike: “Aah…. you are so eager my beloveds, my precious friends, to do God’s work and will in the world.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

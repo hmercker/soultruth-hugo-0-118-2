@@ -1,7 +1,7 @@
 ﻿---
 title: "The Vision of the Centre for Transformational Studies takes Shape"
 menu_title: ""
-description: "The Vision of the Centre for Transformational Studies takes Shape"
+description: "Augustine, received by Al Fike: “And within this vision and this place will come an opportunity for many individuals from many cultures and walks of life …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

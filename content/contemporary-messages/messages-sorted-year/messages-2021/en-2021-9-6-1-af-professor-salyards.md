@@ -1,7 +1,7 @@
 ---
 title: "Welcome Address, Purpose and Commitment"
 menu_title: ""
-description: "Welcome Address, Purpose and Commitment"
+description: "Professor Salyards, received by Al Fike: “Though you are small in numbers in the flesh, your spirit counterparts are many. Each grouping, of which there …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

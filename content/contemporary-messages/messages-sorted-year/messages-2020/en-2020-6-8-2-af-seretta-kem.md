@@ -1,7 +1,7 @@
 ---
 title: "Instructions on Direct Voice"
 menu_title: ""
-description: "Instructions on Direct Voice"
+description: "Seretta Kem, received by Al Fike: “For it requires a great deal of commitment, a great deal of your efforts, your focus, your thoughts, your prayers and …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

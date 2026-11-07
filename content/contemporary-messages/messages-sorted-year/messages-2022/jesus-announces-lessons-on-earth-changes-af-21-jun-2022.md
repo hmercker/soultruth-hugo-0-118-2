@@ -1,7 +1,7 @@
 ---
 title: "Jesus Announces New Series of Lessons on Earth Changes and Their Impact on Us"
 menu_title: ""
-description: "Jesus Announces New Series of Lessons on Earth Changes and Their Impact on Us"
+description: "Received by Al Fike: “There is a great curiosity about the way in which what you call Earth Changes may take place and what that may mean for each of you …”"
 date: 2022-06-23 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Guided Meditation Followed by Blessing from Jesus"
 menu_title: ""
-description: "Guided Meditation Followed by Blessing from Jesus"
+description: "Jesus, received by Al Fike: “Guided meditation by Al Fike: Oh, all my beautiful friends, beautiful souls that you are, we are going to walk together for a …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

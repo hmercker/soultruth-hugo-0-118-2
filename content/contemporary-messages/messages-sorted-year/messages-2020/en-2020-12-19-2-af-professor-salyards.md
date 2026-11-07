@@ -1,7 +1,7 @@
 ---
 title: "We Will Be By Your Side At All Times"
 menu_title: ""
-description: "We Will Be By Your Side At All Times"
+description: "Professor Salyards, received by Al Fike: “And I will only add a few more words, I am Professor Salyards. My commitment to you is that I will assist each …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

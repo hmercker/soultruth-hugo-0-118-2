@@ -1,7 +1,7 @@
 ---
 title: "Love Above All Else"
 menu_title: ""
-description: "Love Above All Else"
+description: "Orion, received by Al Fike: “Blessings to you, beloved souls. You sit in the luxury of this time in your earthly plane, where conditions in the material …”"
 date: 2025-03-19 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Drink Deep These Waters of God’s Love"
 menu_title: ""
-description: "Drink Deep These Waters of God’s Love"
+description: "Helen Padgett, received by Al Fike: “Drink deep and know that you are loved. For God wishes for you to be immersed in the light, nurtured and uplifted in …”"
 date: 2025-06-29 07:21:03+00:00
 draft: False
 hidden: True

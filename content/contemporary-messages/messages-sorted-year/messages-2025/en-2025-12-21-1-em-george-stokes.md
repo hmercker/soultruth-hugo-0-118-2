@@ -1,7 +1,7 @@
 ---
 title: "Soul Celebration of Christmas"
 menu_title: ""
-description: "Soul Celebration of Christmas"
+description: "George Stokes, received by Elizabeth Mack: “And I come here to celebrate with you this gift of Love that is being bestowed upon you and continues to be …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

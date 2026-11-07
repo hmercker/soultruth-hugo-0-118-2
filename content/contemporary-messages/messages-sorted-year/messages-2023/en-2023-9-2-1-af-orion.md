@@ -1,7 +1,7 @@
 ---
 title: "Issues a Powerful Warning to Shun Temptation During These Times to Come"
 menu_title: ""
-description: "Issues a Powerful Warning to Shun Temptation During These Times to Come"
+description: "Orion, received by Al Fike: “May you find great comfort, peace, transformation in this great gift, this universal Love that is the Essence of the Creator …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

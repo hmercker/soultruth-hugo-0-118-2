@@ -1,7 +1,7 @@
 ---
 title: "With God there is no Distance"
 menu_title: ""
-description: "With God there is no Distance"
+description: "Care Darby Walsh, received by Jimbeau Walsh: “May the love of God be upon you and in you. During my walk on the earth, I delighted in nature, in God’s …”"
 date: 2025-04-04 07:21:03+11:00
 draft: False
 hidden: True

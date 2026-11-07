@@ -1,7 +1,7 @@
 ---
 title: "Riches and Joy"
 menu_title: ""
-description: "Riches and Joy"
+description: "Clare of Assisi, received by Jimbeau Walsh: “I’m drawn to this beautiful circle. You may know as the founder of the order of monastic women who became …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

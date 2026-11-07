@@ -1,7 +1,7 @@
 ---
 title: "The Great Potential of the Soul Must be Discovered by All"
 menu_title: ""
-description: "The Great Potential of the Soul Must be Discovered by All"
+description: "Lao Tzu, received by Al Fike: “Fellow souls of light, I am Lao Tzu. There is a great upheaval in the world, especially in the East as you call it, where …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Your Shackles Have Been Broken"
 menu_title: ""
-description: "Your Shackles Have Been Broken"
+description: "Jesus, received by Al Fike: “The Light of Truth is upon each one of you, beloved souls. Truly, you will come to know this Truth, this way, in a conscious …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

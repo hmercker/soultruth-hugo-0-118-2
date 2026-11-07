@@ -1,7 +1,7 @@
 ---
 title: "Percy’s Greeting From God’s Kingdom of Love"
 menu_title: ""
-description: "Percy’s Greeting From God’s Kingdom of Love"
+description: "Received by Al Fike: ““Ho ho ho.” What a wonderful blessing to be able to speak to you through this instrument. As I have told him many times, he is a …”"
 date: 2018-05-30 05:02:53+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Be open to the Love of God"
 menu_title: ""
-description: "Be open to the Love of God"
+description: "Jesus, received by Al Fike: “Cast aside your doubts, beloved brothers and sisters, and be open to what God will give you as you set forth your longings to …”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

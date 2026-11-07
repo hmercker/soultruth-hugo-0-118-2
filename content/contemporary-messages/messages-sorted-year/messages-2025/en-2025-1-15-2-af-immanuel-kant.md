@@ -1,7 +1,7 @@
 ---
 title: "Father of Modern Philosophy Desires to Correct Legacy He Contributed During the Age of Enlightenment"
 menu_title: ""
-description: "Father of Modern Philosophy Desires to Correct Legacy He Contributed During the Age of Enlightenment"
+description: "Immanuel Kant, received by Al Fike: “I would think you would be surprised that I would come to speak, being known as an intellectual and philosopher in …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

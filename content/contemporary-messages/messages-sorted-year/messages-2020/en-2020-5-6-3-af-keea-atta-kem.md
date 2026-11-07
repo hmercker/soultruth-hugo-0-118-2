@@ -1,7 +1,7 @@
 ---
 title: "When One Door Closes, Another Opens"
 menu_title: ""
-description: "When One Door Closes, Another Opens"
+description: "Keea Atta Kem, received by Al Fike: “I tell you, my friends, that no time is wasted, no effort is without merit. Each time you put yourselves forward to …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

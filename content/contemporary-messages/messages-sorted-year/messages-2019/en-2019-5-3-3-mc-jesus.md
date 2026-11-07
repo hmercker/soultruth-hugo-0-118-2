@@ -1,7 +1,7 @@
 ---
 title: "A Healing Blessing"
 menu_title: ""
-description: "A Healing Blessing"
+description: "Jesus, received by Maureen Cardoso: “I bring a blessing of deep love and healing to each one of you. For all children who follow the Will of God are deeply …”"
 date: 2025-08-10 06:00:00+00:00
 draft: False
 hidden: True

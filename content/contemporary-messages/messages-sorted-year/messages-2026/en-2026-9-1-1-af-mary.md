@@ -1,7 +1,7 @@
 ﻿---
 title: "All Things Start and End With God"
 menu_title: ""
-description: "All Things Start and End With God"
+description: "Mary, received by Al Fike: “May the blessings of the Father be yours, beloved souls. He has given you His Love and He has given you the capacity to know …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

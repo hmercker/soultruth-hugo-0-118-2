@@ -1,7 +1,7 @@
 ---
 title: "The Soul of God Delivers Guidance to the Essence of Your Soul"
 menu_title: ""
-description: "The Soul of God Delivers Guidance to the Essence of Your Soul"
+description: "Sri Yarisupta, received by Maureen Cardoso: “I have not spoken through this instrument before and I am pleased to make a connection, a soul rapport with …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

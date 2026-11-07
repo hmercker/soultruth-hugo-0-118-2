@@ -1,7 +1,7 @@
 ---
 title: "The truth of Divine Love"
 menu_title: ""
-description: "The truth of Divine Love"
+description: "Jesus, received by Al Fike: “…of God’s Love be with you, my beloved brothers and sisters. For truly, each of you are my brethren and I care for each of …”"
 date: 2025-04-16 07:21:03+11:00
 draft: False
 hidden: True

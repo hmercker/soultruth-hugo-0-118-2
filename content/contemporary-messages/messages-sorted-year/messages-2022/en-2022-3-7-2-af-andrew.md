@@ -1,7 +1,7 @@
 ---
 title: "Doors are Opening for You"
 menu_title: ""
-description: "Doors are Opening for You"
+description: "Andrew, received by Al Fike: “I wish to assure you that as you continue to strive towards the highest and seek the great and highest gift of all, the …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

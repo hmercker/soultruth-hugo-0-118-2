@@ -1,7 +1,7 @@
 ---
 title: "Distribution of Blessings"
 menu_title: ""
-description: "Distribution of Blessings"
+description: "Elijah, received by Elizabeth Mack: “I and many others come to pray with you, for your prayers are strong and they reach God, God’s Soul.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

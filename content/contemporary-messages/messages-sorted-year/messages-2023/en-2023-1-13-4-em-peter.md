@@ -1,7 +1,7 @@
 ---
 title: "Seek the Truth"
 menu_title: ""
-description: "Seek the Truth"
+description: "Peter, received by Elizabeth Mack: “My most beloved souls, I am Peter and I come to enjoin you to see the Truth in the message that I gave through another …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

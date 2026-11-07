@@ -1,7 +1,7 @@
 ---
 title: "Blessings Bestowed Upon You Are For Everyone"
 menu_title: ""
-description: "Blessings Bestowed Upon You Are For Everyone"
+description: "George Stokes, received by Elizabeth Mack: “We seek the Father's Love. We truly endeavour to open our souls.”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

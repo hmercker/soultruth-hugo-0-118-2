@@ -1,7 +1,7 @@
 ﻿---
 title: "Do not resist the Desires of your Souls"
 menu_title: ""
-description: "Do not resist the Desires of your Souls"
+description: "Anonymous, received by Al Fike: “Sweet souls… you have nothing to fear, my children, nothing to fear, for your souls will lead you into the Light as the …”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

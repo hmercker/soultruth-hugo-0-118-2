@@ -1,7 +1,7 @@
 ---
 title: "I Pray for Your Freedom"
 menu_title: ""
-description: "I Pray for Your Freedom"
+description: "Orion, received by Al Fike: “… changing, beloved friends, I am Orion. As you receive more of the great gift from God, so your perceptions, your thoughts …”"
 date: 2025-09-03 07:21:03+00:00
 draft: False
 hidden: True

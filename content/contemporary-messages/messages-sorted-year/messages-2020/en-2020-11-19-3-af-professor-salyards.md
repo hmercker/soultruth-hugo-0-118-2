@@ -1,7 +1,7 @@
 ---
 title: "Be Joyful in This Venture"
 menu_title: ""
-description: "Be Joyful in This Venture"
+description: "Professor Salyards, received by Al Fike: “Our dear and beloved Goldie indeed helps to bring the joy into all things. She is right in her encouragement to …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

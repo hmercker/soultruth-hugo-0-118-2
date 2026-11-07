@@ -1,7 +1,7 @@
 ---
 title: "Honour God's Creation and Creation Will Honour You"
 menu_title: ""
-description: "Honour God's Creation and Creation Will Honour You"
+description: "Mylora, received by Al Fike: “When I walked the world, I was known as a medicine woman, though that was not my label or my name at the time.”"
 date: 2025-07-29 07:21:03+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Promises Blessings at Laurelville"
 menu_title: ""
-description: "Promises Blessings at Laurelville"
+description: "Josephus, received by Al Fike: “May the blessings of God upon you. I wish to speak to you today about a law in the Universe, a law that states that change …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

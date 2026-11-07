@@ -1,7 +1,7 @@
 ---
 title: "God Offers You a New Life in His Love"
 menu_title: ""
-description: "God Offers You a New Life in His Love"
+description: "Isaiah, received by Al Fike: “… will stand forth in the flame and glory of this light, so much so that none will oppose or can oppose the truth that they …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

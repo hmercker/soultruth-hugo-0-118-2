@@ -1,7 +1,7 @@
 ﻿---
 title: "The Road less traveled"
 menu_title: ""
-description: "The Road less traveled"
+description: "Augustine, received by Al Fike: “You have been given much in these past days together, much in guidance and much in blessings.”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

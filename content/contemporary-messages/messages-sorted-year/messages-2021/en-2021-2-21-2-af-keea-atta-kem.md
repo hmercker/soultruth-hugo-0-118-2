@@ -1,7 +1,7 @@
 ---
 title: "First and Foremost, Be Love"
 menu_title: ""
-description: "First and Foremost, Be Love"
+description: "Keea Atta Kem, received by Al Fike: “Blessings to you, my beloved sisters and brothers, I am Keea Atta Kem. I think you know what I am about to say for …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

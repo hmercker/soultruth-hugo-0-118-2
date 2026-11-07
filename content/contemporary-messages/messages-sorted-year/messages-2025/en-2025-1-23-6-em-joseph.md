@@ -1,7 +1,7 @@
 ---
 title: "Healing and Health in Relationship to Requests to God"
 menu_title: ""
-description: "Healing and Health in Relationship to Requests to God"
+description: "Joseph, received by Elizabeth Mack: “The Father’s will is that all live in harmony and in love, for all of His children. The Father’s will is always that …”"
 date: 2025-03-25 07:21:03+11:00
 draft: False
 hidden: True

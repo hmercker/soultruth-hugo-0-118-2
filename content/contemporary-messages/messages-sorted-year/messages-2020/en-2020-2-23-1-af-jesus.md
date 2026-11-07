@@ -1,7 +1,7 @@
 ---
 title: "You Hold the Key to Unlock Truth for the Lost Souls"
 menu_title: ""
-description: "You Hold the Key to Unlock Truth for the Lost Souls"
+description: "Jesus, received by Al Fike: “Blessed are my brothers and sisters who walk the world seeking the nourishment of their souls through God’s Love.”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

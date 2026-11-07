@@ -1,7 +1,7 @@
 ---
 title: "James Describes His Journey in the Spheres"
 menu_title: ""
-description: "James Describes His Journey in the Spheres"
+description: "Received by Al Fike: “To be in this Circle of Light is a blessing and a privilege. So here I am, drawn by those who desire my presence, my beautiful wife …”"
 date: 2024-06-03 07:21:03+11:00
 draft: False
 hidden: True

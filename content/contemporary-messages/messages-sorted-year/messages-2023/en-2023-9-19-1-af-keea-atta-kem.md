@@ -1,7 +1,7 @@
 ---
 title: "Free Will and Finding Your Purpose on the Divine Love Path"
 menu_title: ""
-description: "Free Will and Finding Your Purpose on the Divine Love Path"
+description: "Keea Atta Kem, received by Al Fike: “When you are in distress, when you are in need, when you are longing to be filled up with love, these are the times …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

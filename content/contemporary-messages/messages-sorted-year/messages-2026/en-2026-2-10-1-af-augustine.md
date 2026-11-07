@@ -1,7 +1,7 @@
 ---
 title: "Faith and the Soul 3: Put in the Effort to Know and Have Faith in Your Soul"
 menu_title: ""
-description: "Faith and the Soul 3: Put in the Effort to Know and Have Faith in Your Soul"
+description: "Augustine, received by Al Fike: “Your teacher, Augustine, is here with you to continue on with our dissertations and guidance in regards to what is coming …”"
 date: 2026-04-07 00:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Circles of Light: How They Unite Us in Divine Love Beyond Physical Presence"
 menu_title: ""
-description: "Circles of Light: How They Unite Us in Divine Love Beyond Physical Presence"
+description: "Keea Atta Kem, received by Al Fike: “May the blessings of the Father's Love be yours, my beloved friends. This instrument mentioned the Lattice of Light.”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

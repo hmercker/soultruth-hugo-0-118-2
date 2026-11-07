@@ -1,7 +1,7 @@
 ---
 title: "Welcomes Us to Harrow"
 menu_title: ""
-description: "Welcomes Us to Harrow"
+description: "Michael Collier, received by Al Fike: “Indeed, you are where I once lived while I was on the Earth. We are very busy preparing this place and the places …”"
 date: 2025-10-12 06:00:00+00:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Be Joyful advice from Goldie"
 menu_title: ""
-description: "Be Joyful advice from Goldie"
+description: "Received by A.F: “Life is joy and beauty and love. Please don’t take yourselves too seriously.”"
 date: 2018-05-30 05:02:51+00:00
 draft: False
 hidden: True

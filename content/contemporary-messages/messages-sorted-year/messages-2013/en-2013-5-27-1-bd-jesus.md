@@ -1,7 +1,7 @@
 ﻿---
 title: "You are deeply needed in this World"
 menu_title: ""
-description: "You are deeply needed in this World"
+description: "Jesus, received by Barbara Davies: “You are precious and you are deeply needed in this world to bring the Love to the hungry from our Holy Father.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

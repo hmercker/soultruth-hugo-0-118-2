@@ -1,7 +1,7 @@
 ﻿---
 title: "Becoming Love Through Divine Love"
 menu_title: ""
-description: "Becoming Love Through Divine Love"
+description: "Lotus Blossom, received by Maureen Cardoso: “What a delight it is to come and be with you in this way where I can use this instrument to share my love, my …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

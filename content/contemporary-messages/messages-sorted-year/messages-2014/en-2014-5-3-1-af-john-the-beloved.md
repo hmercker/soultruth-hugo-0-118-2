@@ -1,7 +1,7 @@
 ﻿---
 title: "Every Desire bring to God"
 menu_title: ""
-description: "Every Desire bring to God"
+description: "John the Beloved, received by Al Fike: “May our Heavenly Father’s Love flow into your souls in great abundance and bring you the peace, the awarenesses …”"
 date: 2026-09-19 00:00:00+00:00
 draft: False
 hidden: True

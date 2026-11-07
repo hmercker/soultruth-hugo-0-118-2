@@ -1,7 +1,7 @@
 ---
 title: "A Sigh of Relief for Those Who Open Their Souls to Receive"
 menu_title: ""
-description: "A Sigh of Relief for Those Who Open Their Souls to Receive"
+description: "Goldie, received by Al Fike: “It brings a sigh of relief to the soul that ever seeks this Touch. The Love of God is the great gift, the greatest gift of all.”"
 date: 2025-05-28 07:21:03+11:00
 draft: False
 hidden: True

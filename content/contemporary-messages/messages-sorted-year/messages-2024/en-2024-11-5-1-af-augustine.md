@@ -1,7 +1,7 @@
 ---
 title: "Admonishes Us to Take Responsibility"
 menu_title: ""
-description: "Admonishes Us to Take Responsibility"
+description: "Augustine, received by Al Fike: “My friends, it is your teacher, Augustine. We work diligently to clear away the obstructions around you, purifying the …”"
 date: 2025-03-20 07:21:03+11:00
 draft: False
 hidden: True

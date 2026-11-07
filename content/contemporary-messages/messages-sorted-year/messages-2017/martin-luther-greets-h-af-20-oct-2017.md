@@ -1,7 +1,7 @@
 ---
 title: "Martin Luther Greets H"
 menu_title: ""
-description: "Martin Luther Greets H"
+description: "Received by Al Fike: “We will continue in our efforts to bring messages that will teach others as you pray together outside of your direct voice circles.”"
 date: 2018-05-30 05:02:53+00:00
 draft: False
 hidden: True

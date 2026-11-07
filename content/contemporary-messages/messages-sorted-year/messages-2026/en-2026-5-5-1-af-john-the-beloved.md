@@ -1,7 +1,7 @@
 ﻿---
 title: "Be an Island of Peace in a Troubled World"
 menu_title: ""
-description: "Be an Island of Peace in a Troubled World"
+description: "John the Beloved, received by Al Fike: “May the peace that passes all understanding be yours, beloved souls. I cultivated peace in my ministry.”"
 date: 2026-06-23 00:00:00+00:00
 draft: False
 hidden: True

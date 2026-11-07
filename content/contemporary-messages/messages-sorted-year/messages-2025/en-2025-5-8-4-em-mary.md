@@ -1,7 +1,7 @@
 ---
 title: "You Will Be Cradled in Our Arms as We Carry You Home"
 menu_title: ""
-description: "You Will Be Cradled in Our Arms as We Carry You Home"
+description: "Mary, received by Elizabeth Mack: “Know that we will be with you. You will be cradled in our arms as you go in your different directions to your homes.”"
 date: 2025-07-06 07:21:03+11:00
 draft: False
 hidden: True

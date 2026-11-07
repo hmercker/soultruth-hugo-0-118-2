@@ -1,7 +1,7 @@
 ---
 title: "The Work in Circles of Light Continues "
 menu_title: ""
-description: "The Work in Circles of Light Continues "
+description: "Anna, received by Al Fike: “We have been drawing you into all your Circles of Light that you are a part of. We have been utilizing the connections that you …”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

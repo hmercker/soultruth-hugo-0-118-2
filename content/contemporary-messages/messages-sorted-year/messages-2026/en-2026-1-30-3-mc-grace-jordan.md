@@ -1,7 +1,7 @@
 ﻿---
 title: "Soul Consciousness Over Mindful Beliefs"
 menu_title: ""
-description: "Soul Consciousness Over Mindful Beliefs"
+description: "Grace Jordan, received by Maureen Cardoso: “I too am in great anticipation for the days ahead as you gather with the beautiful souls of this nation.”"
 date: 2026-08-09 00:00:00+00:00
 draft: False
 hidden: True

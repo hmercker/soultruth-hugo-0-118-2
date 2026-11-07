@@ -1,7 +1,7 @@
 ---
 title: "God Invites You on this Path"
 menu_title: ""
-description: "God Invites You on this Path"
+description: "Augustine, received by Al Fike: “My sincere hope is that all of you may continue to feel that great inflowing, to knowingly receive this Gift, to …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True

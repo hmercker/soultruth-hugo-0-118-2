@@ -1,7 +1,7 @@
 ---
 title: "Percy Hayes Announces His Entry into the Celestial Kingdom"
 menu_title: ""
-description: "Percy Hayes Announces His Entry into the Celestial Kingdom"
+description: "Received by Al Fike: “It has been some time since I have talked to you all. I want to give my love to my dear daughters and say to them that I am close …”"
 date: 2021-02-22 07:21:03+11:00
 draft: False
 hidden: True

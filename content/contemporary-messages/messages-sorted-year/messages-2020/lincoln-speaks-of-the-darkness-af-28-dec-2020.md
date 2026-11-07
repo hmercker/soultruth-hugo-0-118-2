@@ -1,7 +1,7 @@
 ---
 title: "Abe Lincoln Speaks of the Condition of America and Implores Us to Reach for the Light"
 menu_title: ""
-description: "Abe Lincoln Speaks of the Condition of America and Implores Us to Reach for the Light"
+description: "Received by Al Fike: “Since this medium has been reading of my endeavours in spiritualism, it has drawn me close.”"
 date: 2021-01-19 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Will be Honoured to Come Tomorrow to Respond to Geoff’s Question"
 menu_title: ""
-description: "Will be Honoured to Come Tomorrow to Respond to Geoff’s Question"
+description: "Josephus, received by Al Fike: “Your dear brother and sister are sincere in their pursuits. We will answer in accordance with their questions and in …”"
 date: 2025-03-21 07:21:03+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ﻿---
 title: "Importance of Your Ministry"
 menu_title: ""
-description: "Importance of Your Ministry"
+description: "Moses, received by Elizabeth Mack: “We each have a choice given to us by God. Those choices determine where we go, how we go and, for some of us, where we …”"
 date: 2026-10-29 00:00:00+00:00
 draft: False
 hidden: True

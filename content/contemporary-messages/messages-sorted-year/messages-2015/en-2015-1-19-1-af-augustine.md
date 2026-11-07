@@ -1,7 +1,7 @@
 ﻿---
 title: "Do not compromise in your Thoughts and your Actions, but reach for the Highest"
 menu_title: ""
-description: "Do not compromise in your Thoughts and your Actions, but reach for the Highest"
+description: "Augustine, received by Al Fike: “And as you do your travels in the world, to bring those who desire to receive the Love in circles of prayer and circles of …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

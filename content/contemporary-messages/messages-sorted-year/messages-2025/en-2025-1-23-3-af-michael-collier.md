@@ -1,7 +1,7 @@
 ---
 title: "Further Truths About Evolution"
 menu_title: ""
-description: "Further Truths About Evolution"
+description: "Michael Collier, received by Al Fike: “I have come to talk about evolution, which might surprise you. Leading off from what our dear Seretta Kem has said …”"
 date: 2025-03-11 07:21:03+11:00
 draft: False
 hidden: True

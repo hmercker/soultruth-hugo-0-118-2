@@ -1,7 +1,7 @@
 ---
 title: "The True Church is in Your Hearts"
 menu_title: ""
-description: "The True Church is in Your Hearts"
+description: "Peter, received by Elizabeth Mack: “My Master said he would build his church upon this Rock. I say to you, the true church is in your hearts.”"
 date: 2025-07-06 07:21:03+11:00
 draft: False
 hidden: True

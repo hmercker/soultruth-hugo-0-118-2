@@ -1,7 +1,7 @@
 ---
 title: "DV Guidance (Seretta Kem) and Being of Service (Luke)"
 menu_title: ""
-description: "DV Guidance (Seretta Kem) and Being of Service (Luke)"
+description: "Received by Al Fike: “When you spoke at the church today we were experimenting to see if we could bring through a manifestation of spirit and this …”"
 date: 2020-05-26 07:31:16+11:00
 draft: False
 hidden: True

@@ -1,7 +1,7 @@
 ---
 title: "Soul's Wisdom"
 menu_title: ""
-description: "Soul's Wisdom"
+description: "George Stokes, received by Elizabeth Mack: “I say to you, as you grow in this Love, you grow in wisdom. I know some of you are wise in a material way, but …”"
 date: 2026-01-12 00:00:00+00:00
 draft: False
 hidden: True

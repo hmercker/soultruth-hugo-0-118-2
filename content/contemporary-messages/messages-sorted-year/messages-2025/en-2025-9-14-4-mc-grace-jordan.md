@@ -1,7 +1,7 @@
 ﻿---
 title: "Ask God to Establish the Consciousness of Love in Your Mind"
 menu_title: ""
-description: "Ask God to Establish the Consciousness of Love in Your Mind"
+description: "Grace Jordan, received by Maureen Cardoso: “Let us rise up into love, into the realms of light. That, dear friends, is the desire that each one of you has …”"
 date: 2026-08-02 00:00:00+00:00
 draft: False
 hidden: True

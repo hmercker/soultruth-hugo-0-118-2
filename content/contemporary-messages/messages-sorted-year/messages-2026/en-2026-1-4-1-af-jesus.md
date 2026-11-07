@@ -1,7 +1,7 @@
 ---
 title: "We Are United in God's Love"
 menu_title: ""
-description: "We Are United in God's Love"
+description: "Jesus, received by Al Fike: “God be with you, my beloveds. We band together to bring light, to bring love to ourselves and to this world.”"
 date: 2026-03-08 00:00:00+00:00
 draft: False
 hidden: True

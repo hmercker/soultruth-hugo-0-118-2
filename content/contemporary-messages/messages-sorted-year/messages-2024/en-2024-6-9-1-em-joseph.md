@@ -1,7 +1,7 @@
 ---
 title: "Speaking Truth"
 menu_title: ""
-description: "Speaking Truth"
+description: "Joseph, received by Elizabeth Mack: “I will always be here to assist you in your endeavors to progress in this love of the Father.”"
 date: 2025-03-23 07:21:03+11:00
 draft: False
 hidden: True

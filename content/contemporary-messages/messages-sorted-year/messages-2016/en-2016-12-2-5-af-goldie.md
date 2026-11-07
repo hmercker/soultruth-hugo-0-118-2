@@ -1,7 +1,7 @@
 ﻿---
 title: "A Gift of Joy"
 menu_title: ""
-description: "A Gift of Joy"
+description: "Goldie, received by Al Fike: “I have sprinkled you all with joy, please accept my gift and know the joy that comes with Love.”"
 date: 2026-10-01 00:00:00+00:00
 draft: False
 hidden: True

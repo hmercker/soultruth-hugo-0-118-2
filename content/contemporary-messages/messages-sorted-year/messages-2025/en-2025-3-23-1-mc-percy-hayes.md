@@ -1,7 +1,7 @@
 ---
 title: "Percy Shares Parts of His Work as a Celestial Angel"
 menu_title: ""
-description: "Percy Shares Parts of His Work as a Celestial Angel"
+description: "Percy Hayes, received by Maureen Cardoso: “How wonderful it is to have the opportunity to speak with each of you and to have myself heard in the broader …”"
 date: 2025-04-02 07:21:03+11:00
 draft: False
 hidden: True

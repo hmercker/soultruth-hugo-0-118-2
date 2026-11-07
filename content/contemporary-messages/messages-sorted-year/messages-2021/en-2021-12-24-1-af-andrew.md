@@ -1,7 +1,7 @@
 ---
 title: "Christmas Candlelight Circle"
 menu_title: ""
-description: "Christmas Candlelight Circle"
+description: "Andrew, received by Al Fike: “Brothers and sisters, I am Andrew. I wish to affirm your prayers and your aspirations to bring light and love to your world …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

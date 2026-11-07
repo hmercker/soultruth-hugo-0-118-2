@@ -1,7 +1,7 @@
 ﻿---
 title: "How may I serve you dear Father"
 menu_title: ""
-description: "How may I serve you dear Father"
+description: "Augustine, received by Al Fike: “I wish to comment on your journey thus far, my two precious souls. Do you not see, how the souls of those you have been in …”"
 date: 2026-09-16 00:00:00+00:00
 draft: False
 hidden: True

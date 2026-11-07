@@ -1,7 +1,7 @@
 ---
 title: "Guidance for Continued Direct Voice Development"
 menu_title: ""
-description: "Guidance for Continued Direct Voice Development"
+description: "Seretta Kem, received by Al Fike: “So now that you have made your decisions and commitments, we will begin with our commitment to help develop you further …”"
 date: 2025-06-30 07:21:03+11:00
 draft: False
 hidden: True

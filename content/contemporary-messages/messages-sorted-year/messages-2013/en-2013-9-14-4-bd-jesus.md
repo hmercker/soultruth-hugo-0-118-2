@@ -1,7 +1,7 @@
 ﻿---
 title: "Blessings"
 menu_title: ""
-description: "Blessings"
+description: "Jesus, received by Barbara Davies: “Each of you have a deep purpose. Accept this, change… I am Jesus.”"
 date: 2026-09-23 00:00:00+00:00
 draft: False
 hidden: True

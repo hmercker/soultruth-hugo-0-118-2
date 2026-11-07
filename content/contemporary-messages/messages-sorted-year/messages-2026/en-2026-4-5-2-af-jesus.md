@@ -1,7 +1,7 @@
 ﻿---
 title: "Easter Sunday: Live and Share the Truth of Divine Love"
 menu_title: ""
-description: "Easter Sunday: Live and Share the Truth of Divine Love"
+description: "Jesus, received by Al Fike: “May the blessings of the Father's Love be yours, my beloveds. I make a special appointment to be with you, my beloveds, for …”"
 date: 2026-05-17 00:00:00+00:00
 draft: False
 hidden: True

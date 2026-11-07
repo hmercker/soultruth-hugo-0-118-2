@@ -1,7 +1,7 @@
 ---
 title: "Blessing"
 menu_title: ""
-description: "Blessing"
+description: "Jesus, received by Al Fike: “Through you, this Circle of Light, a great channel of light is manifest at this moment to bring the gift of peace, to comfort …”"
 date: 2025-07-03 06:00:00+00:00
 draft: False
 hidden: True

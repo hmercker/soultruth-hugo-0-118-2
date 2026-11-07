@@ -1,7 +1,7 @@
 ---
 title: "The Love of God is the Greatest of All Blessings"
 menu_title: ""
-description: "The Love of God is the Greatest of All Blessings"
+description: "John Wesley, received by Al Fike: “May God's blessings rain upon you. I've come to congratulate you all on your efforts and desire to be in alignment with …”"
 date: 2025-07-30 06:00:00+00:00
 draft: False
 hidden: True
