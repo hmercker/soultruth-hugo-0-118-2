@@ -13,7 +13,25 @@
 	3. 	Miscellaneous
 
 ***********************************************************************************************/
-@import "bootstrap/bootstrap";
+@import "fonts";
+// Bootstrap: only the parts this site uses (the full library added about 90 KB of unused CSS).
+@import "bootstrap/functions";
+@import "bootstrap/variables";
+@import "bootstrap/mixins";
+@import "bootstrap/root";
+@import "bootstrap/reboot";
+@import "bootstrap/type";
+@import "bootstrap/images";
+@import "bootstrap/code";
+@import "bootstrap/grid";
+@import "bootstrap/tables";
+@import "bootstrap/forms";
+@import "bootstrap/transitions";
+@import "bootstrap/dropdown";
+@import "bootstrap/input-group";
+@import "bootstrap/custom-forms";
+@import "bootstrap/utilities";
+@import "bootstrap/print";
 @import "_bootstrap-variables";
 @import "_content";
 @import "_print";
