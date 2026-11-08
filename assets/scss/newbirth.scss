@@ -91,6 +91,12 @@ a:hover, a:focus {
     text-decoration: underline !important;  /* Optional: underline on hover */
 }
 
+/* "Share" button: dark green (the site's hover green) so the text is readable
+   on the grey button (contrast 6.5:1 instead of 4.5:1). */
+#share-btn {
+    color: darkgreen !important;
+}
+
 /* Optional: Apply PT Serif font to buttons */
 button, input[type="submit"], .button {
     font-family: 'PT Serif' !important;  /* Apply PT Serif font to buttons */
