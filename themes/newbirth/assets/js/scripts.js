@@ -1,40 +1,56 @@
+// Font size buttons and "expand" button in the toolbox.
+// Plain JavaScript: the page no longer needs to download jQuery from Google.
+(function () {
 
-
-(function ($) {
+    function setContentFontSize(fontSize) {
+        document.querySelectorAll('.content').forEach(function (el) {
+            el.style.fontSize = fontSize + '%';
+        });
+    }
 
     // Change Font
     function changeFont(fontSize) {
-        console.log(fontSize)
         currentFontSize = fontSize;
-        $('.content').css('font-size', fontSize + '%');
-        sessionStorage.setItem('fSize', fontSize);
+        setContentFontSize(fontSize);
+        try { sessionStorage.setItem('fSize', fontSize); } catch (e) { }
     }
-    var currentFontSize = parseInt(100);
+    var currentFontSize = 100;
 
-    $('.js-font-decrease').on('click', function () {
+    function onClick(selector, handler) {
+        document.querySelectorAll(selector).forEach(function (el) {
+            el.addEventListener('click', handler);
+        });
+    }
+
+    onClick('.js-font-decrease', function () {
         if (currentFontSize === 100) {
-            return false;
+            return;
         }
-        changeFont(currentFontSize - 25)
+        changeFont(currentFontSize - 25);
     });
 
-    $('.js-font-normal').on('click', function () {
-        changeFont(100)
+    onClick('.js-font-normal', function () {
+        changeFont(100);
     });
 
-    $('.js-font-increase').on('click', function () {
-        changeFont(currentFontSize + 25)
+    onClick('.js-font-increase', function () {
+        changeFont(currentFontSize + 25);
     });
 
-    if (sessionStorage.length !== 0) {
-        $('.content').css('font-size', sessionStorage.getItem('fSize') + '%');
-        currentFontSize = parseInt(sessionStorage.getItem('fSize'));
+    var saved = null;
+    try { saved = sessionStorage.getItem('fSize'); } catch (e) { }
+    if (saved !== null && !isNaN(parseInt(saved, 10))) {
+        currentFontSize = parseInt(saved, 10);
+        setContentFontSize(currentFontSize);
     }
 
     // Expand Sidebar
-    $('.toolbox .expand').click(function () {
-        $('#content').toggleClass('expanded');
-        return false;
+    onClick('.toolbox .expand', function (event) {
+        event.preventDefault();
+        var content = document.getElementById('content');
+        if (content) {
+            content.classList.toggle('expanded');
+        }
     });
 
-})(jQuery);
+})();
